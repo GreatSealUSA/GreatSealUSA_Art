@@ -11,3 +11,14 @@ Am I making myself clear here on GitHub?
 
 September 27, 2025 Reddit Front Page   
 https://old.reddit.com/r/HistoryMemes/comments/1nrzvoc/democracies_georg/
+
+&nbsp;
+
+Read Finnegans Wake
+
+Read / Reed / Finnegans Wake Wake Wake    
+Two / To / Two / English Language Clusterfuck Finnegans Wake Wake Wake
+
+A “Finnegans Wake” Alphabet Book for the “Abcedminded”     
+OPERA_A We All Think of the A, B, C patterns. https://youtu.be/mzvk0fWtCs0?t=140
+
