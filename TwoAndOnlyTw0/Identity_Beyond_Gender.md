@@ -8,4 +8,10 @@ Great Seal USA Pyramid metaphor
 
 https://old.reddit.com/r/me_irlgbt/comments/1ntikwz/me_irlgbt/
 
-ToDo: Joseph Campbell JCF lectures on "sexes were a late development" of file, single-cell evolution of splitting vs. sexual mixing / sexual selection.
+&nbsp;
+
+&nbsp;
+
+# Misc A
+
+ToDo: Joseph Campbell JCF lectures on "sexes were a late development" of life on Earth, over the millions of years... single-cell evolution of splitting vs. sexual mixing / sexual selection.
