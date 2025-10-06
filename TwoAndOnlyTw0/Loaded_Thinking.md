@@ -39,7 +39,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 Non-instrumental reason thinking system.
 
-George Lucas filmed lessons at Skywalker Ranch for the Star Wars audiences / Hollywood film fans in summer of 1986 and summer of 1987. This was the peak of George Lucas's society influence, popularituy, and he wanted audiences to understand how the monomyth sausages are made. So he filmed and hosted educational series for science fiction audiences.
+George Lucas filmed lessons at Skywalker Ranch for the Star Wars audiences / Hollywood film fans in summer of 1986 and summer of 1987. This was the peak of George Lucas' society media influence, popularituy, and he used his media platform to teach. Lucas wanted audiences to understand how the monomyth sausages are made. So he filmed and hosted nonfiction educational series for science fiction audiences.
 
 Published in 1988 book "Power of Myth", page 37
 
