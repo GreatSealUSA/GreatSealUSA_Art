@@ -10,11 +10,20 @@ comic source: https://redd.it/1nywh12
 
 The Loaded Question from the man in the comic to the women in the comic:
 
-1. You deserved violence. Normalizing violence and hate. Avoiding the February 28, 1954 Equation.
+1. You deserved violence. Normalizing violence and hate. Avoiding The February 28, 1954 Equation.
 
 2. Immigrants did it.
 
-3. There is no third option, as bi-polar us vs. them mindset is thought-termining at two sides, both sides, "the other side" (of two sides). "Twi sides to every story".
+3. There is no third option, as bi-polar us vs. them mindset is thought-termining at two sides, both sides, "the other side" (of two sides). "Two sides to every story".
 
-In this case, both are wrong. Side one is wrong, side two is wrong. The correct answer lies beyond the numbers one and two, "both" sides.
+In this case, both choices are wrong. Side one is wrong, side two is wrong. The correct answer lies beyond the numbers one and two, beyond "both" sides of "an argument".
 
+&nbsp;
+
+&nbsp;
+
+# The 1954 Equation
+
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
