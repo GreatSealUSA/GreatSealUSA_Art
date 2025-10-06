@@ -5,7 +5,10 @@ Loaded Question, that there are only two answers to a problem.
 &nbsp;
 
 ![Comic of a man yelling at a woman with a loaded question of only two choices](Comic_Two_Sides_Thinking.webp)
+
 comic source: https://redd.it/1nywh12
+
+The Loaded Question from the man in the comic to the women in the comic:
 
 1. You deserved violence. Normalizing violence and hate. Avoiding the February 28, 1954 Equation.
 
