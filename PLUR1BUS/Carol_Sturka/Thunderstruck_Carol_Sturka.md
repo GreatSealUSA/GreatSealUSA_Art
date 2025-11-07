@@ -7,3 +7,9 @@ Carol is the independent mind encountering the Everyman's Dream of Dublin explan
 The 5 of 12 who speak English as second or Third language
 
 We are appraoching the 12th step of the Great Seal, 12 independent free thinkers addressing the Mass Mind rewrites and opera.
+
+&nbsp;
+
+## Biggest killer since Stalin
+
+The grief of encounting the nightmare of histoy, what Finnegans Wake is revealing in year 1924. The history of human conflict and bloodshed.
