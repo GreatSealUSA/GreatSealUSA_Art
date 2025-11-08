@@ -2,6 +2,7 @@
 
 "Human salvation lies in the hands of the creatively maladjusted."     
 Dr. Martin Luther King, Jr.    
+Strength to Love (1963)    
 Chapter 2 : Transformed nonconformist
 
 She is a writer, creative author. Nonconformists.
