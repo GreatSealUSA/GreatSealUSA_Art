@@ -1,4 +1,4 @@
-# Carol Sturka Creatively Maladjuted
+# Carol Sturka Creatively Maladjusted
 
 "Human salvation lies in the hands of the creatively maladjusted."     
 Dr. Martin Luther King, Jr.    
