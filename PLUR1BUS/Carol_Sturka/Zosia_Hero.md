@@ -15,6 +15,8 @@ The lost burned opening of a story that iterates, a monomyth iteration story. Th
 
 Ending credits song, John Lennon. "Everybody's talking and no one says a word, Everybody's making love and no one really cares. There's Nazis in the bathroom just below the stairs."
 
+&nbsp;
+
 ## Fin Wake Parallels 
 
 Real world context.
@@ -22,6 +24,8 @@ Real world context.
 https://youtu.be/tj9Nht-0Y3w?t=912
 
 Part about Finnegans Wake is the most memorable
+
+Is Bitter Chrysalis her version of Finnegans Wake, independently developed over 5 years?
 
 Now... this has extremely deep meaning. Does Carol get happy with the Fall knolwedge of killing people when she induces pod people kernel panic? 
 
