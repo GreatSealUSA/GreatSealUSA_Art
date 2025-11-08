@@ -2,7 +2,9 @@
 
 https://bsky.app/profile/justinofclark.bsky.social/post/3m535dnxooc2k
 
-Justin Clark: "I reviewed the first seven episodes of Pluribus."
+Justin Clark: "I reviewed the first seven episodes of Pluribus."    
+Notable that there are 9 episodes planned for this season, so does not cover *everything* in first season. Two seasons were also approved from the very start, so the who was written without anxiety of cancelation after first season.  
+
 
 .
 
