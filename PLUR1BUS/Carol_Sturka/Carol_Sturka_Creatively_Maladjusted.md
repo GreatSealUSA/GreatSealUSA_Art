@@ -5,7 +5,7 @@ Dr. Martin Luther King, Jr.
 Strength to Love (1963)    
 Chapter 2 : Transformed nonconformist
 
-She is a writer, creative author. Nonconformist.
+Carol is a writer, creative author. Nonconformist.
 
 &nbsp;
 
