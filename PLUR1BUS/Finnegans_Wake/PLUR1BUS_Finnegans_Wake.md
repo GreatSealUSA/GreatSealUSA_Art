@@ -15,7 +15,13 @@ James Joyce was a heavy drinker, and an Irish pub is the center of the Finnegans
 
 2. Carol is at a public house drinking as the globsl apocalypse is unleashed via chemtrails.
 
-# *"Ah ho! Say no more about it! I'm sorry! I saw. I'm sorry! I'm sorry to say I saw!"* - Finnegans Wake, page 581
+3. Carol does not have a mental crash and freeze like other people do when exposed to the virus. However, later that night when she returns to her house: Carol boozes until she goes blackout drunk. She ha a peronsal ritul with whiskey to go into mental reset / blackout state.
+
+4. Carol is a book author with a closely-held manuscript that is unpublished. She is disgusted with the state of commercial book selling and her own state of sleze selling low-importance content. She is afraid her deeper more complex work (like Finnegans Wake) won't sell and have public acceptance. Beinga highly literate preson gives her some special powers with booze / drinking.
+
+&nbsp;
+
+### *"Ah ho! Say no more about it! I'm sorry! I saw. I'm sorry! I'm sorry to say I saw!"* - Finnegans Wake, page 581
 
 &nbsp;
 
