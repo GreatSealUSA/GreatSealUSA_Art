@@ -8,7 +8,7 @@ Untold story: the reason the car has a alcohol meter. "Wasted" in the "Wasteland
 
 &nbsp;
 
-# Abvoe in outer space
+# Above in outer space
 
 &nbsp;
 
