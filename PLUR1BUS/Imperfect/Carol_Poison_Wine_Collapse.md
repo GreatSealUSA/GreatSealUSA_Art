@@ -12,7 +12,7 @@ But singsong Finnegans Wake, music lyrics of The Wake Poetry Singsong, are still
 
 The countdown of the virus event. Countdown To ablum title.
 
-Ruins of Sante Fe. Drink my poison wine.
+Ruins of Sante Fe. Share my poison wine.
 
 https://www.youtube.com/watch?v=XOGWbaOOeCM
 
