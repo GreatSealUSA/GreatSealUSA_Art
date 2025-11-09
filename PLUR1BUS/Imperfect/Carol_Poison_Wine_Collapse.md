@@ -12,7 +12,8 @@ But singsong Finnegans Wake, music lyrics of The Wake Poetry Singsong, are still
 
 The countdown of the virus event. Countdown To ablum title.
 
-Ruins of Sante Fe. Share my poison wine.
+Ruins of Sante Fe. Share my poison wine. "I don't need no helping hand!"
 
 https://www.youtube.com/watch?v=XOGWbaOOeCM
 
+"Show me where you are, the 5 English speakers"
