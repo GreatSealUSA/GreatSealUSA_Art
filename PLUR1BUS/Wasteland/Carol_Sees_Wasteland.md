@@ -30,7 +30,7 @@ CAMPBELL: The big moment in the medieval myth is the awakening of the heart to c
 &nbsp;
 
 CAMPBELL: There’s a very interesting statement about the origin of the Grail. One early writer says that the Grail was brought from heaven by the neutral angels. You see, during the war in heaven between God and Satan, between good and evil, some angelic hosts sided with Satan and some with God. The Grail was brought down through the middle by the neutral angels. It represents that spiritual path that is between pairs of opposites, between fear and desire, between good and evil.
-The theme of the Grail romance is that the land, the country, the whole territory of concern has been laid waste. It is called a wasteland. And what is the nature of the wasteland? It is a land where everybody is living an inauthentic life, doing as other people do, doing as you’re told, with no courage for your own life. That is the wasteland. And that is what T. S. Eliot meant in his poem The Waste Land.
+The theme of the Grail romance is that the land, the country, the whole territory of concern has been laid waste. It is called a wasteland. And what is the nature of the wasteland? It is a land where everybody is living an inauthentic life, **doing as other people do, doing as you’re told, with no courage for your own life. That is the wasteland**. And that is what T. S. Eliot meant in his poem The Waste Land.
 In a wasteland the surface does not represent the actuality of what it is supposed to be representing, and people are living inauthentic lives. “I’ve never done a thing I wanted to in all my life. I’ve done as I was told.” You know?
 
 MOYERS: And the Grail becomes?
