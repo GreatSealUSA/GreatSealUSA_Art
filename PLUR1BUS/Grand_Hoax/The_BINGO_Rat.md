@@ -18,7 +18,7 @@ Maybe the outer-space RNA was only an essential key to inject changes (like a [s
 
 4. Human to human Spreading via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
 
-5. Humab to human... Donut spread oral / like hepatitus and herpies spread via food
+5. Human to human... Donut spread oral / like hepatitus and herpies spread via food
 
 6. Hive group was boxing it up for export via petri dishes.
 
