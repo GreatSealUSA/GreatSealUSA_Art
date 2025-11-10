@@ -7,61 +7,37 @@ https://www.youtube.com/watch?v=1NRRVA1fcrA
 &nbsp;
 
 Let's pull the camera all the way back
-0:01
 and ask the big scary question. What is
-0:05
 Pluribabus really? Is this a clean alien
-0:09
 gift coated in the stars or a human-made
-0:12
 experiment that ran off the rails? The
-0:15
 first two episodes give us just enough
-0:17
 breadcrumbs to build a real theory. And
-0:19
 honestly, the answer might be both. A
-0:22
 trap that worked only because people
-0:24
-like us opened the door. We start with
-0:27
-the signal. Cold, clinical, and weirdly
-0:30
+like us opened the door.
+
+We start with the signal. Cold, clinical, and weirdly
 beautiful. Astronomers at what looks
-0:33
 like Goldstone pick up a microwave pulse
-0:36
 from 600 light years away.
-0:39
 It isn't a sentence. It isn't music.
-0:42
 It's an RNA sequence hiding inside a
-0:45
 morselike rhythm. And the scientists do
-0:48
 exactly what curious, ambitious humans
-0:51
 do. They turn it into DNA and put it
-0:54
 into living bodies to see what happens.
-0:58
 That single choice lights the fuse. A
-1:01
 lab mouse bites a researcher. She
-1:04
 convulses and then she kisses her
-1:06
 coworker.
-1:08
+
+1:08    
 From there, the world tips over like a
-1:10
 row of dominoes lubricated with saliva.
-1:14
 The happiness doesn't kill on contact.
-1:17
 The collapse does. Ambulances that never
-1:20
+
 arrive, planes that fall, hospitals
 1:24
 freezing in one synchronized spasm.
