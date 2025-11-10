@@ -10,7 +10,7 @@ Maybe the outer-space RNA was only an essential key to inject changes (like a [s
 
 &nbsp;
 
-1. Early on... humans discover that the RNA 78-second message is only an install app. Like a "hello world" app of how to modify humans.
+1. Early on... humans discover that the RNA 78-second message is only an install app. Like a "hello world" app of how to modify animals (including humans). But nobody has yet injected it into a human, only animal testing.
    
 2. First only rats were being given direct injections, each rat in isolation. Each rat given a different virus / mRNA injection. (A [printer cranking out new variations](https://www.unmc.edu/healthsecurity/transmission/2023/05/02/vaccine-printer-could-help-vaccines-reach-more-people/) for each test run)
 
