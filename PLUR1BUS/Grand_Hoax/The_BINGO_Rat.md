@@ -10,14 +10,16 @@ Maybe the outer-space RNA was only an essential key to inject changes (like a [s
 
 &nbsp;
 
-1. First only rats were being given direct injections, each rat in isolation. Each rat given a different virus / mRNA injection. (A [printer cranking out new variations](https://www.unmc.edu/healthsecurity/transmission/2023/05/02/vaccine-printer-could-help-vaccines-reach-more-people/) for each test run)
+1. Early on... humans discover that the RNA 78-second message is only an install app. Like a "hello world" app of how to modify humans.
+   
+2. First only rats were being given direct injections, each rat in isolation. Each rat given a different virus / mRNA injection. (A [printer cranking out new variations](https://www.unmc.edu/healthsecurity/transmission/2023/05/02/vaccine-printer-could-help-vaccines-reach-more-people/) for each test run)
 
-2. BINGO rat
+3. BINGO rat
 
-3. Human to human Spreading via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
+4. Human to human Spreading via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
 
-4. Humab to human... Donut spread oral / like hepatitus and herpies spread via food
+5. Humab to human... Donut spread oral / like hepatitus and herpies spread via food
 
-5. Hive group was boxing it up for export via petri dishes.
+6. Hive group was boxing it up for export via petri dishes.
 
-6. The hive group weaponized it further to air drop / chemtrails on Finnegans Wake release Public House day.
+7. The hive group weaponized it further to air drop / chemtrails on Finnegans Wake release Public House day.
