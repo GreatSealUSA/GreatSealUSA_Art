@@ -15,4 +15,6 @@ https://youtube.com/clip/Ugkxs07QFnO-rn69habKPPVxyqFGS5qRAVIr
 
 &nbsp;
 
-source: https://www.youtube.com/watch?v=0QrWfbYFtNk
+source:      
+https://www.youtube.com/watch?v=0QrWfbYFtNk    
+https://psychedelicsalon.com/podcast-176-surfing-finnegans-wake-part-1/
