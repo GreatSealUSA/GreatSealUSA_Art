@@ -6,11 +6,11 @@ I still have a line of interpretation that humans weaponized the virus in the la
 
 The RNA sequence, the 78 second message, is pretty damn short.
 
-Maybe it was only a key, and the military lab / rulers of the world were combining it with other things. And this one rat was the BINGO winner (Better Call Saul rat). So **each (nearly identical) rat was being given a different virus** to seek out specific behavior changes. BIGO rat had the brain reboot / played dead (Tim Finnegan).
+Maybe the outer-space RNA was only an essential key to inject changes (like a [software install app](https://en.wikipedia.org/wiki/Installer.app), not the actual payload app, but the installer program), and the military lab / rulers of the world were combining that RNA "skeleton key" to with other things (payloads). And this one rat was the BINGO winner (Better Call Saul rat). So **each (nearly identical) rat was being given a different virus** to seek out specific behavior changes. BIGO rat had the brain reboot / played dead (Tim Finnegan).
 
 &nbsp;
 
-1. First only rats were being given direct injections, each rat in isolation
+1. First only rats were being given direct injections, each rat in isolation. Each rat given a different virus / mRNA injection. (A [printer cranking out new variations](https://www.unmc.edu/healthsecurity/transmission/2023/05/02/vaccine-printer-could-help-vaccines-reach-more-people/) for each test run)
 
 2. BINGO rat
 
