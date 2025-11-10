@@ -7,3 +7,7 @@ Carol is a writer / author like Roger Ebert. But does she tell her audience abou
 Twelve Step Programs
 
 how many steps on the Great Seal of the United States of America... 12 and bonus leap to 13.
+
+&nbsp;
+
+Aside... previous shows from writers center around meth drug abuse. Booze tends to be considered "classy" drug to abuse in high society / executive functions.
