@@ -1,4 +1,4 @@
-# Caro "the boozer" Twelve Steps
+# Carol "the boozer" Twelve Steps
 
 Roger Ebert comes to mind, who was rather open about his twelve step program to his audience.
 
