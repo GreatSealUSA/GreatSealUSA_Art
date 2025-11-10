@@ -1,7 +1,9 @@
 
 # HotFix From Eden?
 
-In The Matrix 1999 film, Agent Smith famously says that humanity itself is a virus, one that does not seek equilibrium with nature and Earth. Was this a deliberately crafted HotFix from Jesus after he made it to far-away Eden ;) ?
+In The Matrix 1999 film, Agent Smith famously says that humanity itself is a virus, one that does not seek equilibrium with nature and Earth. Was this a [deliberately crafted HotFix](https://en.wikipedia.org/wiki/Hotfix) from Jesus after he made it to far-away Eden ;) ?
+
+Well, more of a hardware fix than a software / firmware patch. RNA is more like microcode, it isn't changing the DNA if I understand? A DNA change would be physical change to the chip, where microcode would be more of a software / RNA change?
 
 &nbsp;
 
