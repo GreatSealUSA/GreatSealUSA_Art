@@ -14,7 +14,7 @@ The Power of Myth. Published 1988.
 BILL MOYERS: Well, I have often wondered, what would a member of a hunting tribe on the North American plains think, gazing up on Michelangelo’s creation?
 
 JOSEPH CAMPBELL: That is certainly not the god of other traditions. In the other mythologies, one puts oneself in accord with the world, with the mixture of good and evil. But in the religious system of the Near East, you identify with the good and fight against the evil. The biblical traditions of Judaism, Christianity, and Islam all speak with derogation of the so-called nature religions.
-The shift from a nature religion to a sociological religion makes it difficult for us to link back to nature. But actually all of those cultural symbols are perfectly susceptible to interpretation in terms of the psychological and cosmological systems, if you choose to look at them that way.
+The shift from a nature religion to a sociological religion **makes it difficult for us to link back to nature. But actually all of those cultural symbols are perfectly susceptible to interpretation in terms of the psychological and cosmological systems, if you choose to look at them that way**.
 Every religion is true one way or another. It is true when understood metaphorically. But when it gets stuck to its own metaphors, interpreting them as facts, then you are in trouble.
 
 MOYERS: What is the metaphor?
