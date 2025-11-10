@@ -655,45 +655,27 @@ hurt by deleting the self, sounds almost
 holy on a billboard. In a kitchen, at a
 15:26
 grave, on a runway, it feels monstrous.
-15:29
+
+15:27    
 Pluribus keeps putting Carol in those
-15:32
 small human spaces to remind us what's
-15:34
 at stake. The grave in her backyard.
-15:38
 Zosa's face flickering with something
-15:40
 like shame. The sprint toward the plane
-15:43
 when she realizes Choice still lives in
-15:45
 there somewhere. Where does that leave
-15:47
 the origin question? Here's the cleanest
-15:49
 read that fits what we've seen. A
-15:51
 non-human sender, alien or posthuman,
-15:55
 broadcast an RNA payload packaged as a
-15:58
 puzzle we couldn't resist. It counted
-16:00
 down because it was confident we'd run
-16:03
 the experiment for them. When the hive
-16:06
 bloomed, it moved to count up as if
-16:09
 writing the first line of a new calendar
-16:11
 that erases our old one. It
-16:14
 underestimated the 12th variable. an
-16:16
 immune, furious, grieving woman who
-16:19
 refuses to trade grief for numbness.
 And in that refusal, it exposed a bug.
 The hive can do facts forever. It
@@ -782,3 +764,14 @@ theory in the comments. Alien code or
 human experiment. I'll be reading them
 all. Until then, keep your eyes on the
 sky and your heart your own.
+
+&nbsp;
+
+&nbsp;
+
+## Zosia turning / Zosia pausing
+
+I think this video identified a key fork in the story interpretation.
+
+Starway to heaven metaphor    
+Tim Finnegan Ladder climb    
