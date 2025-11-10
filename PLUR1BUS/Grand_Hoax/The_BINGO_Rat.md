@@ -14,10 +14,10 @@ Maybe it was only a key, and the military lab / rulers of the world were combini
 
 2. BINGO rat
 
-3. Spraeding via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
+3. Human to human Spreading via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
 
-4. Donut spread oral / like hepatitus and herpies spread via food
+4. Humab to human... Donut spread oral / like hepatitus and herpies spread via food
 
-5. hive group was boxing it up for export via petri dishes.
+5. Hive group was boxing it up for export via petri dishes.
 
 6. The hive group weaponized it further to air drop / chemtrails on Finnegans Wake release Public House day.
