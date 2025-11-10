@@ -6,6 +6,8 @@ I still have a line of interpretation that humans weaponized the virus in the la
 
 The RNA sequence, the 78 second message, is pretty damn short.
 
-Maybe it was only a key, and the military lab / rulers of the world were combining it with other things. And this one rat was the BINGO winner (Better Call Saul rat).
+Maybe it was only a key, and the military lab / rulers of the world were combining it with other things. And this one rat was the BINGO winner (Better Call Saul rat). So each (nearly identical) rat was being given a different virus to seek out specific behavior changes. BIGO rat had the brain reboot / played dead (Tim Finnegan).
 
-At first they showed the petri dishes and oral contact spread. But then (once the hive was deeded by the rat and the two at the vending machine) the hive group weaponied it further to air drop / chemtrails on Finnegans Wake release Public House day.
+&nbsp;
+
+At first they showed the petri dishes and oral contact spread. But then (once the hive was deeded / seeded by the rat and the two at the vending machine) the hive group weaponied it further to air drop / chemtrails on Finnegans Wake release Public House day.
