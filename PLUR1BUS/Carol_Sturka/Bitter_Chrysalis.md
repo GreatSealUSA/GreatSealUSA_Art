@@ -21,3 +21,8 @@ The polishing ideas that Carol has in her mind that are only in one place.
 
 The RNA was built without that secret sauce.
 
+&nbsp;
+
+# Finnegans Wake metaphors
+
+Finnegans Wake as a book is a bitter acid, a bitter LSD.
