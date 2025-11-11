@@ -1,6 +1,6 @@
 # The Fall Of Mankind Wake
 
-Finnegans Wake is John 1:1 climing of the Tower of Babel, confrontation with the clergy rituals and teachings.
+Finnegans Wake is John 1:1 climbing of the Tower of Babel, confrontation with the clergy rituals and teachings.
 
 The Fall of Mankind, Original Sin, Putting the Blame on Carol.
 
