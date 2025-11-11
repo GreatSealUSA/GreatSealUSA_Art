@@ -2,7 +2,7 @@
 
 As of the first episode, episode one.
 
-I still have a line of interpretation that humans weaponized the virus in the lab. The bar television emphasized military base lockdown.
+I still have a line of interpretation that humans weaponized the virus in the lab. The bar television emphasized military base lock-down.
 
 The RNA sequence, the 78 second message, is pretty damn short.
 
@@ -18,8 +18,10 @@ Maybe the outer-space RNA was only an essential key to inject changes (like a [s
 
 4. Human to human Spreading via kissing at the vending machine / STD / Herpes oral. Creating the first peer to peer hivemind.
 
-5. Human to human... Donut spread oral / like hepatitus and herpies spread via food
+5. Human to human... Donut spread oral / like hepatitis and herpes spread via food
 
-6. Hive group was boxing it up for export via petri dishes.
+6. Hive group was boxing it up for export via Petri dishes.
 
 7. The hive group weaponized it further to air drop / chemtrails on Finnegans Wake release Public House day.
+
+
