@@ -20,3 +20,17 @@ This sentence implies *the series*, beyond first two episodes at the time of thi
 Pluribus seems to suggest that progress that moves too fast will ultimately break things"
 
 I mean clearly war is broken, military is broken, travel rules are broken. A woman jumps on an airplane from Tunisia to USA without any regulations / red tape. This has huge implications for people being able to come together who were previously blocked by nations in conflict. Also note that the 5 English speakers who meet have family go with them, so there is still a sense of in-person companionship from hive mind members.
+
+&nbsp;
+
+&nbsp;
+
+https://mashable.com/article/pluribus-review-apple-tv
+
+"In the first seven episodes sent to critics for review, Pluribus never quite hits the white-knuckle highs of its riveting premiere. However, in the wake of the sheer "What! What! What!" of the first episode, you'll find fascinating questions about the ethics of the world's newfound bliss."
+
+"Carol's commitment to reversing the virus"
+
+"Carol journeys around the world in search of answers."
+
+"Gilligan's epic vision of a frightening future"
