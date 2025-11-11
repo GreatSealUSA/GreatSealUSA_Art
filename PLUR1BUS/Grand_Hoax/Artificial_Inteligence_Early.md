@@ -32,4 +32,4 @@ Personally I don't agree with that comment
 
 4. I do agree that it is more metaphor than trying to create a realistic model. There is magical technology.
 
-My biggest thing is we don't know enough. Are there other flaws in the hive mind, such as no longer allowing births or killing off people.
+My biggest thing is we don't know enough. Are there other flaws in the hive mind, such as no longer allowing births or killing off people. Previews show Carol in an empty grocery store. Do people still eat food for pleasure, or only vegitarian to staisfy the nutrional needs?
