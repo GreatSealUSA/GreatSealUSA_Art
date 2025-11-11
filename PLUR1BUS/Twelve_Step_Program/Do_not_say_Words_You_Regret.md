@@ -2,7 +2,7 @@
 
 Do not become emotinally attacking, Carol. Helen hears it and the hive mind crashes
 
-Great Seal pyramid of Africa - 13th stepe Eye in the sky.
+Great Seal pyramid of Africa - 13th step Eye in the sky. Join us, Carol.
 
 The eye, the singer, says to audience (hive mind):
 
