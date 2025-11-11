@@ -26,3 +26,8 @@ The RNA was built without that secret sauce.
 # Finnegans Wake metaphors
 
 Finnegans Wake as a book is a bitter acid, a bitter LSD.
+
+"Insects that go through a pupal stage are holometabolous: they go through four distinct stages in their life cycle"
+
+Finnegans Wake is about four stages of humanity / Earth, iterations of 4. https://en.wikipedia.org/wiki/Fenian_Cycle
+
