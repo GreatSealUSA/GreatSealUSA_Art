@@ -7,3 +7,7 @@ There are not global peace ideals in flag waving behaviors.
 The Great Seal of the United States of America makes a pyramid *out of Africa* a global symbol. There is no Washington D. C. monument pyramid.
 
 The intended meaning is the Nile river pyramids.
+
+&nbsp;
+
+Here in USA, people wave the Confederate flag as a protest against the United States of America *unity*.
