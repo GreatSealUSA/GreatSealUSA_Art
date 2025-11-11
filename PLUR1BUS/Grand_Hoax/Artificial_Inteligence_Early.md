@@ -26,8 +26,10 @@ Personally I don't agree with that comment
 
 1. People shrugged off COVID-19 the first 6 months in USA, when we DID NOT YET KNOW it was not very deadly. It could have been far more deadly, but people were not given the choice - it was spread agressively by people who put put freedom above all else. People who wouldn't even wear a mask and used their freedom to invent wild anti-mask ideas (like you can't breath).
 
-2. Earth does not ask for conssent when smashing rocks into Earth, when earthquakes happen, when land-mine virus are sitting there ready to be triggered. Major disease outbreaks are human history! These are not hypothetical, that's what shaped humanity, it's the very building blocks of our planet Earth. Carol does not view this as nature, she is viewing it like a government - as she flies around without need for passport and visa or even money.
+2. USA population has shrugged off health care cost crisis for decades. Housing price crisis since yar 2004. Only thing people seem to get upset about is gasoline prices in USA over the decades. Rising health care cost of $200 a month pepole ignore in favor of $50 a month savings ingasolute. It isn't rational. 
 
-3. I do agree that it is more metaphor than trying to create a realistic model. There is magical technology.
+3. Earth does not ask for conssent when smashing rocks into Earth, when earthquakes happen, when land-mine virus are sitting there ready to be triggered. Major disease outbreaks are human history! These are not hypothetical, that's what shaped humanity, it's the very building blocks of our planet Earth. Carol does not view this as nature, she is viewing it like a government - as she flies around without need for passport and visa or even money.
+
+4. I do agree that it is more metaphor than trying to create a realistic model. There is magical technology.
 
 My biggest thing is we don't know enough. Are there other flaws in the hive mind, such as no longer allowing births or killing off people.
