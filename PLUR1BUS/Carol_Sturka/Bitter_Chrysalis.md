@@ -8,3 +8,16 @@ August 16, 2019. "I thoroughly approve of both stories. They’re fun, original,
 "the transformation from egg to caterpillar to chrysalis and, finally, adult"    
 
 Sounds like Portrait / Stephen Hero?
+
+&nbsp;
+
+# Helen Published the Book
+
+From what I gather, only two people in the world had read the "Work In Progress" (Fin Wake), but now that Helen joined the hive mind and had read the book - the book is now published world wide in the hive mind knowledge / treek of knowledge. 
+
+That could be key.. the contents of that previously unpupblished book. In "Three Body Problem" that was the wall facers, they could not read minds. And "we can not read minds" (Carol's mind) has been emphasized several times (invoking science fiction "Three Body Problem" concept).
+
+The polishing ideas that Carol has in her mind that are only in one place. 
+
+The RNA was built without that secret sauce.
+
