@@ -1,4 +1,4 @@
-# Artificail Intelligence Early
+# Artificial Intelligence Early
 
 This video makes the case that the fragility is evidence of it being artificial intelligence. Early theory based on only first 2 episodes.
 
