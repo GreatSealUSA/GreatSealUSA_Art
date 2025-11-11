@@ -12,3 +12,4 @@ The Eagle is pointing at diplomacy. Carol has turned off recording devices and p
 
 "The future of humanity is in our hands. As scary as that sounds, it is. It is up to us to put the world right. Why? Why save the world"
 
+Carol is on the right side of the President seal. The Eagle points to the right (to Carol).
