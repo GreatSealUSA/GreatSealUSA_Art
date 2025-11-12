@@ -5,11 +5,11 @@
 
 Helen says she tried to read Finnegans Wake in graduate school. Helen then tells Carol: if you make just *one person happy* 
 
-1. Helen: "It's probably great"
+1. Helen: "It's probably great. I don't know."
 
-2. Helen: "It made me *miserable* trying to get through it"
+2. Helen: "All I know is it made me *miserable* trying to get through it."
 
-3. Helen: "I figure... if you make even *one person* happy, maybe that is not art"
+3. Helen: "I figure... if you make even *one person* happy, maybe that's not art."
 
 &nbsp;
 
