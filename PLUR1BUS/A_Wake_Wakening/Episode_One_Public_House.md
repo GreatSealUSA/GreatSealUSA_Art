@@ -12,7 +12,7 @@ The draft of the unfinished Bitter book was published to the world wide web / hi
 
 &nbsp;
 
-Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2.
+Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2. A very dramatic point is made of the thought invovled, *out of Africa* special delivery.
 
 "Villagers - You Lucky One (Official Video)"      
 https://www.youtube.com/watch?v=1oqOrI8yK-4
