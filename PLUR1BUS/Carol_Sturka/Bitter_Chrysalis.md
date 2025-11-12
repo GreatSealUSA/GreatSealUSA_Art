@@ -44,3 +44,5 @@ Standing outside the *public house* before her *fall*, Helen was asking Carol if
 Does Carol's fandom know she is married to a  woman, she is a lesbian?
 
 The title of Carol's unpublished book could be interpreted as "my bitter coming out" (of the closet), as in sexual confrontation with USA society.
+
+( Is the sex crime of our author in Phoenix Park (HCE) more than the car booze device? Is it changing her character, selling out her truth toa void confronting USA society, and now society is "Hello Carol!" confronting her? )
