@@ -27,3 +27,13 @@ The mystery has been reduced to a set of concepts and ideas, and emphasizing the
 MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past the Christian faith, past the Christian doctrine, past the Christian Church —
 
 CAMPBELL: You have to go past the imagined image of Jesus. Such an image of one’s god becomes a **final obstruction, one’s ultimate barrier. You hold on to your own ideology, your own little manner of thinking**, and when a larger experience of God approaches, an experience **greater than you are prepared to receive**, you take flight from it by clinging to the image in your mind. This is known as preserving your faith.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## Beyond GitHub 
+
+https://bsky.app/profile/greatsealusa.bsky.social/post/3m5hcns6n6c2l      
