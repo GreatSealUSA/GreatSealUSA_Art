@@ -28,6 +28,6 @@ Lyrics:
 
 ...
 
-" riverrun, past Eve and Adam's, from swerve of shore to bend    
+[" riverrun, past Eve and Adam's, from swerve of shore to bend    
 of bay, brings us by a commodius vicus of recirculation back to     
-Howth Castle and Environs."  
+Howth Castle and Environs."](https://www.finwake.com/ch01/ch01.htm)  
