@@ -13,10 +13,23 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m5cvwzhphs2i
 
 &nbsp;
 
+## Carol: my image of you Pirate Lady!
+
+Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2.
+
+"Villagers - You Lucky One (Official Video)"   
+https://www.youtube.com/watch?v=1oqOrI8yK-4
+
+Take me back to *the start*, were you always aware?    
+Am I getting the gist, am I getting warm?   
+
+&nbsp;
+
 ## Final Track, prep for coming up Episode 3
 
 &nbsp;
 
+"One", Aimee Mann cover    
 https://www.youtube.com/watch?v=Yf3LojyK7PA
 
 &nbsp;
