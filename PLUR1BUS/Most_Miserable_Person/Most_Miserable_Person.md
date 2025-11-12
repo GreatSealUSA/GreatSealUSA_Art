@@ -17,4 +17,5 @@ The tagline for the show is **"the most miserable person on Earth"**...
 
 Is the entire hive mind trying to make one person, *Carol*, happy? Or is Carol trying to make one person, Helen, happy?
 
+All the marketing for the show is petri dish *smile faces*, trying to not make just one person happy, but every sigle person happy.
 
