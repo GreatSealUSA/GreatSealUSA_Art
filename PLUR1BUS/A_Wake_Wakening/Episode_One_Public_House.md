@@ -38,4 +38,5 @@ Howth Castle and Environs."](https://www.finwake.com/ch01/ch01.htm)
 
 # High Mind / Hive Mind
 
-Is Joyce making a point that booze is kind of self-administered temporary virus? The inhibition people can sometimes have when high / drunk? Like Carol, Joyce was a heavy boozer, and drinking is part of the story of Waking / Woke.
+Is Joyce making a point (among many other points) that booze is kind of self-administered temporary virus? The inhibition people can sometimes have when high / drunk? Like Carol, Joyce was a heavy boozer, and drinking is part of the story of Waking / Woke. How meth changes minds, how money changes minds, how fiction books change minds..
+
