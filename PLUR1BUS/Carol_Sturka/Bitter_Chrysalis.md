@@ -31,3 +31,16 @@ Finnegans Wake as a book is a bitter acid, a bitter LSD.
 
 Finnegans Wake is about four stages of humanity / Earth, iterations of 4. https://en.wikipedia.org/wiki/Fenian_Cycle
 
+&nbsp;
+
+&nbsp;
+
+# Coming Out of the Closet
+
+One possible read is that Helen was telling Carol to level up. She dropped Finnegans Wake on the table and encouraged Carol to stop being ashamed of her trashy romance pirate story and take serious the 4.5 years she had put into her unpublished work ("Work In Progress" was the original 1924 name for Finnegans Wake)
+
+Standing outside the *public house* before her *fall*, Helen was asking Carol if she was ready to climb higher (come out of her pupa) and make a public statement that a woman was the original inspiration for the character.
+
+Does Carol's fandom know she is married to a  woman, she is a lesbian?
+
+The title of Carol's unpublished book could be interpreted as "my bitter coming out" (of the closet), as in sexual confrontation with USA society.
