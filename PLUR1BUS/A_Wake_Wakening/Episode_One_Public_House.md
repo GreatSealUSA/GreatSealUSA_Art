@@ -12,9 +12,22 @@ The draft of the unfinished Bitter book was published to the world wide web / hi
 
 &nbsp;
 
-Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2. A very dramatic point is made of the thought invovled, *out of Africa* special delivery.
+## You Lucky One
+
+Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2. A very dramatic point is made of the thought invovled, *out of Africa* special delivery. The hive mind has power and resources.  🎵 "I could rip you to shreds, but I'm much too nice" 🎵
 
 "Villagers - You Lucky One (Official Video)"      
 https://www.youtube.com/watch?v=1oqOrI8yK-4
 
-Lyrics: "Take me back to the start, were you always aware?", "Am I getting the gist, am I getting warm?"
+Lyrics:    
+🎵 "Take me back to the start, were you always aware?", "Am I getting the gist, am I getting warm?"  🎵
+
+...
+
+🎵 You've been off the grid, cutting your teeth... supposedly composing your masterpiece. If you give good copy then I'll cut you some slack... But you better remember when it all comes back! And you're lying on the corner of Merchant's Quay, telling the world how it's meant to be? 🎵
+
+...
+
+" riverrun, past Eve and Adam's, from swerve of shore to bend    
+of bay, brings us by a commodius vicus of recirculation back to     
+Howth Castle and Environs."  
