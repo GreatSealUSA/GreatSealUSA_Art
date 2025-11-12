@@ -31,3 +31,11 @@ Lyrics:
 [" riverrun, past Eve and Adam's, from swerve of shore to bend    
 of bay, brings us by a commodius vicus of recirculation back to     
 Howth Castle and Environs."](https://www.finwake.com/ch01/ch01.htm)  
+
+&nbsp;
+
+&nbsp;
+
+# High Mind / Hive Mind
+
+Is Joyce making a point that booze is kind of self-administered temporary virus? The inhibition people can sometimes have when high / drunk? Like Carol, Joyce was a heavy boozer, and drinking is part of the story of Waking / Woke.
