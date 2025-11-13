@@ -25,3 +25,16 @@ The Hive Mind is riding the Finnegans Wake Waves / Media Ecology Waves / of the 
 **"Is This It!?"**
 
 Hello, **We** are back after you crashed our minds with your emotional ourbursts - the Hive Mind is taking Calls, Carol!
+
+&nbsp;
+
+### Track 3: So can you tell?
+
+Hive mind, can you tell?   
+Carol, can yuou tell smile from a "Pirate Lady" as Helen?   
+Did they get you to trade Helen for ghosts?    
+Carol is your house a lead role in a cage? Are you performing for the Hive Mind, in your leading role?   
+
+"Wish You Were Here - Pink Floyd (Acoustic cover by Emily Linge)"   
+https://www.youtube.com/watch?v=ncaCLOHd90o
+
