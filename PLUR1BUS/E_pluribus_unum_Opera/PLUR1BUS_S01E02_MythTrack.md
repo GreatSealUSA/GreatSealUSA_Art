@@ -40,6 +40,25 @@ Carol does a lot of moves, the butterfy effect. Even if Carol is in private in h
 
 &nbsp;
 
+### Track 4: Helen is So Happy, She Smiled On Death
+
+&nbsp;
+
+When you are the 13, you can grab women by the pussy or grab Air Force One.
+
+https://www.youtube.com/watch?v=oaZl12Z5P7g
+
+&nbsp;
+
+### Track 5: Boozer DUI Wrecking Ball
+
+https://www.youtube.com/watch?v=My2FRPA3Gf8
+
+Helen gave Carol Finnegans Wake in a "Public House", and started a world war.   
+Carol is starting a world war! A call to arms on Air Force One.
+
+&nbsp;
+
 ## Final Track, prep for coming up Episode 3
 
 &nbsp;
