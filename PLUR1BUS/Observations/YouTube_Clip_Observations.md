@@ -9,3 +9,11 @@ In The Bible, after death, Judgement Day (two of them) shows every secret and si
 But the hive mind also hides the death count from Carol and tries to convince her not to view it like a mass murder and more of a technical malfunction (that they will smooth out later).
 
 Love thy enemy idea too.
+
+# Largest Grooming Game
+
+https://youtu.be/ccLaha2xDtI?t=250
+
+Largest Grooming Game.
+
+That's what Mecca, Quran, Bible, Church, Mosque is doing. HEAVEN / Eden gives you all the forbidden virgins and desires you never had in life. Icluding ending all hunger, war, etc. In Heaven, dead people you wish to see are back alive waiting for you. 
