@@ -1,4 +1,4 @@
-# Track 1: Pepper bacon for breakfast?
+### Track 1: Pepper bacon for breakfast?
 
 Breakfast in America.... 
 
@@ -12,3 +12,16 @@ The outsider man believes in Vegas, everyone is a millionare in USA.
 
 Carol is playing her jokes upon the Hive Mind, against Helen, while there is nothing better to do!
 
+&nbsp;
+
+### Track 2: Hive Mind High Happy on Carol's...
+
+https://www.youtube.com/watch?v=oet5L-gqctk   
+
+Carol to Hive Mind: "Don't you understand, I've told you before! Just get off my case, This isn't Happening. Stop this now!"
+
+The Hive Mind is riding the Finnegans Wake Waves / Media Ecology Waves / of the 13 free thinking surfing the Hive Mind World / Earth / Pale Blue Dot.
+
+**"Is This It!?"**
+
+Hello, **We** are back after you crashed our minds with your emotional ourbursts - the Hive Mind is taking Calls, Carol!
