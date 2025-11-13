@@ -53,3 +53,13 @@ Driving in my car throught the *Finnegans ruins* of New Mexico.
 
 "Steely Dan - King Of The World"    
 https://www.youtube.com/watch?v=XOGWbaOOeCM
+
+&nbsp;
+
+### Track 5: Helen, On a Journey - Carol
+
+To Helen: I'm on a Journey - Carol
+
+https://www.youtube.com/watch?v=uZsY4S4ckMU
+
+Alas, Carol doesn't see Helen is on a journey too!
