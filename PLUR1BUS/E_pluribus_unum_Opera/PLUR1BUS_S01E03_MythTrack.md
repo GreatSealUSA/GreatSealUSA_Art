@@ -68,7 +68,7 @@ Alas, Carol doesn't see Helen is on a journey too!
 
 ### Track 6: Recognize the pain I'm in
 
-Carl's unpublished book **Bitter ...**
+Carol's unpublished book **Bitter ...**
 
 https://youtu.be/1lyu1KKwC74?t=25
 
@@ -86,7 +86,7 @@ Carol telling the Hive Mind, open Sprouts, Walk This Way...
 
 https://www.youtube.com/watch?v=4B_UYYPb-Gk
 
-Carl is teaching the baby hive mind, how to be a maverick. 
+Carol is teaching the baby hive mind, how to be a maverick. 
 
 Carol is adding bitter spices to the hive mind gumbo, a woman telling her fiction Pirate Lady to be like a pirate!
 
