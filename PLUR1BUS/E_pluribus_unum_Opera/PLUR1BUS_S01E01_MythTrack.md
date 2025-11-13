@@ -65,3 +65,29 @@ Helen just wrecked the world with Finnegans Wake in a Public House. Carol has lo
 "Enter Shikari - the pressure’s on."     
 Taken from Enter Shikari’s new album ‘Nothing Is True & Everything Is Possible’ - April 16, 2020.    
 https://www.youtube.com/watch?v=eKrcd9o03SE
+
+&nbsp;
+
+### Track 5: Carol and Helen placed thier bets
+
+"10cc - The Things We Do For Love"   
+https://www.youtube.com/watch?v=P0rf3_viTxk
+
+Five years... they placed their bet on egoisma isolation. On feeding society trashy romance novels. Keeping the "coming out of the closet" of book character gender...
+
+Now Carol feels like a part of her is dead (Helen), you tinnk the Hive Mind broke Carol from you, but then (next episode) she say that Carol is still here, and this was the greatest day for Humanity.
+
+&nbsp;
+
+### Track 6: Hive Mind Thoughts And Dreams Scattered
+
+"Daryl Hall & John Oates - You Make My Dreams (Official HD Video)"    
+https://www.youtube.com/watch?v=EErSKhC0CZs
+
+Where were you, Carol? You make the Hive Mind's Deepest Dreams come through.
+
+On a night... Finnegans Wake dreams of night have started for Carol at the Public House.
+
+And Helen isn't the way Carol found her. When you marry, you do not know the future, you do not know if war will break out in Ukraine in year 2012 at your wedding... you have made an *eternal pledge* of all billions of years of the cosmos.. and you DO NOT KNOW if being Jewish in Germany in 1935 changes your future of your marriage.
+
+Helen  is waiting for Carol to polish her book, the bitter birth of editing and refining the "Work in Progress" unpublished book.
