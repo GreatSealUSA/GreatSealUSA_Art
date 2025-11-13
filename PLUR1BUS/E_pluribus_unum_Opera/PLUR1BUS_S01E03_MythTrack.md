@@ -76,3 +76,13 @@ Carol is taking the hive mind down the *one bitter road she has known*....
 
 There is nobody singing to Carol now...
 
+&nbsp;
+
+### Track 7: Turn it DOWN, Carol!
+
+Carol telling the Hive Mind, open Sprouts, Walk This Way...
+
+https://www.youtube.com/watch?v=4B_UYYPb-Gk
+
+Carl is teaching the baby hive mind, how to be a maverick. 
+
