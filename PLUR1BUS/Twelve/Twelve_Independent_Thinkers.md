@@ -8,3 +8,10 @@ London / UK English as first language excluded, breaking with "Old World Order" 
 
 Pyramid on Great Seal is "Out Of Africa"
 
+&nbsp;
+
+1. Last super, 12 apostles and bonus POTUS Jesus (number 13)
+
+2.  "over on the eagle’s head are thirteen stars arranged in the form of a Star of David." , "This used to be Solomon’s Seal."
+
+3. "You have the twelve signs of the zodiac and the sun."
