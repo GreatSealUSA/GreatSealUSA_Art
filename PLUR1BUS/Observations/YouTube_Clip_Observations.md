@@ -21,3 +21,9 @@ https://youtu.be/ccLaha2xDtI?t=250
 Largest Grooming Game.
 
 That's what Mecca, Quran, Bible, Church, Mosque is doing. HEAVEN / Eden gives you all the forbidden virgins and desires you never had in life. Icluding ending all hunger, war, etc. In Heaven, dead people you wish to see are back alive waiting for you. 
+
+https://youtu.be/ccLaha2xDtI?t=345
+
+Writing to mind. Glitch is part of the code, showing imperfection. Billionaires exploitng. Cambridge Analytica.
+
+Monomyth, Page 581 Finneagans Wake. Oh no, Joyce saw, joyce saw! The reader of Finnegans Wake sees!
