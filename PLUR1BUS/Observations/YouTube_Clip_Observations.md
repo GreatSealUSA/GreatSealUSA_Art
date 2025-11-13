@@ -26,4 +26,4 @@ https://youtu.be/ccLaha2xDtI?t=345
 
 Writing to mind. Glitch is part of the code, showing imperfection. Billionaires exploitng. Cambridge Analytica.
 
-Monomyth, Page 581 Finneagans Wake. Oh no, Joyce saw, joyce saw! The reader of Finnegans Wake sees!
+Monomyth, Page 581 Finnegans Wake. Oh no, Joyce saw, Joyce saw in year 1924! The reader of Finnegans Wake sees the media clergy! 
