@@ -10,3 +10,8 @@ In a hive mind, all that disappears. People all tune in at the same time... The 
 
 In IP multicast, you can subscribe and unsubscribe from invidual channels. If you are a medical doctor, tune into that portion of the multicast channel.
 
+&nbsp;
+
+## Data Bus
+
+Data bus / data network in show title.
