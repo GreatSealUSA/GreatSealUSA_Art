@@ -63,3 +63,16 @@ To Helen: I'm on a Journey - Carol
 https://www.youtube.com/watch?v=uZsY4S4ckMU
 
 Alas, Carol doesn't see Helen is on a journey too!
+
+&nbsp;
+
+### Track 6: Recognize the pain I'm in
+
+Carl's unpublished book **Bitter ...**
+
+https://youtu.be/1lyu1KKwC74?t=25
+
+Carol is taking the hive mind down the *one bitter road she has known*....
+
+There is nobody singing to Carol now...
+
