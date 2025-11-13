@@ -34,7 +34,9 @@ Hive mind, can you tell?
 Carol, can yuou tell smile from a "Pirate Lady" as Helen?   
 Did they get you to trade Helen for ghosts?    
 Carol is your house a lead role in a cage? Are you performing for the Hive Mind, in your leading role?   
+What did you find in your 4.5 unpublished book that wasn't already waiting to be found in Finnegans Wake? The *same old* nightmare fears of Humanity.        
 
 "Wish You Were Here - Pink Floyd (Acoustic cover by Emily Linge)"   
 https://www.youtube.com/watch?v=ncaCLOHd90o
 
+&nbsp;
