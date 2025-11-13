@@ -22,4 +22,17 @@ https://www.youtube.com/watch?v=kFrffEktluo
 
 PaleyFest New York 2025 kicked off on November 7 with the highly anticipated Apple TV series Pluribus.
 
-"They are not robots, they are not aliens." https://youtu.be/kFrffEktluo?t=1440
+"They are not robots, they are not aliens." https://youtu.be/kFrffEktluo?t=1440    
+"Idea from any quarter" - quoting Campbell / same idea. https://youtu.be/kFrffEktluo?t=1522     
+Flatland references. The mass mind / mass man joined. Gotta leave it to the audience.    
+"A piece of the same individual" "If you look closely, there is more individuality than you think"   
+Tricky as hell, though as hell.   
+"mind meld"      
+You walk the way you walk.   
+Does not want to tell audience meaning. https://youtu.be/kFrffEktluo?t=1845    
+Zombie movies, you do not want to become zombie. Deliberate intelligent.   
+Writer reluctantly tasked with saving the world.  https://youtu.be/kFrffEktluo?t=2714     
+No one less equipped to save the world than a writer.   
+Carol's name is from Twilight Zone.  "3rd from the sun" https://youtu.be/kFrffEktluo?t=2894    
+While the Tatanic crashes... https://youtu.be/kFrffEktluo?t=3083    
+
