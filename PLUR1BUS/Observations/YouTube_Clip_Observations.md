@@ -1,0 +1,11 @@
+# Outing of Carol
+
+https://youtu.be/ccLaha2xDtI?t=220
+
+the title of Carol's unpublished book means "Bitter coming out of the closet"
+
+In The Bible, after death, Judgement Day (two of them) shows every secret and sin. That's a core Romans 11:32 Sin Bravely / source of sin issue of James Joyce's books.
+
+But the hive mind also hides the death count from Carol and tries to convince her not to view it like a mass murder and more of a technical malfunction (that they will smooth out later).
+
+Love thy enemy idea too.
