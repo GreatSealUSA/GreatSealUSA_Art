@@ -56,3 +56,10 @@ https://www.youtube.com/watch?v=_fzJGxpcenc
 
 8. Some day in the future episodes, WE WILL FIND, These Are The Best Of Times, Carolis NOW living in the REAL WORLD of planet Earth that birhed her.
 
+&nbsp;
+
+### Track 4: Helen's Fall
+
+Helen just wrecked the world with Finnegans Wake in a Public House.
+
+https://www.youtube.com/watch?v=eKrcd9o03SE
