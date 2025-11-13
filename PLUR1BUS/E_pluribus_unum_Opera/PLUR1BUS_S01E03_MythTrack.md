@@ -41,13 +41,15 @@ https://www.youtube.com/watch?v=ncaCLOHd90o
 
 &nbsp;
 
-### Track 4: Hello World from Srouts
+### Track 4: Hello World from Sprouts
 
 Countdown ;)
 
 Countdown to Ecstasy. Can you hear Carol on her old telephone?
 
 No Sprouts in the Promised World growing, the shelf is empty.
+
+Driving in my car throught the *Finnegans ruins* of New Mexico.
 
 "Steely Dan - King Of The World"    
 https://www.youtube.com/watch?v=XOGWbaOOeCM
