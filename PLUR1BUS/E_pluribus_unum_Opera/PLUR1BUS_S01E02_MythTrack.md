@@ -13,7 +13,7 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m5cvwzhphs2i
 
 &nbsp;
 
-## Carol: my image of you Pirate Lady!
+## Track 2, Carol: my image of you Pirate Lady!
 
 Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2.
 
@@ -22,6 +22,21 @@ https://www.youtube.com/watch?v=1oqOrI8yK-4
 
 Take me back to *the start*, were you always aware?    
 Am I getting the gist, am I getting warm?   
+
+&nbsp;
+
+&nbsp;
+
+# Track 3 - the Hive Mind sees 13 every moves
+
+"Daryl Hall & John Oates - Private Eyes (Official HD Video)"   
+https://www.youtube.com/watch?v=JsntlJZ9h1U
+
+Helen is a spy, but on Carol's side, you see!
+
+Carol don't blow your lines, you blow out the hive mind, you blow the minds of Earth.
+
+Carol does a lot of moves, the butterfy effect. Even if Carol is in private in her house or Air Force One, the billions of people on earth can sense the butterfly effect.
 
 &nbsp;
 
@@ -41,17 +56,4 @@ JOSEPH CAMPBELL: Darth Vader has not developed his own humanity. He’s a robot.
 BILL MOYERS: By doing what?
 
 CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, **rejecting the system’s impersonal claims** upon you.
-
-&nbsp;
-
-# Track 3 - the Hive Mind sees 13 every moves
-
-"Daryl Hall & John Oates - Private Eyes (Official HD Video)"   
-https://www.youtube.com/watch?v=JsntlJZ9h1U
-
-Helen is a spy, but on Carol's side, you see!
-
-Carol don't blow your lines, you blow out the hive mind, you blow the minds of Earth.
-
-Carol does a lot of moves, the butterfy effect. Even if Carol is in private in her house or Air Force One, the billions of people on earth can sense the butterfly effect.
 
