@@ -6,3 +6,4 @@ Carol controls the mixing board.
 
 2. Commanding Sprouts grocery store to open
 
+These metaphors of polshing and editing her previously unpublished *Bitter* book.
