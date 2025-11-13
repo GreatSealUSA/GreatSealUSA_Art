@@ -86,6 +86,8 @@ https://www.youtube.com/watch?v=EErSKhC0CZs
 
 Where were you, Carol? You make the Hive Mind's Deepest Dreams come through.
 
+Thoughts and dreams scattered to the 13 free thinkers.
+
 On a night... Finnegans Wake dreams of night have started for Carol at the Public House.
 
 And Helen isn't the way Carol found her. When you marry, you do not know the future, you do not know if war will break out in Ukraine in year 2012 at your wedding... you have made an *eternal pledge* of all billions of years of the cosmos.. and you DO NOT KNOW if being Jewish in Germany in 1935 changes your future of your marriage.
