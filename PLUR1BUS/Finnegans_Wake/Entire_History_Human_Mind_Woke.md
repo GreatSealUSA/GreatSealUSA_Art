@@ -6,3 +6,4 @@
 “Listening to the simultaneous messages of Dublin, James Joyce released the greatest flood of oral linguistic music that was ever manipulated into art.”
 — Marshall McLuhan
 
+Wiht all the routing conflicts, merge conflicts, timing conflicts, jitter sorted out... hummanity.
