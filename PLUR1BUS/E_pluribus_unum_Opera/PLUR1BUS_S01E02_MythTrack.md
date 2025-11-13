@@ -59,6 +59,19 @@ Carol is starting a world war! A call to arms on Air Force One.
 
 &nbsp;
 
+### Track 6: Carol can't hear a word Hive Mind Helen says
+
+"David Guetta - Titanium ft. Sia (Official Video)"   
+https://www.youtube.com/watch?v=JRfuAukYTKg
+
+Hive mind shot down, but it gets up.   
+Carol shot down, but she gets up.   
+We are at war!   
+
+Carol, it is you who has Further To Fall of mankind, Finnegans Wake. Helen already Fell.
+
+&nbsp;
+
 ## Final Track, prep for coming up Episode 3
 
 &nbsp;
