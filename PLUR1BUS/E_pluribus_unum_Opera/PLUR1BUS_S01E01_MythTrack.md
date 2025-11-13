@@ -60,6 +60,8 @@ https://www.youtube.com/watch?v=_fzJGxpcenc
 
 ### Track 4: Helen's Fall
 
-Helen just wrecked the world with Finnegans Wake in a Public House.
+Helen just wrecked the world with Finnegans Wake in a Public House. Carol has lost her partner, this *isn't waht Carol planned*, Carol throws herself into the day, into society.
 
+"Enter Shikari - the pressure’s on."     
+Taken from Enter Shikari’s new album ‘Nothing Is True & Everything Is Possible’ - April 16, 2020.    
 https://www.youtube.com/watch?v=eKrcd9o03SE
