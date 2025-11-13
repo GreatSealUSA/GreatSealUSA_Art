@@ -22,4 +22,4 @@ https://www.youtube.com/watch?v=kFrffEktluo
 
 PaleyFest New York 2025 kicked off on November 7 with the highly anticipated Apple TV series Pluribus.
 
-
+"They are not robots, they are not aliens." https://youtu.be/kFrffEktluo?t=1440
