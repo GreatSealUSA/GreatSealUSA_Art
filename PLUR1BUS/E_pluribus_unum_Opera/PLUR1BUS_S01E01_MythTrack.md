@@ -105,7 +105,18 @@ Cause was never the reason for the RNA message.
 
 &nbsp;
 
-### Track 8: Hive Mind Thoughts And Dreams Scattered
+### Track 8: RNA in a bottle, Finnegans Wake in a Public House
+
+"The Police - Message In A Bottle (Official Music Video)"    
+https://www.youtube.com/watch?v=MbXWrmQW-OE
+
+Finnegans Wake message in a booze "Public House" bottle, RNA message in a bottle.
+
+Carol woke, Wake, Finnegans.
+
+&nbsp;
+
+### Track 9: Hive Mind Thoughts And Dreams Scattered
 
 "Daryl Hall & John Oates - You Make My Dreams (Official HD Video)"    
 https://www.youtube.com/watch?v=EErSKhC0CZs
