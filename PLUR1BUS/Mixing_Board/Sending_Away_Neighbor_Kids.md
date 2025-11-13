@@ -1,4 +1,4 @@
-# Sending Away the Neigghbor Kids
+# Sending Away the Neighbor Kids
 
 Carol controls the mixing board.
 
