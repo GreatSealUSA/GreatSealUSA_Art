@@ -79,7 +79,33 @@ Now Carol feels like a part of her is dead (Helen), you tinnk the Hive Mind brok
 
 &nbsp;
 
-### Track 6: Hive Mind Thoughts And Dreams Scattered
+### Track 6: Some day Helen and Carol will pay
+
+"Foreigner - Cold As Ice (Official Music Video)"    
+https://www.youtube.com/watch?v=ySb1f9zWJkQ
+
+The day has come, Helen studied Finnegans Wake, but did not get the Romans 11:32 punchline of "1 John 4:20" ... and someday Carol will pay... for hiding the gender reveal of her character.
+
+Carol thinks the Hive Mind is as cold as I.C.E. and, yes Carol is confident *she knows*. Aliens took her Helen and her future plans / programs.
+
+"You bet it is—and if he doesn’t recognize it, it may turn him into Darth Vader. If the person insists on a certain program, and doesn’t listen to the demands of his own heart, he’s going to risk a schizophrenic crackup. Such a person has put himself off center. He has aligned himself with a program for life, and it’s not the one the body’s interested in at all. The world is full of people who have stopped listening to themselves or have listened only to their neighbors to learn what they ought to do, how they ought to behave, and what the values are that they should be living for." - Power of Myth, 1988
+
+&nbsp;
+
+### Track 7: Pirate Lady from Oz
+
+"America - Tin Man (Official Audio)"    
+https://www.youtube.com/watch?v=zGl4PP9xaaQ
+
+Carol already *had* what Oz gave, a female Pirate.
+
+"Sometimes late, when things are real / And people share the gift of gab between themselves" afer a book tour... the unpublished book *Work In Progress* topic comes up, and Finnegans Wake is invoked in a Public House.
+
+Cause was never the reason for the RNA message. 
+
+&nbsp;
+
+### Track 8: Hive Mind Thoughts And Dreams Scattered
 
 "Daryl Hall & John Oates - You Make My Dreams (Official HD Video)"    
 https://www.youtube.com/watch?v=EErSKhC0CZs
