@@ -19,7 +19,7 @@ He / She / Pirate Lady / Pirate Man
 
 &nbsp;
 
-### Track 2 Understanding Carol
+### Track 2: Understanding Carol
 
 Carol hates her audience, mocks her audience, holds back on her "Bitter coming out of the closet" story she labored on for 4.5 years - keeping truth from her audience.
 
@@ -35,7 +35,7 @@ Understanding Carol: When you hate the whole world, ONE person's love you prize.
 
 &nbsp;
 
-### Track 3 Two pirates sailing away
+### Track 3: Two pirates sailing away
 
 "Styx - The Best Of Times (Official Video)"    
 https://www.youtube.com/watch?v=_fzJGxpcenc
@@ -48,9 +48,11 @@ https://www.youtube.com/watch?v=_fzJGxpcenc
 
 4. It is REALLY only a world for two, fuck the whole humanity.
 
-5. Carol and Hellen's memories are all that she has to last a lifetime.
+5. The headlines Read on the bar TV, Carol wishes paradise would bring back, her ego bubble / filter bubble. Helen is always around Carol's mind, the hive mind is always around.
 
-6. Carl takes *any risk* to tie back the hands of time. boozing, taking cars, racing to the hospital. 
+6. Carol and Hellen's memories are all that she has to last a lifetime.
 
-7. Some day in the future episodes, WE WILL FIND, These Are The Best Of Times, Carolis NOW living in the REAL WORLD of planet Earth that birhed her.
+7. Carl takes *any risk* to tie back the hands of time. boozing, taking cars, racing to the hospital. 
+
+8. Some day in the future episodes, WE WILL FIND, These Are The Best Of Times, Carolis NOW living in the REAL WORLD of planet Earth that birhed her.
 
