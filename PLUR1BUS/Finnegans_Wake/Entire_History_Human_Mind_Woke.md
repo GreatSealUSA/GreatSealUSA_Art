@@ -7,3 +7,6 @@
 — Marshall McLuhan
 
 Wiht all the routing conflicts, merge conflicts, timing conflicts, jitter sorted out... hummanity.
+
+In Wake book, all of them *included*, all the stuttering included, note hated, not waking war at the Tower of Babel conflicts. Not exterminating the out-groups.
+
