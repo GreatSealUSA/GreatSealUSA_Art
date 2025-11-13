@@ -4,7 +4,7 @@
 
 Reel Enigmas and Theories: [Heavy on Hindu, Finnegans Wake, The Alchamist symbolism](/Imperfect/Agressive_Takeover.md)
 
-Survivors of free thinkers attacking each other. https://youtu.be/3KBVjjIKvSQ?t=254
+Survivors of free thinkers attacking each other. https://youtu.be/3KBVjjIKvSQ?t=254 "Sooth the Thunder in her" https://youtu.be/3KBVjjIKvSQ?t=499
 
 
 &nbsp;
