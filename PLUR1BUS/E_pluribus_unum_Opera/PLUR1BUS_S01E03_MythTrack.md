@@ -80,6 +80,8 @@ There is nobody singing to Carol now...
 
 ### Track 7: Turn it DOWN, Carol!
 
+TURN IT DOWN, CAROL, YOU CRASH THE HIVE MIND!
+
 Carol telling the Hive Mind, open Sprouts, Walk This Way...
 
 https://www.youtube.com/watch?v=4B_UYYPb-Gk
