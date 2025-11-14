@@ -19,7 +19,9 @@ Don't swagger in there with a bazooka or a tank or atom bomb.
 
 &nbsp;
 
-## Carl Sagan's science thinking mindsets
+## [Carl Sagan's science thinking](https://www.youtube.com/watch?v=r3y4Asw9zZA) mindsets
+
+Carl Sagan in 1995: https://www.youtube.com/watch?v=r3y4Asw9zZA
 
 &nbsp;
 
