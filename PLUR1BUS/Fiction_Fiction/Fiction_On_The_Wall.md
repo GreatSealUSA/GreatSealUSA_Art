@@ -35,6 +35,6 @@ She is not  living in the reality. A scientific thinker would examine the loaded
 
 How many of the 900 million who died were terrible people or self-harm gave up?
 
-Carol lives as a fiction author sucking down Golden Girls fiction TV,, living the high life middle class dual income no children booze cruise jet set life. She won't even "come out the Bitter closet" (pupa) to her fandom about her book character. Do her fans know she has a wife? I doubt it.
+Carol lives as a fiction author sucking down Golden Girls fiction TV, living the high life middle class dual income no children booze cruise jet set life. She won't even "come out of the Bitter closet" (pupa) to her fandom about her book character. Do her fans know she has a wife? I doubt it.
 
 None of her secrets are worthy of secrets. What's the DUI story, Carol?
