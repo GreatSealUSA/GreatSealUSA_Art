@@ -124,3 +124,10 @@ She thinks I've been with another woman and that's enough to send her half-insan
 
 3. 1971 The Who - guitar smashers -  (female cover) : https://www.youtube.com/watch?v=VYXQ9VOKPO8
 
+&nbsp;
+
+### Vegas in the context
+
+Last episode ended with Air Force One going to Vegas, but Carol in this episode is not on Air Force One. Yet, her compansion / chaperone is back. And public show previews have depicted Carol driving up to a hotel in Vegas.
+
+In Stephen King's "The Stand" science fiction / mythology story, a virus outbreak on a military base of USA government escapes - like the rat bite.. through breach of the protective lab gear. And a man free will *does ask for a nuclear bomb* weapon.
