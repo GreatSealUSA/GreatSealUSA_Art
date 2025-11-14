@@ -21,7 +21,7 @@ Don't swagger in there with a bazooka or a tank or atom bomb.
 
 &nbsp;
 
-Carol isn't just boozing... she is also taking drugs, Xanex or something.  Her title of her unpublished book is "Bitter". She is not independent, she freaks out when the electric grid goes out and she can't watch electronic media (she is a book author, paper still works). She microwaves her food, she forages at the grocery store. No way could she have dug that grave alone. She drinks her coffee not rustic black,but Oat Milk.
+Carol isn't just boozing... she is also taking drugs, Xanex or something.  Her title of her unpublished book is "Bitter". She is not independent, she freaks out when the electric grid goes out and she can't watch electronic media (she is a book author, paper still works). She microwaves her food, she forages at the grocery store. No way could she have dug that grave alone. She drinks her coffee not rustic black, but Oat Milk.
 
 She promotes piracy, invades a retail book store to reshuffle the deck. But she doesn't like it when society (other minds) reshuffle the deck, pirate minds, plunder minds  She telephones management to complain. She gets in manager faces and makes a scene. 
 
