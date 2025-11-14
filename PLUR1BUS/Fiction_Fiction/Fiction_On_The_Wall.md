@@ -33,7 +33,7 @@ Skeptical of airline pilots, but not loaded weapons. Carol does not think a real
 
 The hive mind even confronts Carol at the front door when handing her the Chekhov's gun that *she is being warned again that free thinkers can harm* and that sarcasm-poisoning / irony-poisoning isn't smart. She invites a stranger into her house... yet she thinks they are out to harm her. EDIT: She lives in New Mexico, the very state of New Mexico where an actor making a fiction story thought a gun was not loaded and killed a person. Bonanza Creek Ranch outside Santa Fe.
 
-She is not  living in the reality. A scientific thinker would examine the loaded gun and analyze it independent of any dialog. You study the evidence, not just take people at their word or make an ass with assumptions. 
+She is not  living in the reality. A scientific thinker would examine the loaded gun and analyze it independent of any dialog. You study the evidence, not just take people at their word (Finnegans Wake BabelOverload](https://youtu.be/WoiJVkdDbOo?t=127),or make an ass with *communications assumptions*. 
 
 How many of the 900 million who died were terrible people or self-harm gave up?
 
