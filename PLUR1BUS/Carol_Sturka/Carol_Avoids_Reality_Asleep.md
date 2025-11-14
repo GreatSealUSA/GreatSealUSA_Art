@@ -22,3 +22,11 @@ Only Real is Real: https://www.youtube.com/watch?v=ZC7v2gFsCz0
 
 The hand grenade is real. Carol has not been living in real life. She did not embrace Helen's journey to artic.
 
+&nbsp;
+
+## Episode 3 song?
+
+Is this the song at the end of episode 3?
+
+https://www.newhavenarts.org/arts-paper/articles/dakhabrakha-brings-kyiv-to-new-haven
+
