@@ -93,7 +93,7 @@ https://youtu.be/dvf3t_FXbW8?t=738
 
 Detached from religion ideals, mass man self awareness as a book author / book publisher.
 
-### Drowing Carol
+### Drowning Carol
 
 https://youtu.be/dvf3t_FXbW8?t=813
 
