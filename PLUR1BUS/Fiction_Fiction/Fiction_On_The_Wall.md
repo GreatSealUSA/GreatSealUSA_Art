@@ -6,7 +6,7 @@ Carol:
 Fiction, Fiction   
 Cache Cache     
 
-Did you ever? Did you ever dream of a suicde bell, and wake up home?   
+Did you ever? Did you ever dream of a suicde pill, and wake up home?   
 No bears in that hive mind?  
 
 "Did you ever lay on ice?" - on a bed of ice?
