@@ -120,7 +120,7 @@ https://youtu.be/dvf3t_FXbW8?t=979
 My Wife... "Gonna buy a tank and an airplane. When she catches up with me won't be no time to explain.
 She thinks I've been with another woman and that's enough to send her half-insane! Gonna buy a fast car, put on my lead boots, and take a long, long drive. I may end up spendin' all my money But I'll still be alive!" 
 
-1. Some tellings of Finnegans Wake have the wife clung Tim Finnegan over the head at the end. https://www.youtube.com/watch?v=YdizZtOddC8
+1. Some tellings of Finnegans Wake have the wife guitar smashes Tim Finnegan over the head at the end. https://www.youtube.com/watch?v=YdizZtOddC8
 
-3. 1971 The Who (female cover) : https://www.youtube.com/watch?v=VYXQ9VOKPO8
+3. 1971 The Who - guitar smashers -  (female cover) : https://www.youtube.com/watch?v=VYXQ9VOKPO8
 
