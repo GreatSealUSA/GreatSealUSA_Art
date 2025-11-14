@@ -13,6 +13,8 @@ No bears in that hive mind?
 
 https://www.youtube.com/watch?v=FvqhJskzj2U
 
+* The title of The Who's song "Cache Cache" is French for "hide-and-seek". The song, which appears on their 1981 album *Face Dances*, uses the term to describe a relationship in which people are hiding things from each other. Face Dances is also a metaphor for the body dances of the hive mind.
+
 Don't swagger in there with a bazooka or a tank or atom bomb.
 
 &nbsp;
