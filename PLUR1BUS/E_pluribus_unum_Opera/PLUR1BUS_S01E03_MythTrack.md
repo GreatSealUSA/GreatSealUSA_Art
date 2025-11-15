@@ -100,3 +100,14 @@ There are ways we have to free the mind. Walter White, Suburb, Carol, Suburb. Su
 
 The Spirit of Radio F.M.media used to be alive. Today's Tom Sawyer is a mean mean woman. https://www.youtube.com/watch?v=EYYdQB0mkEU
 
+&nbsp;
+
+# Track 9: Brick themes
+
+1. Carol and much of the audience thinks the hive mind can't get satire. Like the song "Thick as a brick" part 1 and part 2 song.
+
+2. Ben Folds Five... she's a brick. Drowning the hive mind.
+
+The grenade thorugh window, brick / glass houses.
+
+Carol, author and writer... wife of Helen publisher... Sleeping with the Golden Girls on. https://www.youtube.com/watch?v=G7lpvVf2rCY - late night boozing companion and gun foreplay.
