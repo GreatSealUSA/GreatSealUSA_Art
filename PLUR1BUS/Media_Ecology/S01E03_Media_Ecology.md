@@ -131,3 +131,12 @@ She thinks I've been with another woman and that's enough to send her half-insan
 Last episode ended with Air Force One going to Vegas, but Carol in this episode is not on Air Force One. Yet, her compansion / chaperone is back. And public show previews have depicted Carol driving up to a hotel in Vegas.
 
 In Stephen King's "The Stand" science fiction / mythology story, a virus outbreak on a military base of USA government escapes - like the rat bite.. through breach of the protective lab gear. And a man free will *does ask for a nuclear bomb* weapon.... setting: Vegas. Also in greater context, Fallout TV show season 2 is going to Vegas (and has Elvis references, and Air Force One choose Vegas hotel as a destination for Elvis fame). Mass man / hive mind / media ecology mindsets.
+
+
+### My big picture
+
+Episode 3 and the handing of weapons and power to Carol.  It is a metaphor for wealthy families giving their less-experienced less-understanding children what they ask for. Coaching the children not to use sacasm / satire / cleverness to ask for bad things. Like Walter White developing is high-purity meath consistently cheap and fast. Just because you can go to science school and be a chemist and learn to do what Walter White does, a powerful parent encourages the children not to choose such paths.
+
+Carol can get a hand grenade and blow up her house. The hive mind is telling carol tobe careful. Like a wealthy parent who can afford to replace the wrecked car of a 15 year old child who doesn'treally understand the power they have. 
+
+The comprehension / knolwedge / experience of the hive mind sees the risk in satire and joking and mocking serious matters like playing with handguns as entertainment, "weapons are cool", "fireworks are cool", "celebratory gunfire" that real adults do in the world. Drag racing cars for entertainment and sport.
