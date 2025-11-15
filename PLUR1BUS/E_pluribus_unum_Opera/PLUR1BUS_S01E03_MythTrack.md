@@ -90,7 +90,7 @@ Carol is teaching the baby hive mind, how to be a maverick.
 
 Carol is adding bitter spices to the hive mind gumbo, a woman telling her fiction Pirate Lady to be like a pirate!
 
-&bsp;
+&nbsp;
 
 # Track 8: Carol's house on the Frontier 
 
