@@ -81,6 +81,18 @@ https://www.youtube.com/watch?v=_fzJGxpcenc
 
 &nbsp;
 
+# Track 3.5: Mad World
+
+Two pirates navigating a world where things are not so smooth for everyone.
+
+https://www.youtube.com/watch?v=DHtcliIvnHI
+
+All around Carol are familiar faces... 
+Hide my head, drown my sorrow (boozer Carol)....   
+The dreams in which people are pirates....     
+
+&nbsp;
+
 ### Track 4: Helen's Fall
 
 Helen just wrecked the world with Finnegans Wake in a Public House. Carol has lost her partner, this *isn't what Carol planned*, Carol throws herself into the day, into society. Carol wishes the hive mind and Helen could understand, but Helen already understands The Wake / Bitter Awakening from pupa.  
