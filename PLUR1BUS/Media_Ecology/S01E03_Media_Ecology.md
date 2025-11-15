@@ -140,3 +140,7 @@ Episode 3 and the handing of weapons and power to Carol.  It is a metaphor for w
 Carol can get a hand grenade and blow up her house. The hive mind is telling carol tobe careful. Like a wealthy parent who can afford to replace the wrecked car of a 15 year old child who doesn'treally understand the power they have. 
 
 The comprehension / knolwedge / experience of the hive mind sees the risk in satire and joking and mocking serious matters like playing with handguns as entertainment, "weapons are cool", "fireworks are cool", "celebratory gunfire" that real adults do in the world. Drag racing cars for entertainment and sport.
+
+#### The Oat Milk
+
+Carol still can't connect other ways the hive mind might know about the oat milk.fill level. The maid service that she hires. That point is made pretty loud in the show with Carol speaking out-loud while in an empty house. In New Mexico, is the main a spanish speaker? Carol sure knows how to hate / curse/ insult in Spanish langauge. Dominate others.
