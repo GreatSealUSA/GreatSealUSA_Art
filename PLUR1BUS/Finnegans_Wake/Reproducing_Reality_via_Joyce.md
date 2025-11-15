@@ -7,7 +7,7 @@ Fantasy content / book author / my github authoring / Reddit comment authoring /
 
 Cambridge Analytica media authoring. 
 
-* “In fact, a 2015 study by Youyou, Kosinski and Stillwell showed that, using Facebook likes, a computer model reigned supreme in predicting human behaviour. With ten likes, the model predicted a person’s behaviour more accurately than one of their co-workers. With 150 likes, better than a family member. And with 300 likes, the model knew the person better than their own spouse.” ― Christopher Wylie, Mindf*ck: Inside Cambridge Analytica’s Plot to Break the World. Published year 2019.
+* “In fact, a 2015 study by Youyou, Kosinski and Stillwell showed that, using Facebook likes, a computer model reigned supreme in predicting human behaviour. With ten likes, the model predicted a person’s behaviour more accurately than one of their co-workers. With 150 likes, better than a family member. And with 300 likes, the model knew the person better than their own spouse.” ― Christopher Wylie, Mindf\*ck: Inside Cambridge Analytica’s Plot to Break the World. Published year 2019.
 
 Trump can't read minds, but Trump can read people's attraction to hate / drama / antics / Fox News HDTV. Rupert Murdoch can read attraction to sports mentality of Fox News.
 
