@@ -111,3 +111,13 @@ The Spirit of Radio F.M.media used to be alive. Today's Tom Sawyer is a mean mea
 The grenade thorugh window, brick / glass houses.
 
 Carol, author and writer... wife of Helen publisher... Sleeping with the Golden Girls on. https://www.youtube.com/watch?v=G7lpvVf2rCY - late night boozing companion and gun foreplay.
+
+&nbsp;
+
+# Track 10: Another Virus, Grenade 
+
+Hand grenade handed to humanity mirror....     
+https://www.youtube.com/watch?v=ofqhKV9HsCU
+
+ToDo: list some specific emphasisis / quotes   
+
