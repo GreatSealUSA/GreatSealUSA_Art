@@ -35,6 +35,29 @@ Understanding Carol: When you hate the whole world, ONE person's love you prize.
 
 &nbsp;
 
+### Track 2.5: Sunset end of a tour
+
+https://www.youtube.com/watch?v=W7_M8wh2FYw
+
+The sun went down on another perfect day    
+Busy countin' shadows on the wall    
+The weeds are swallowing up the flower bed   
+Roses in the whiskey jar   
+Blood on the thorns   
+Drink until the taste is gone    
+Cracks in the floorboards are deep   
+From dancin' to the sound of candles burnin' out   
+Heavy from writin' your resignations    
+Licking bitter envelopes   
+Blood on your tongue   
+Drink until the taste is gone   
+Where is your Shangri-La now?   
+
+... Goodbye to the old world. Good as it gets. 
+Zero Hour, is here.  
+
+&nbsp;
+
 ### Track 3: Two pirates sailing away
 
 "Styx - The Best Of Times (Official Video)"    
