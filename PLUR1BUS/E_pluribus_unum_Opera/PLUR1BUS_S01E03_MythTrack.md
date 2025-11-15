@@ -90,3 +90,13 @@ Carol is teaching the baby hive mind, how to be a maverick.
 
 Carol is adding bitter spices to the hive mind gumbo, a woman telling her fiction Pirate Lady to be like a pirate!
 
+&bsp;
+
+# Track 8: Carol's house on the Frontier 
+
+Sprouts store, airport, but her house is up at the end of the frountier / undeveloped land.
+
+There are ways we have to free the mind. Walter White, Suburb, Carol, Suburb. Subdivisions. SubReddits.
+
+The Spirit of Radio F.M.media used to be alive. Today's Tom Sawyer is a mean mean woman. https://www.youtube.com/watch?v=EYYdQB0mkEU
+
