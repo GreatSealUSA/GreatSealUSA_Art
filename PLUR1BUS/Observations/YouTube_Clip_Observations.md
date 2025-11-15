@@ -27,3 +27,17 @@ https://youtu.be/ccLaha2xDtI?t=345
 Writing to mind. Glitch is part of the code, showing imperfection. Billionaires exploitng. Cambridge Analytica.
 
 Monomyth, Page 581 Finnegans Wake. Oh no, Joyce saw, Joyce saw in year 1924! The reader of Finnegans Wake sees the media clergy! 
+
+&nbsp;
+
+# Carol Is Tantrum Risk
+
+https://youtu.be/k8ZcY2G0jwU?t=338
+
+Hive mind self preservation.     
+Walking Emotional EMP.    
+
+https://youtu.be/k8ZcY2G0jwU?t=534
+
+Carol the penetration tester. The hive learning howt to defend against hostile outside worlds.
+
