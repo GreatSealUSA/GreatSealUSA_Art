@@ -12,8 +12,8 @@ English First Speakers, English Language, the hive mind of English - is the them
 
 I don't think Carol is evil, I think Helen spelled it out... that Helen studied Finnegans Wake in graduate school, an academic interpretation of Joyce.
 
-We have the lowest lowest lowest possible interpretation of Quran, Bible, Torah.
+We have the lowest lowest lowest possible interpretation of Quran, Bible, Torah. https://youtu.be/08R1kPdfrHA?t=1914
 
-This guy's videos I have found gets it, he criticizes the academic interpretation of James Joyce very directly.. https://www.youtube.com/watch?v=squl14tighM
+Specific to Joyce... this guy's videos I have found gets it, he criticizes the academic interpretation of James Joyce very directly.. https://www.youtube.com/watch?v=squl14tighM
 
 "Misunderstanding of Joyce", "monumental misunderstanding" in that video.
