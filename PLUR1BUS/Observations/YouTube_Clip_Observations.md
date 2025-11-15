@@ -41,6 +41,12 @@ https://youtu.be/k8ZcY2G0jwU?t=534
 
 Carol the penetration tester. The hive learning howt to defend against hostile outside worlds.
 
+Carol's anger is a threat to the entire world. Regardless of deesign, it is the reality of the situation dynamic.
+
+https://youtu.be/vQL1frje1I4?t=562
+
+&nbsp;
+
 # My own thought: unique / desirable
 
 https://youtu.be/vQL1frje1I4?t=196
@@ -48,3 +54,21 @@ https://youtu.be/vQL1frje1I4?t=196
 The engineers of the RNA / virus - prize some missing key / tree of knowledge branch or leaf that the exceptions hold. An exception handler that CAN NOT READ Carol's mind... and that's the key. A theory that they PRIZE some addition to Encycopeida Galactica that Carol has - and why Helen *put up with* and saw in Carol - but can not be encoded.
 
 it's like an operaitong system upgrade on computers. Same hardware, but new OS. And the new OS lacks some backwoards compatibiity and can't run all the old apps. Progress of integraitng Earth had a price to pay with the deaths - but waht the HIVE MIND itself has decided - is that the pursuit of learning / knowledge / experience is prized. And Carol and the 12 others all have that. By the critera of what the hive mind itself is willing to seek out. Like Star Trek goals / missions. To learn.
+
+Another metaphor: building an emulator for a console like Nintendo 64 and trying like Mister FPGA, and trying to get every person's favorite game just right. There is some unimplemented or poorly implemented code or hardware device on these edge case games. Real world difficulty that takes around the clock development.
+
+&nbsp;
+
+# Carol is drowning
+
+https://youtu.be/vQL1frje1I4?t=237
+
+Maybe the universe is hostile. Maybe the Earth has to be relocated and the "drowning" people won't survive the relocation of our solar system / rescue Earth need.
+
+&nbsp;
+
+# Common Sense rebuild
+
+Rebuilding common sense from bottom-up
+
+https://youtu.be/vQL1frje1I4?t=370
