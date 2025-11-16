@@ -26,7 +26,7 @@ What keeps the scientists looking out with the radio telescope? Some day we will
 
 The racial rainbow connection. The wealth class rainbow connection.    
 Have you heard the voices while you are half-alseep (Wake Finnegans).     
-Do Pirate Lady on the ocean hear the voices, sailors hear?   
+Do Pirate Lady on the ocean hear the voices, young sailors hear?   
 Who said every wish would be heard and answered when wished upon a remote star?    
 The Founding Fathers of the USA, the Latin phrase of the show title, stars above the Eagle?   
 
