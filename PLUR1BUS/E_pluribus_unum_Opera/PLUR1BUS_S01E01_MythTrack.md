@@ -19,6 +19,18 @@ He / She / Pirate Lady / Pirate Man
 
 &nbsp;
 
+### Track 1.5: Keeps us Sky Gazing?
+
+What keeps the scientists looking out with the radio telescope? Some day we will find hte signal.
+
+The racial rainbow connection. The wealth class rainbow connection.    
+Have you heard the voices while you are half-alseep (Wake Finnegans).     
+Do Pirate Lady on the ocean hear the voices, sailors hear?   
+
+https://www.youtube.com/watch?v=pyKYusP81rY
+
+&nbsp;
+
 ### Track 2: Understanding Carol
 
 Carol hates her audience, mocks her audience, holds back on her "Bitter coming out of the closet" story she labored on for 4.5 years - keeping truth from her audience.
