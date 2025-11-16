@@ -34,5 +34,6 @@ Zombie movies, you do not want to become zombie. Deliberate intelligent.
 Writer reluctantly tasked with saving the world.  https://youtu.be/kFrffEktluo?t=2714     
 No one less equipped to save the world than a writer.   
 Carol's name is from Twilight Zone.  "3rd from the sun" https://youtu.be/kFrffEktluo?t=2894    
-While the Tatanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read.
+While the Tatanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read. https://youtu.be/kFrffEktluo?t=3243 booze cruise for drinking while on space tourism - original intelectual property
+
 
