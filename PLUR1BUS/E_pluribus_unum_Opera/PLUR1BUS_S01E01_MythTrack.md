@@ -21,11 +21,13 @@ He / She / Pirate Lady / Pirate Man
 
 ### Track 1.5: Keeps us Sky Gazing?
 
-What keeps the scientists looking out with the radio telescope? Some day we will find hte signal.
+Why are there so many religions of Heaven and places like Eden? Kepler-22B?    
+What keeps the scientists looking out with the radio telescope? Some day we will find the signal.
 
 The racial rainbow connection. The wealth class rainbow connection.    
 Have you heard the voices while you are half-alseep (Wake Finnegans).     
 Do Pirate Lady on the ocean hear the voices, sailors hear?   
+Who said every wish would be heard and answered when wished upon a remote star?    
 
 https://www.youtube.com/watch?v=pyKYusP81rY
 
