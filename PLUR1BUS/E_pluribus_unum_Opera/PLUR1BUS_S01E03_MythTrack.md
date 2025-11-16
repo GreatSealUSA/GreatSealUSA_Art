@@ -145,5 +145,5 @@ Carol starts boozing up until she goes insane and then claims playing with weapo
 
 The woman Carol is terrified by... Carol invites into her house! At the meeting, Carol puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your home-delivery bitch... and Carol is going to put the bitch down, like a dog.
 
-Wher I am from, the United States of America, they call [this all too familiar loaded gun domestic scene]() a murder-suicide. https://en.wikipedia.org/wiki/Murder%E2%80%93suicide
+Wher I am from, the United States of America, they call [this all too familiar loaded gun domestic scene](https://en.wikipedia.org/wiki/Familicide) a murder-suicide. https://en.wikipedia.org/wiki/Murder%E2%80%93suicide
 
