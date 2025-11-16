@@ -121,3 +121,14 @@ https://www.youtube.com/watch?v=ofqhKV9HsCU
 
 ToDo: list some specific emphasisis / quotes   
 
+&nbsp;
+
+# Track 11: Loaded Checkov's Gun
+
+A toy? Point a toy gun / prop gun at an African immigrant... what satire / sarcasm / Pretzel Logic is this. Maybe the audience of the show isn't getting the satire. First rule of gun training is always asume a gun is a loaded gun and do not point it at your house visitor.
+
+Whose face was it that we saw? Was it you running from the Spouts store? Or another member of the hive mind.
+
+Carol put this Africa woman down, punched her into unconsious twice now. Once in front of her house, second time in Spain at the outdoor meal. Now Carol asks for a gun, invites the African invader into her house and puts the loaded gun on the table during a "discussion". Payback, time to pay the other with a gun for taking Helen.
+
+https://www.youtube.com/watch?v=kM89Cx3GQJg
