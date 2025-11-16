@@ -10,5 +10,5 @@ She thinks her lover he / she is dead because walked off a plank into the ocean.
 
 Tim Finnegan walked a vertical plank and fell to the sky (heaven) ground. "Dead".
 
-Her loveer doesn't appear to fit his skin anymore. https://youtu.be/HJZJVnSjsjk?t=41
+Her lover doesn't appear to fit his skin anymore. https://youtu.be/HJZJVnSjsjk?t=41
 
