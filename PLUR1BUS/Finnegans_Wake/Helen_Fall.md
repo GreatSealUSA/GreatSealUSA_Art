@@ -30,7 +30,7 @@ After introducing Finnegans Wake at minute 23 of Episode One, and making a state
 
 >  It's too in your face and on the nose
 
-Have you ever read Finnegans wake? it is the least "on the nose" book you will ever read. The *grin* on Helen's face as she dies is "in your face" smile. If you can make even one single person smile....
+Have you ever read Finnegans Wake? it is the least "on the nose" book you will ever read. The *grin* on Helen's face as she dies is "in your face" smile. If you can make even one single person smile....
 
 > there's nothing concrete to say it has nearly as much to do with the show as you're emphasizing
 
