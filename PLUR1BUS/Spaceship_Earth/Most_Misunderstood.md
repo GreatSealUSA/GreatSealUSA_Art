@@ -6,3 +6,6 @@ https://www.youtube.com/watch?v=92-02TOjntI
 wall facer mind    
 https://youtu.be/92-02TOjntI?t=223
 
+No butterly effect.     
+https://youtu.be/92-02TOjntI?t=440
+
