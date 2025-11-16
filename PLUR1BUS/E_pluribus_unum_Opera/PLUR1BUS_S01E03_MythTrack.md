@@ -132,3 +132,13 @@ Whose face was it that we saw? Was it you running from the Spouts store? Or anot
 Carol put this Africa woman down, punched her into unconsious twice now. Once in front of her house, second time in Spain at the outdoor meal. Now Carol asks for a gun, invites the African invader into her house and puts the loaded gun on the table during a "discussion". Payback, time to pay the other with a gun for taking Helen.
 
 https://www.youtube.com/watch?v=kM89Cx3GQJg
+
+&nbsp;
+
+# Track 12: Liquid Courage
+
+Carol starts boozing up until she goes insane and then claims playing with weapon toys, poiniting a gun at the African immigrant... she is well practiced at this booze mindset.
+
+The woman Carol is terrified by... she invites at her house, and puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your bitch...
+
+https://www.youtube.com/watch?v=OGegPhbaDdk
