@@ -92,7 +92,7 @@ Carol is adding bitter spices to the hive mind gumbo, a woman telling her fictio
 
 &nbsp;
 
-# Track 8: Carol's house on the Frontier 
+### Track 8: Carol's house on the Frontier 
 
 Sprouts store, airport, but her house is up at the end of the frountier / undeveloped land.
 
@@ -102,7 +102,7 @@ The Spirit of Radio F.M.media used to be alive. Today's Tom Sawyer is a mean mea
 
 &nbsp;
 
-# Track 9: Brick themes
+### Track 9: Brick themes
 
 1. Carol and much of the audience thinks the hive mind can't get satire. Like the song "Thick as a brick" part 1 and part 2 song.
 
@@ -114,7 +114,7 @@ Carol, author and writer... wife of Helen publisher... Sleeping with the Golden 
 
 &nbsp;
 
-# Track 10: Another Virus, Grenade 
+### Track 10: Another Virus, Grenade 
 
 Hand grenade handed to humanity mirror....     
 https://www.youtube.com/watch?v=ofqhKV9HsCU
@@ -123,7 +123,7 @@ ToDo: list some specific emphasisis / quotes
 
 &nbsp;
 
-# Track 11: Loaded Checkov's Gun
+### Track 11: Loaded Checkov's Gun
 
 A toy? Point a toy gun / prop gun at an African immigrant... what satire / sarcasm / Pretzel Logic is this. Maybe the audience of the show isn't getting the satire. First rule of gun training is always asume a gun is a loaded gun and do not point it at your house visitor.
 
@@ -135,10 +135,10 @@ https://www.youtube.com/watch?v=kM89Cx3GQJg
 
 &nbsp;
 
-# Track 12: Liquid Courage
+### Track 12: Liquid Courage
 
 Carol starts boozing up until she goes insane and then claims playing with weapon toys, poiniting a gun at the African immigrant... she is well practiced at this booze mindset.
 
-The woman Carol is terrified by... she invites at her house, and puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your bitch...
+The woman Carol is terrified by... she invites at her house, and puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your bitch... and Carol is going to put the bitch down, like a dog.
 
 https://www.youtube.com/watch?v=OGegPhbaDdk
