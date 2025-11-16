@@ -34,6 +34,6 @@ Have you ever read Finnegans Wake? it is the least "on the nose" book you will e
 
 > there's nothing concrete to say it has nearly as much to do with the show as you're emphasizing
 
-Speaking of concrete, Helen / Tim fall on hard rock and cracked her skull. What brings Tim Finnegan back to life? The water of life, booze.
+Speaking of concrete, Helen / Tim fall on hard rock and cracked her / his skull. What brings Tim Finnegan back to life? The water of life, booze.
 
 At 31 minutes in Episode Three, the "water of life" is brought up.
