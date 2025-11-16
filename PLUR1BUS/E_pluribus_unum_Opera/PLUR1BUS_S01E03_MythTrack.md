@@ -137,8 +137,8 @@ https://www.youtube.com/watch?v=kM89Cx3GQJg
 
 ### Track 12: Liquid Courage
 
-Carol starts boozing up until she goes insane and then claims playing with weapon toys, poiniting a gun at the African immigrant... she is well practiced at this booze mindset.
+Carol starts boozing up until she goes insane and then claims playing with weapon toys, pointing a gun at the African immigrant... she is well practiced at this booze mindset. Always treat a gun like it is loaded. But Carol is on the liquid courage, to muster up emotional shock to the Pirate Lady for the third time.
 
-The woman Carol is terrified by... she invites at her house, and puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your bitch... and Carol is going to put the bitch down, like a dog.
+The woman Carol is terrified by... Carol invites into her house! At the meeting, Carol puts the loaded gun on the table during the intimidation "God Father" ruler meet me in my home office, meeting. Making the African immigrant bring the weapon for the kill with her, she's your home-delivery bitch... and Carol is going to put the bitch down, like a dog.
 
 https://www.youtube.com/watch?v=OGegPhbaDdk
