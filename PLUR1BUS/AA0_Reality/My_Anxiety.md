@@ -20,5 +20,14 @@ Audiences, so far, are competing on projecting where the show is heading.
 
 I hope the show addresses the largest issue I see in the world. Shared understanding. The tragedy of the commons on competive comprhension. How Rupert Murdoch programs an audience to hate humanism. How Putin programs a Russian audience to murder neighbors in Ukraine. How religion clergy find hate of other religions, out-group hate, core. Which Joseph Campbell spelled out in 1985 about Pluribus / Great Seal.
 
-": We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them."
+"We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them."
 
+&nbsp;
+
+&nbsp;
+
+### We were not made for information machine world
+
+Humans were not made for information machine world. I'm not saying it is bad. What I am saying is that it is bad we arne't self aware at the Marshall McLuhan + Neil Postman level.
+
+We haven't made choices. We have let Edward Bernays techniques push us around. We have let the wealthy of the world create adveritisng and marketing techniques. We don't recognize the side-effects of our own selling / marketing / advertising / manipulation.
