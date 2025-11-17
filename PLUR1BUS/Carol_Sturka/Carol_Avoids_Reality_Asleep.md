@@ -12,7 +12,7 @@ Power of Myth, 1988, JOseph Campbell age 82: "Just at that point, she is beginni
 What happens next in this story is that when the old man has pulled her out of the water, she finds herself in the midst of a company of old men standing along the shore, all looking exactly like her rescuer. They are the **Thunderers**, powers of the upper air. That is, she is still in the transcendent realm into which she brought herself by her refusal of suitors; only now, having torn herself away from the negative aspect of the powers, she has come into possession of the positive.
 There is a lot more to this Iroquois tale, of how this young woman, now in the service of the higher powers, enabled them to destroy the negative powers of the abyss, and how, after that, she was conducted back, through a rainstorm, to the lodge of her mother."
 
-&nbps;
+&nbsp;
 
 ## Carol does not think Real is Real
 
@@ -30,3 +30,8 @@ Is this the song at the end of episode 3?
 
 https://www.newhavenarts.org/arts-paper/articles/dakhabrakha-brings-kyiv-to-new-haven
 
+&nbsp;
+
+## The Carol Experience
+
+I'm witnessing the first 3 episodes, including the weekend after episode 3, a lot of people who can rewind / ask questions / read - who can't relate to the lessons beight taught to Carol about freedom. Freedom to self-harm with a bomb. Zero reaosn for Carol to believe the hive mind is not serious (the digger for the grave airlifted, Air Force One, the rescue of the airplane crashed on the building, the electricity being turned off and back on just for Carol, the Sprouts re-opening, they always show SERIOUS).  But he audience will not listen to odd ideas or cicumstances seriously. That Carol can not rewind / pause / ask questions. She is showing information overload.
