@@ -147,3 +147,38 @@ The woman Carol is terrified by... Carol invites into her house! At the meeting,
 
 Wher I am from, the United States of America, they call [this all too familiar loaded gun domestic scene](https://en.wikipedia.org/wiki/Familicide) a murder-suicide. https://en.wikipedia.org/wiki/Murder%E2%80%93suicide
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Track 13: New President
+
+Dear Carol:
+
+How *free* was your life before the virus? What have you studied about your USA nation?
+
+https://www.youtube.com/watch?v=I0fGxujeJbY&t=113s
+
+> Well, Carol didn’t think it was a loaded weapon.
+
+1. They prepared a breakfast for her in extremely serious way, had flown in her favorite food. She disposed of it in a very dramatic rejection.
+
+2. They seriously repopulated every single thing in Sprouts as soon as she commanded. Why does it need 24 jars of the same brand of peanut butter for one person? Has she never ordered from online or a catalog? they could have asked her if online catalog was good enough. Instead, they OVERKILL her request. yes, Sprouts has online: https://shop.sprouts.com/
+
+3. Dramatically getting Air Force One
+
+4. Turning off every light in her city except for her.
+
+5. Dial 0 any time, "Hello, Carol", 24 hours a day concierge / room service. No money, no paperwork, not even a signature.
+
+6. You need an [pickaxe](https://youtu.be/I0fGxujeJbY?t=113), you need water, delivered. You need a power digger, airlifted to her house. They even have a person operate it for her.
+
+How many more examples does she need to see to recognize that the hive mind is being serious.
+
+The sarcasm was addressed when the weapon was handed at the doorway.
+
+It is a call-out of Americans who booze up and use drugs and play with guns as toys. https://old.Reddit.com/r/GunsAreCool - New Mexico is also famous for an actor who thought a prop guns was a toy and killed a person.
+
+It isn't the hive mind that is the problem. And the atom bomb she brings up, that was created in New Mexico.
