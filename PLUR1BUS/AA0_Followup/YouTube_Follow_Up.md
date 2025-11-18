@@ -2,10 +2,14 @@
 
 ## Channel 1
 
-Reel Enigmas and Theories: [Heavy on Hindu, Finnegans Wake, The Alchamist symbolism](../Imperfect/Agressive_Takeover.md)
+Reel Enigmas and Theories:
+
+[Heavy on Hindu, Finnegans Wake, The Alchamist symbolism](../Imperfect/Agressive_Takeover.md)
 
 Survivors of free thinkers attacking each other. https://youtu.be/3KBVjjIKvSQ?t=254 "Sooth the Thunder in her" https://youtu.be/3KBVjjIKvSQ?t=499
 
+Theories camps after Episode 3. Doctors who think humanity is the disease. Drowning humanity.    
+https://www.youtube.com/watch?v=m4WIvPlAWlo
 
 &nbsp;
 
