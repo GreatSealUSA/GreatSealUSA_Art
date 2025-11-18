@@ -20,6 +20,17 @@ miscellaneous gab: Book editor who has a best-selling author who sells romance t
 
 &nbsp;
 
+## Channel 3: Poggy
+
+https://www.youtube.com/watch?v=3JvW3pxLW28
+
+Carol is from outer-space family escaping a wipeout.  Twilight Zone is lead-in to the show.
+
+Did they license the character to make a sequel?
+
+
+&nbsp;
+
 ## Industry shows
 
 https://www.youtube.com/watch?v=kFrffEktluo
