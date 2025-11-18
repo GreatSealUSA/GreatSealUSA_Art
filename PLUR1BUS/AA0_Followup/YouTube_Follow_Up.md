@@ -9,7 +9,7 @@ Reel Enigmas and Theories:
 Survivors of free thinkers attacking each other. https://youtu.be/3KBVjjIKvSQ?t=254 "Sooth the Thunder in her" https://youtu.be/3KBVjjIKvSQ?t=499
 
 Theories camps after Episode 3. Doctors who think humanity is the disease. Drowning humanity.    
-https://www.youtube.com/watch?v=m4WIvPlAWlo Walter White egoism https://youtu.be/m4WIvPlAWlo?t=210 Human nature egoism disease for 14 years... "Breaking Good".
+https://www.youtube.com/watch?v=m4WIvPlAWlo Walter White egoism https://youtu.be/m4WIvPlAWlo?t=210 Human nature egoism disease for 14 years... "Breaking Good". https://youtu.be/m4WIvPlAWlo?t=323 This isn't a plot hole, this is the entire point. https://youtu.be/m4WIvPlAWlo?t=403 Year 1425 focus. https://youtu.be/m4WIvPlAWlo?t=556 Rick and Morty Unity hive mind
 
 &nbsp;
 
