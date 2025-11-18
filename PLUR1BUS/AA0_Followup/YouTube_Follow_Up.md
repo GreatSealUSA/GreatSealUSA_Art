@@ -9,7 +9,7 @@ Reel Enigmas and Theories:
 Survivors of free thinkers attacking each other. https://youtu.be/3KBVjjIKvSQ?t=254 "Sooth the Thunder in her" https://youtu.be/3KBVjjIKvSQ?t=499
 
 Theories camps after Episode 3. Doctors who think humanity is the disease. Drowning humanity.    
-https://www.youtube.com/watch?v=m4WIvPlAWlo
+https://www.youtube.com/watch?v=m4WIvPlAWlo Walter White egoism https://youtu.be/m4WIvPlAWlo?t=210 Human nature egoism disease for 14 years... "Breaking Good".
 
 &nbsp;
 
