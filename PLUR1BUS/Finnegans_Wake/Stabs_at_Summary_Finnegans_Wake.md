@@ -16,7 +16,7 @@ Carol's last name taken from Twilight Zone 1960 episode, the ties to X Files  19
 
 &nbsp;
 
-That said... so my focus on media ecology is the root of all modern media ecology. James Joyce's book [Finnegans Wake that started streaming released in year 1924](https://jamesjoyce.ie/events/mamalujo-finnegans-wake-as-a-work-in-progress/). And was finished publican on Star Wars Force Day, 1939! (May 4, 1939)
+That said... so my focus on media ecology is the root of all modern media ecology. James Joyce's book [Finnegans Wake that started streaming release in year 1924](https://jamesjoyce.ie/events/mamalujo-finnegans-wake-as-a-work-in-progress/). And was finished publication on Star Wars Force Day, 1939! (May 4, 1939)
 
 1. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan (University of Toronto), Newsweek Magazine, page 56, February 28, 1966
 
