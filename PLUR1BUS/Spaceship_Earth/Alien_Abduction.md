@@ -13,7 +13,7 @@ https://youtu.be/FIh2Ickaroo?t=634
 ## Marshall McLuhan
 
 “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.”
-― Marshall McLuhan, War and Peace in the Global Village, University of Toronto, Media Studies, year 1968
+― Marshall McLuhan, War and Peace in the Global Village, University of Toronto, Media Studies, year 1968, page 175
 
 I actually suspect fish do know something about non-water, but the metaphor of self-awareness is still valid.
 
