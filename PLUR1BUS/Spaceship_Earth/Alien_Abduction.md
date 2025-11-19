@@ -1,6 +1,6 @@
 # Alien Abduction 
 
-Someone joking, but who knows, the show comes form Twilight Zone family inspiration ;)
+Somewhat joking, but who knows, the Pluribus show comes from Twilight Zone family inspiration ;)
 
 &nbsp;
 
