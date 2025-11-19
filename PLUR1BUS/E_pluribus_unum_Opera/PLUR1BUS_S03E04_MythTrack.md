@@ -8,13 +8,15 @@ https://www.youtube.com/watch?v=jEbCtZ3nREc
 
 1. It can't be helped, but there is a lot of it about
 
-2. With / Without. Sprouts / Without. And who denies it's what the *fihgitng is all about*.
+2. With / Without. Sprouts / Without. And who denies it's what the *fighting is all about*.
 
 3. Out of my way... thinsgs on my mind, my dead Helen and the Hive Mind.
 
 4. In the end... only round and round. Travel around the Earth. Planets spinning, galaxies spinning, cosmos going round and round. Hate going round and round.
 
 5. Down and Out... Carol ... it can't be helped. A lot of it about Carol. With Helen, without Helen? Essence preserved? And who will deny the resurection of Tim Finnegan is what the fighting is all about? We aren't all superman Jesus?
+
+6. Who knows which is which? And *who* is who?
 
 Battle of sarcasm / Battle of *Words* / Battle of tone / Battle of style of language. English vs. English ... 5 English speakers, and curse hate words in Spanish.
 
