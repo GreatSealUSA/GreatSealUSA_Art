@@ -10,6 +10,11 @@ https://youtu.be/FIh2Ickaroo?t=634
 
 &nbsp;
 
+Fish being shown moon and sun     
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1p27044/truly_horrifying_experience/
+
+&nbsp;
+
 ## Marshall McLuhan
 
 “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.”
