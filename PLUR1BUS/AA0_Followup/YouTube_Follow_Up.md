@@ -47,6 +47,14 @@ Did they license the character to make a sequel?
 
 &nbsp;
 
+## Channel 4 Real-y Good Reviews
+
+https://www.youtube.com/watch?v=I7Q7FSmSzR8
+
+Carol as monster. Messy, angry, irrational, rage is proof of life.  https://youtu.be/I7Q7FSmSzR8?t=135  Anti-consent. https://youtu.be/I7Q7FSmSzR8?t=281 ChatGPT https://youtu.be/I7Q7FSmSzR8?t=387 The funamental lie that relationships are built on. Helen never told Carol truths. Some truths destroy more than they heal. 
+
+
+
 ## Industry shows
 
 https://www.youtube.com/watch?v=kFrffEktluo
