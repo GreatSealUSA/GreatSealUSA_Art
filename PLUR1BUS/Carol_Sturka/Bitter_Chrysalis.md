@@ -11,9 +11,9 @@ Sounds like Portrait / Stephen Hero?
 
 &nbsp;
 
-# Helen Published the Book
+# Helen Published some of the Book
 
-From what I gather, only two people in the world had read the "Work In Progress" (Fin Wake), but now that Helen joined the hive mind and had read the book - the book is now published world wide in the hive mind knowledge / treek of knowledge. 
+From what I gather, only two people in the world had read the "Work In Progress" (Fin Wake), but now that Helen joined the hive mind and had read the book - the book is now published world wide in the hive mind knowledge / treek of knowledge. (As of Episode Four, we learn that Helen read less than 200 pages of the book, including the ending on final 2 pages.)
 
 That could be key.. the contents of that previously unpupblished book. In "Three Body Problem" that was the wall facers, they could not read minds. And "we can not read minds" (Carol's mind) has been emphasized several times (invoking science fiction "Three Body Problem" concept).
 
