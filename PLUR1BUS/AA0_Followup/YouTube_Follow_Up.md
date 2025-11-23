@@ -44,6 +44,9 @@ Carol is from outer-space family escaping a wipeout.  Twilight Zone is lead-in t
 
 Did they license the character to make a sequel?
 
+https://www.youtube.com/watch?v=TvgBlLMBs-I
+
+Carol's book. https://youtu.be/TvgBlLMBs-I?t=314 Carol keeps killing her book character. https://www.youtube.com/watch?v=TvgBlLMBs-I  Carol's 5th book white board notes. This time kill her *for real*. https://youtu.be/TvgBlLMBs-I?t=690 predictions. Temporal compass. 
 
 &nbsp;
 
