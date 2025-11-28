@@ -60,7 +60,9 @@ https://www.youtube.com/watch?v=q9UYImWVR9I
 
 Episode 5, they called her "She" in the Hive Mind.
 
+I wonder if Zosia knows English. Her multi-lingual at the airport with Air Force One... was hive mind ability? And when she stumbled for words she has lost access to English.
 
+&nbsp;
 
 ## Industry shows
 
