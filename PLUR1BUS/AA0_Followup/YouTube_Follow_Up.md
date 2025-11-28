@@ -56,6 +56,10 @@ https://www.youtube.com/watch?v=I7Q7FSmSzR8
 
 Carol as monster. Messy, angry, irrational, rage is proof of life.  https://youtu.be/I7Q7FSmSzR8?t=135  Anti-consent. https://youtu.be/I7Q7FSmSzR8?t=281 ChatGPT https://youtu.be/I7Q7FSmSzR8?t=387 The funamental lie that relationships are built on. Helen never told Carol truths. Some truths destroy more than they heal. 
 
+https://www.youtube.com/watch?v=q9UYImWVR9I
+
+Episode 5, they called her "She" in the Hive Mind.
+
 
 
 ## Industry shows
