@@ -10,6 +10,8 @@ She is Campbell's secondary kind of hero, to revitalize the meaning of Heaven fo
 
 ToDo: Gracia Maxi dresses she wars when delivering package to Carol's house. <img width="894" height="1230" alt="Screenshot from 2025-11-19 09-42-05" src="https://github.com/user-attachments/assets/9b9faf16-1723-455d-a239-9975fcda38fd" /> clergy gown, judge gown.
 
+https://youtu.be/Yd1-3qphgmg?t=271 People sometimes talk about aliens staying away from Earth because of our violence and wars. https://youtu.be/Yd1-3qphgmg?t=340 The hive is learning, experience of reality incorporated. https://youtu.be/Yd1-3qphgmg?t=445 "They change the game", like an Amazon.com corporation behavior. Incorporation metaphors, Corporate personhood. https://youtu.be/Yd1-3qphgmg?t=541 Spiritual gaslighting. Indoctrination techniques of monomyth religions. Join our religion with kindness. https://youtu.be/Yd1-3qphgmg?t=638 Again repeating the observation that the hive is learning from experience. 
+
 
 &nbsp;
 
