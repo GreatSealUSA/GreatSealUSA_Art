@@ -89,3 +89,10 @@ BILL MOYERS: By doing what?
 
 CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, **rejecting the system’s impersonal claims** upon you.
 
+&nbsp;
+
+## BONUS: Truman Show?
+
+Carl standing in front of Air Force One halting the airplane invokes a Truman Show scene of Truman standing in the middle of the street with his hands halting the hive mind / actors in their cars. Going off-script.
+
+This show opens a lot of Finnegans Wake out-of-band associations to other science fiction media stories. The audience is going wilding on associations.
