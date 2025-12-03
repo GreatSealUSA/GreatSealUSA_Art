@@ -6,4 +6,5 @@ The absence of "red tape", rules and regulations, regarding access to guns / wea
 
 Warning labels on the { cancer sticks outside the Public House flame lit / literature, death sticks, booze bottle } - but freedom of Free Will choice. Red tape age restructions of drinking, the child who knows gynological tools, the Steely Dan steam powered Japanese literary device metaphors on the F.M. radio.
 
-Better Call Saul, the bypass of Red Tape anyway.
+Better Call Saul, the bypass of Red Tape anyway. Saul is a Germany Luther, Sin Boldly, Romans 11:32 revolutionary. Carol can't grasp the red tape absencce of nerfed Romans 11:32 rules, nor can Carol crack the codes of Finnegans Wake and Helen's graduate study, nor can Finnegans Wake be Romanss 11:33 .. a ++ of 32.
+
