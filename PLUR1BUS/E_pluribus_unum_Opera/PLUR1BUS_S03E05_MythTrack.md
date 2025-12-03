@@ -39,3 +39,5 @@ https://www.youtube.com/watch?v=R1lwPQhN9gI
 
 Keppler-22b puts on a show for Carol.
 
+ToDo: was the Keppler-22b signal in daytime New Mexico array hours or night-time. Even if the sun is out, daytime, stars are still in the sky... Pirate Lady gender changs abound, night and day, trans-gender transitions.
+
