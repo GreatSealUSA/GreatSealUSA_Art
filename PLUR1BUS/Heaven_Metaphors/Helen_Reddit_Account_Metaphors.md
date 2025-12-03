@@ -6,3 +6,4 @@ On Reddit, if a Reddit account is banned (permanently suspended) the user can no
 
 But all the information that was created during the account lifetime is still embedded in the hive mind. Comments persist in their original conext even though the user is know killed by the Reddit hive mind.
 
+The comment knowledge is fed to Artificial Intelligence training systems for repurpose use... but the account that originated the comments is "dead body". A tombstone. 
