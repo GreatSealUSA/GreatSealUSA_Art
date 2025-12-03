@@ -1,6 +1,6 @@
 # Great Seal USA Station
 
-Come on We The People of the Pale Blue Dot... Steely Dan sexual literay device metaphors...
+Come on We The People of the Pale Blue Dot... Steely Dan sexual [literary device](https://en.wikipedia.org/wiki/List_of_narrative_techniques) metaphors...
 
 John One One metaphors. Africa Egypt Station.
 
