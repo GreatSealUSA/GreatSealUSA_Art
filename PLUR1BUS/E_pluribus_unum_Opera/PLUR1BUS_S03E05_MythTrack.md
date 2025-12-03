@@ -8,6 +8,8 @@ https://www.youtube.com/watch?v=BQLY6AcnXEA
 
 If you think logically, but is the Pluribus Great Seal of the USA about Logic thinking? Out-group polarity.
 
+Something the hive man can do to make you *smile again*?
+
 &nbsp;
 
 ### Did you forget me Pirate Lady, return trip calling
