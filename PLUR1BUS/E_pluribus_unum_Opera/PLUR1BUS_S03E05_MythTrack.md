@@ -6,6 +6,8 @@ The signal from Keppler-22b calls the hive mind away from Carol, 50 ways to leav
 
 https://www.youtube.com/watch?v=BQLY6AcnXEA
 
+If you think logically, but is the Pluribus Great Seal of the USA about Logic thinking? Out-group polarity.
+
 &nbsp;
 
 ### Did you forget me Pirate Lady, return trip calling
