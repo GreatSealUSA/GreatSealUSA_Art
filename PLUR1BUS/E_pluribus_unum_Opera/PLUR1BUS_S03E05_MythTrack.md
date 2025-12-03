@@ -18,3 +18,22 @@ The best milk carton latte you ever had?
 
 https://www.youtube.com/watch?v=3JFcRRftxzM      
 525,417 views January 17, 2015
+
+&nbsp;
+
+### Up On the Roof, Forget me Not
+
+Empty school visuals opening, empty city Carol.
+
+https://www.youtube.com/watch?v=4gLVqjIvokc
+
+Will you stand above me? Look my way?
+
+&nbsp;
+
+### Up On the Roof, heavens Above 
+
+This old world... and the hive mind is too much.
+
+https://www.youtube.com/watch?v=R1lwPQhN9gI
+
