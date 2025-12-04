@@ -48,10 +48,16 @@ CAMPBELL: That was out entirely. And that's why they **rejected the idea of the 
 
 &nbsp;
 
-### Infinite Jest footnotes
+&nbsp;
+
+### Infinite Jest footnotes 
+
+&nbsp;
 
 1. Sarah Lawrence College 100 years on 2026 when USA is 250.
  
 2. Joseph Campbell married a student, exotic dancer. Both Campbell and his wife were teachers of James Joyce's Finnegans Wake. " wallstrait oldparr is retaled early ". They honeymooned in Woodstock New York before Woodstock was world famous. She creates a dance of Joyce's book: https://www.youtube.com/watch?v=WoiJVkdDbOo
 
 3. ToDo: follow-up. https://youtu.be/WoiJVkdDbOo?t=594 is that man saying "37 is the answer to everything"? Google AI 2025-12-04: "Finnegans Wake Connection: The phrase "The Coach with the Six Insides" is a title of a "fiveaxled production" mentioned on page 359 of James Joyce's experimental novel Finnegans Wake." https://www.finnegansweb.com/wiki/index.php/Page_359
+
+4. Artificial Intelligence language model arrogance. 2025-12-04 Google AI confidently claims exact quote is "a garbled version of the opening of James Joyce's novel, Finnegans Wake" <img width="1352" height="786" alt="image" src="https://github.com/user-attachments/assets/599ff8f1-34e2-4370-bcf5-ccef562c826c" />
