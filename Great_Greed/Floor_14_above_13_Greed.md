@@ -16,3 +16,25 @@ When Black Friday **falls**
 https://www.finnegansweb.com/wiki/index.php/Page_3   
 
 https://www.youtube.com/watch?v=neJorQci-wI
+
+&nbsp;
+
+&nbsp;
+
+# NYC teacher, Sarah Lawrence College NYC
+
+[Power of Myth, pubished year 1988](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth). Page 36
+
+Context Assertion: Bill Moyers is a former employee of th White House, USA federal government. Not your typical journalist. 
+
+BILL MOYERS: The voice of reason -- is that the philosophical way suggested by these mythological symbols?
+
+JOSEPH CAMPBELL: That's right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man's reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets -- but by reason.
+
+MOYERS: The way of --
+
+CAMPBELL: -- the way of man. And of course what destroys reason is passion. The **principal passion in politics is greed. That is what pulls you down**. And that's why we're on this side instead of the top of the pyramid.
+
+MOYERS: That's why our founders opposed religious intolerance --
+
+CAMPBELL: That was out entirely. And that's why they **rejected the idea of the Fall**, too. All men are competent to know the mind of God. There is no revelation special to any people.
