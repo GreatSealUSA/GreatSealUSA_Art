@@ -2,6 +2,9 @@
 
 Metaphors abound. On the [Eve of 1976, on the Eve of 200 years USA, a NYC story was told](https://en.wikipedia.org/wiki/Katy_Lied) about falling from 14 to the street. On an album titled with liar themes.
 
+Song:    
+https://www.youtube.com/watch?v=neJorQci-wI    
+
 When Black Friday comes    
 I'll stand down by the door     
 And catch the gray men when they    
@@ -15,7 +18,9 @@ When Black Friday **falls**
 " wallstrait oldparr is retaled early " - James Joyce, Finnegans Wake, Page 3     
 https://www.finnegansweb.com/wiki/index.php/Page_3   
 
-https://www.youtube.com/watch?v=neJorQci-wI
+https://www.youtube.com/watch?v=neJorQci-wI    
+1,498,342 views July 31, 2018
+
 
 &nbsp;
 
