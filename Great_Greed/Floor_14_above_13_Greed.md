@@ -38,7 +38,7 @@ JOSEPH CAMPBELL: That's right. Here you have the important transition that took 
 
 MOYERS: The way of --
 
-CAMPBELL: -- the way of man. And of course what destroys reason is passion. The **principal passion in politics is greed. That is what pulls you down**. And that's why we're on this side instead of the top of the pyramid.
+CAMPBELL: -- the way of man. And of course what destroys reason is passion. The **principal passion in politics is greed. That is what pulls you down**. And that's why we're on this side instead of the **top of the pyramid**.
 
 MOYERS: That's why our founders opposed religious intolerance --
 
