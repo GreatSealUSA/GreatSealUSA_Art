@@ -26,7 +26,7 @@ https://www.youtube.com/watch?v=neJorQci-wI
 
 &nbsp;
 
-# NYC teacher, Sarah Lawrence College NYC
+# NYC teacher, [Sarah Lawrence College](https://en.wikipedia.org/wiki/Sarah_Lawrence_College) NYC
 
 [Power of Myth, pubished year 1988](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth). Page 36
 
@@ -43,3 +43,13 @@ CAMPBELL: -- the way of man. And of course what destroys reason is passion. The 
 MOYERS: That's why our founders opposed religious intolerance --
 
 CAMPBELL: That was out entirely. And that's why they **rejected the idea of the Fall**, too. All men are competent to know the mind of God. There is no revelation special to any people.
+
+&nbsp;
+
+&nbsp;
+
+### Infinite Jest footnotes
+
+1. Sarah Lawrence College 100 years on 2026 when USA is 250.
+ 
+2. Joseph Campbell married a student, exotic dancer. Both Campbell and his wife were teachers of James Joyce's Finnegans Wake. " wallstrait oldparr is retaled early ". They honeymooned in Woodstock New York before Woodstock was world famous. She creates a dance of Joyce's book: https://www.youtube.com/watch?v=WoiJVkdDbOo
