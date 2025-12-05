@@ -59,3 +59,4 @@ Science_Fiction_See_Also: Aliens treating Fry in a zoo episode.
 
 * "I once heard a lecture by a wonderful old Zen philosopher, Dr. D. T. Suzuki. He stood up with his hands slowly rubbing his sides and said, “God against man. Man against God. Man against nature. Nature against man. Nature against God. God against nature—very funny religion!” - Power of Myth, year 1988, nonfiction education filmed by George Lucas for Star Wars science fiction audiences. Skywalker ranch lessons for Hollywood fanatics on media ecology.
 
+OPERA_A: Man against human nature. Great Seal USA roadies. Steely Dan japanese sexual literary device metaphors of metaphorical metaphor ram-rod (steam powered, steam punk, hot tub in vegas Naked Lunch metaphors entangled at quantum metaphors Finnegans Wake levels). Vegas, poor people, lighting the city. Ricke Lee Jones, The Pirate *Lady* https://www.youtube.com/watch?v=fFl7pGVRfg4
