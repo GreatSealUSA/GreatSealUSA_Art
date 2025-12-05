@@ -77,3 +77,4 @@ OPERA_A Apple Records, Love, had a famous inception in Vegas. Help Carol is call
 
 33:00 many many many layers of TCP/IP network metaphors, store and forward messaging, offline, online. Machine communications, answering machine, voice mail machine, to display sign machines. Media ecology media ecology and more media ecology of Marshall McLuhan (University of Toronto) James Joyce Finnegans Wake.
 
+Ending: mother bieng a bitch. Carol's mother putting her into age 16 "lesbian absuse interment camp". Abusive prenting.
