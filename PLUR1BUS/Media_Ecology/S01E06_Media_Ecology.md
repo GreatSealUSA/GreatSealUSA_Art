@@ -70,3 +70,5 @@ OPERA_A Carol is now a Super Big Fish in a Small Pond of 13 people. She is in th
 &nbsp;
 
 30:08 the LINE of the show about Finnegans Wake. Eve and Adam. Carol says *pluck an apple*, **Original Sin** itself. Apple records sin of monomyth media ecology, Steve and Steve Apple Computers original sin of copyright. It's all there metaphors to metaphors, beyond the writer's art itself, deepest of the deep of opening *and* closing sentence of recirculation James Joyce Page 3 of Finnegans Wake *inceptiion* of the last page of Finnegans Wake. Free-thinking John 1:1 writer to Free-thinking Adam, this place is captivity zoo, pluck the Apple for ego sustinance. Recirculation Eve, Bible verse Revelation 1:8, no begin or end, this is a King of Kings / Monomyth of Monomyth adaptions (Page 581 Finnegans Wake, MonoMyth inceptions).
+
+OPERA_A Apple Records, Love, had a famous inception in Vegas. Help Carol is calling. Modonna inceptions. https://www.youtube.com/watch?v=3nhf2A8L0v0
