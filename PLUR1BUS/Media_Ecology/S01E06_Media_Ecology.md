@@ -74,3 +74,6 @@ OPERA_A Carol is now a Super Big Fish in a Small Pond of 13 people. She is in th
 OPERA_A Apple Records, Love, had a famous inception in Vegas. Help Carol is calling. Modonna inceptions. https://www.youtube.com/watch?v=3nhf2A8L0v0 - Beatles show inception French language man in Vegas circus branding ([Canadian corporation, Canada entertainment company](https://en.wikipedia.org/wiki/Cirque_du_Soleil)).
 
 31:40 "They made this discovery only yesterday". Ahh, a Great Seal USA metaphor I posted on this very GitHub about a Japan film adaption..."Only Yesterday" (unintentional invocation, most likely) about threshold crossings. https://en.wikipedia.org/wiki/Only_Yesterday_(1991_film) - and "Yesterday" Apple Records / The Beatles / Vegas "LOVE" act. The "Stem Cells" metaphor of intimacy / DNA personhood / "Stem Cells" is the very meaning of Page 581 Finnegans Wake "MonoMyth" coining by Joyce. The Stem Cells of Bible verse John 1:1, Genesis of art and language and metaphors / memes.
+
+33:00 many many many layers of TCP/IP network metaphors, offline, online. Machine communications, answering machine, voice mail machine, to display sign machines. Media ecology media ecology and more media ecology of Marshall McLuhan (University of Toronto) James Joyce Finnegans Wake.
+
