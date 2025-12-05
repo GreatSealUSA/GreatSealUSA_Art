@@ -49,6 +49,13 @@ Hollywood_Power_TV_Power_See_Also: https://en.wikipedia.org/wiki/Babylon_(2022_f
 OPERA_A: Players only love you when they are Vegas poker playing and playing women as objects. https://www.youtube.com/watch?v=r9WT3v_YUpM (Fleetwood Mac Dreams).  So you think you are a free thinker, Carol? Here you go again humanity... here you go again "We THe People" of Earth. Who am I, the hive mind, to keep you down. But LISTEN carefully of your isoloation: Apple + / Social media audience! What you had, what you lost. Non-simulacra. Or is Dreams a REAL SONG of REAL WORLD, and Poker Players and Orgy Players are playing with your mind, women will come and join you in the hot tub directed virtual machine subhive.
 
 
-
 12:50 orgy, "sex train", join your car in the congo line / hot tub orgy. Train car "hookup" metaphors.
+
+13:10 the zoo metaphors continue. The hive mind, without asking, starts departing. To honor the customs of Earth / vegas. Adam and Eve (Finnegans Wake opening line) metaphors of fig leaf and Eden. Ritual and ceremony of state visit, USA to France, Air Force One / POTUS Great Seal symbolism.
+
+Science_Fiction_See_Also: Aliens treating Fry in a zoo episode.
+
+13:50 all the lights are on in Vegas glitz, for one person. Just like Carol wanted for one person after animals invaded her yard. Man against nature. 
+
+* "I once heard a lecture by a wonderful old Zen philosopher, Dr. D. T. Suzuki. He stood up with his hands slowly rubbing his sides and said, “God against man. Man against God. Man against nature. Nature against man. Nature against God. God against nature—very funny religion!” - Power of Myth, year 1988, nonfiction education filmed by George Lucas for Star Wars science fiction audiences. Skywalker ranch lessons for Hollywood fanatics on media ecology.
 
