@@ -8,3 +8,18 @@ Carol to Vegas, someone stole Carol's water
 
 https://www.youtube.com/watch?v=yCgHTmv4YU8
 
+## Track West
+
+Westgate Hotel, Elvis suite / sweets. Baracades of Heaven, the Pacific Ocean before you head to the Oriental mythology metaphors. The baracades of heaven of Nevada / Oregan trail metaphors.
+
+*Go West, man!", youg man, "Go West!" metaphors. Florida to West Cost youth stories.
+
+https://www.youtube.com/watch?v=7923AHiJ_U8     
+3,527,165 views July 8, 2021
+Barriers of locked pandemic home-performance July 4 year 2021 context COVID-2019.   
+
+Trying to hear *my song*. Free Air Force One *Elvis Guitar*. Life became the Paradox.
+
+"All the world was shining" from the top floor of Vegas lights scenes of Elvis.
+
+NOTEZ: age 16, Carol's interment camp. French langauge lines of Frechman in Westgate Hotel. Pages turning, Caarol's booking travels to inform the free thinker... runs into the baracades of the Hive Minds where We The People are from...
