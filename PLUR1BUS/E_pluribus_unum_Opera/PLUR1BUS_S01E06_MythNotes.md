@@ -49,4 +49,6 @@ Carol is a "landlocked drunk" without her drinking smoking partner.
 
 Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown hivemind Carol. What's her story of the DUI devices on her transports? Her "Pirate Lady" rum performances.
 
-Notice how the hive mind offers her booze whenever she shows up? At the lunch meeting with the 5 / Air Force One. And in vegas, making sure she is given a drink to cure her raging "DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"?
+### Feverdream / Joycean drinker dream metaphors 
+
+Notice how the hive mind offers her booze whenever she shows up? At the lunch meeting with the 5 / Air Force One. And in vegas, making sure she is given a drink to cure her raging "DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"? Even the Elvis fandom club free thinkers who get together (12) discuss Carol and Episode Six at "Just in Time" (timer countdown DT) a drink is being poured for poor dry drubk Carol (at 16 minutes S01E06). 
