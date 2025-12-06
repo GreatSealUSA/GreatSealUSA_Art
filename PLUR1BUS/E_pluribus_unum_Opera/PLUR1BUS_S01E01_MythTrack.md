@@ -182,6 +182,8 @@ Welcome To The *Jolly* Roger, ladies / Lady Pirates, hive mind happy Jolly!
 
 ToDo: "Butt Pirate" metaphors *Breaking Badness*?
 
+MORE INLINE NEXT_TRACK : The Chemical Romance video depicts "A Slow Parade of Fears" in black. Some day, son, when you grow up will you be the savior? https://www.youtube.com/watch?v=7qlPrrVnPbs "Doctor My Eyes" tears parade. See also: https://people.com/celebrity/drugs-and-alcohol-jackson-family-attempted-vegas-intervention/ ("I've been waiting to Awaken From These Dreams", "I've Got this Feeling That It is Later Than It Seems" (show countdown on-screen))
+
 &nbsp;
 
 &nbsp;
