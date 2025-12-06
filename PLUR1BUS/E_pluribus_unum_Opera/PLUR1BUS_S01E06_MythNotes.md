@@ -52,3 +52,8 @@ Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown
 ### Feverdream / Joycean drinker dream metaphors 
 
 Notice how the hive mind offers her booze whenever she shows up? At the lunch meeting with the 5 / Air Force One. And in *Get Lost, Carol* Vegas, making sure she is given a drink to cure her raging "DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"? Even the Elvis fandom club free thinkers who get together (12) discuss Carol and Episode Six at "Just in Time" (timer countdown DT) a drink is being poured for poor dry drubk Carol (at 16 minutes S01E06). 
+
+Pirate Lady and Elvis fan are both from Islamic / Muslim nations?
+
+Media ecology teachings of author / books / literacy / Joyce drunkard / Carol drunkard:      
+"I think you get a certain immunity, just as you get a certain immunity from booze by literacy. The literate man can **carry his liquor**, the tribal man cannot. That’s why in the Muslim world or in the native world booze is impossible. It’s the demon rum. However, literacy also makes us very accessible to ideas and propaganda. The **literate man is the natural sucker** for propaganda. You cannot propagandize a native. You can sell him **rum** and trinkets, but you cannot sell him ideas. Therefore, propaganda is our Achilles’ heel. It’s our weak point. We will buy anything if it’s got a good hard sell tied to it. And so propaganda is the great big soft spot in the makeup of **the literate man**.* - https://www.organism.earth/library/document/mcluhan-mcmanus September 19, 1977
