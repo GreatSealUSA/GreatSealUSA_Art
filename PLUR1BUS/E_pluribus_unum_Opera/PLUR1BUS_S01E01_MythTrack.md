@@ -178,7 +178,7 @@ RNA X chromosomes Helen social media topic outside public house, lyrics: "she is
 
 Welcome To: https://www.youtube.com/watch?v=RRKJiM9Njr8
 
-Welcome To The *Jully* Roger, ladies / Lady Pirates, hive mind happy Jolly!
+Welcome To The *Jolly* Roger, ladies / Lady Pirates, hive mind happy Jolly!
 
 &nbsp;
 
