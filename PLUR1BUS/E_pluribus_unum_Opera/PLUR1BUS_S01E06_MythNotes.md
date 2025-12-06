@@ -47,4 +47,4 @@ Episode 6 is about 8 days (on screen contdowns / countup timers) with Carol's fr
 Carol is a "dry drunk"  https://en.wikipedia.org/wiki/Dry_drunk       
 Carol is a "landlocked drunk" without her drinking smoking partner.   
 
-Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown hivemind Carol. What's her story of the DUI devices on her transports?
+Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown hivemind Carol. What's her story of the DUI devices on her transports? Her "Pirate Lady" rum performances.
