@@ -59,3 +59,12 @@ Media ecology teachings of author / books / literacy / Joyce drunkard / Carol dr
 "I think you get a certain immunity, just as you get a certain immunity from booze by literacy. The literate man can **carry his liquor**, the tribal man cannot. That’s why in the Muslim world or in the native world booze is impossible. It’s the demon rum. However, literacy also makes us very accessible to ideas and propaganda. The **literate man is the natural sucker** for propaganda. You cannot propagandize a native. You can sell him **rum** and trinkets, but you cannot sell him ideas. Therefore, propaganda is our Achilles’ heel. It’s our weak point. We will buy anything if it’s got a good hard sell tied to it. And so propaganda is the great big soft spot in the makeup of **the literate man**.* - https://www.organism.earth/library/document/mcluhan-mcmanus September 19, 1977
 
 Media Ecology metaphors, audience programming context USA society: Leaving Las Vegas, Drunkard Heaven / Hive Mind of Drunks. Films you must see before you die, 4 star (highest) rating hotel metaphors: https://www.RogerEbert.com/reviews/leaving-las-vegas-1995 - for serious media ecology students of Ebert Siskel USA. Ebert was a legendary public drunk, AAA / A+ / *AA*++ first-class drunkard author like Joyce and Carol.
+
+&nbsp;
+
+## Elvis Fans from Africa 
+
+Elvis fans of USA music may know uSA films.  "Pirate Lady" story of Carols themes. Ship captain metaphors of Carol's books. ["it has been invoked upon the death of several other heads of state. It is famously featured in Dead Poets Society (1989) and is frequently associated with the star of that film, Robin Williams."](https://en.wikipedia.org/wiki/O_Captain!_My_Captain!)
+
+And he likes music, We Built this Vegas city. The Vegas video images / Bay area crossover themes. Elvis fan and Air Force One "Jefferson Airplaine" fan? Lyrics: "Don't tell us you need us 'cause we're the ship of fools: Looking for America!" (immigrant from West Africa looking for Air Force One ride to "No Kings" Elvis Vegas king). Carol to the Hive Mind: "Don't tell us you need Us" ("We Are Us" title Episode One) https://youtu.be/K1b8AhIsSYQ?t=187 Elvis radio station / media ecology radio.
+
