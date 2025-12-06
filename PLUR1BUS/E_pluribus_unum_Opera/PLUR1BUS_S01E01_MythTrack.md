@@ -170,7 +170,7 @@ Carol woke, Wake, Finnegans.
 
 ### Track X 0: Pirate Gender X Flags
 
-Carol takes up inhalation fumes, smoking, with Helen as they celebrate the Joycean end of the world at the Public House boozing. From her book dealer partner, Carol takes a hit of chemicals metaphors. Romance chemistry lighting up The Black Parade of the hive mind takeover. https://en.wikipedia.org/wiki/The_Black_Parade
+Carol takes up inhalation fumes, smoking, with Helen as they celebrate the Joycean end of the world at the Public House boozing. From her book dealer partner, Carol takes a hit of chemicals metaphors. Romance chemistry lighting up The Black Parade of the hive mind takeover / Romance writer audience chemistry shipping book tour end of tour flag hoisting. https://en.wikipedia.org/wiki/The_Black_Parade
 
 RNA X chromosomes Helen social media topic outside public house, lyrics: "she is watching over me"
 
