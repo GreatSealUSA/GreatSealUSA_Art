@@ -178,6 +178,10 @@ RNA X chromosomes Helen social media topic outside public house, lyrics: "she is
 
 Welcome To: https://www.youtube.com/watch?v=RRKJiM9Njr8
 
+Welcome To The *Jully* Roger, ladies / Lady Pirates, hive mind happy Jolly!
+
+&nbsp;
+
 &nbsp;
 
 ### Track 9: Hive Mind Thoughts And Dreams Scattered
