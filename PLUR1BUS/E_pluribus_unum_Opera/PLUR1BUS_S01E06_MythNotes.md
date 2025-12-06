@@ -48,3 +48,5 @@ Carol is a "dry drunk"  https://en.wikipedia.org/wiki/Dry_drunk
 Carol is a "landlocked drunk" without her drinking smoking partner.   
 
 Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown hivemind Carol. What's her story of the DUI devices on her transports? Her "Pirate Lady" rum performances.
+
+Notice how the hive mind offers her booze whenever she shows up? At the lunch meeting with the 5 / Air Force One. And in vegas, making sure she is given a drink to cure her raging "DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"?
