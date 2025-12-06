@@ -172,6 +172,10 @@ Carol woke, Wake, Finnegans.
 
 Carol takes up inhalation fumes, smoking, with Helen as they celebrate the Joycean end of the world at the Public House boozing. From her book dealer partner, Carol takes a hit of chemicals metaphors. Romance chemistry lighting up The Black Parade of the hive mind takeover. https://en.wikipedia.org/wiki/The_Black_Parade
 
+RNA X chromosomes Helen social media topic outside public house, lyrics: "she is watching over me"
+
+<img width="630" height="420" alt="image" src="https://github.com/user-attachments/assets/7afc2a24-3df0-4fcd-9e5d-5a90219e505e" />
+
 Welcome To: https://www.youtube.com/watch?v=RRKJiM9Njr8
 
 &nbsp;
