@@ -53,6 +53,9 @@ https://www.youtube.com/watch?v=TvgBlLMBs-I
 
 Carol's book. https://youtu.be/TvgBlLMBs-I?t=314 Carol keeps killing her book character. https://www.youtube.com/watch?v=TvgBlLMBs-I  Carol's 5th book white board notes. This time kill her *for real*. https://youtu.be/TvgBlLMBs-I?t=690 predictions. Temporal compass. 
 
+https://www.youtube.com/watch?v=Ba5RL0I8aCo https://youtu.be/Ba5RL0I8aCo?t=70 James Bond, Zoo exhibit. https://youtu.be/Ba5RL0I8aCo?t=177 The Matrix 1999, rich / someone important / like *an actor* in a story https://youtu.be/Ba5RL0I8aCo?t=324 Bust of emperror of Rome https://youtu.be/Ba5RL0I8aCo?t=554 managing a hospice https://youtu.be/Ba5RL0I8aCo?t=762 Title HDP has meaning in Spanish language / Finnegans Wake linguistic duality. https://youtu.be/Ba5RL0I8aCo?t=814 meritime mobile radio band. Metaphors of Finnegans Wake riverrun / oceans / recirculation of water. Dublin as a port. https://youtu.be/Ba5RL0I8aCo?t=880 Predictions about antenna array broadcast project. Death of Elvis. Book "And Then They Were None" in Carol's bedroom.
+
+
 &nbsp;
 
 ## Channel 4 Real-y Good Reviews
