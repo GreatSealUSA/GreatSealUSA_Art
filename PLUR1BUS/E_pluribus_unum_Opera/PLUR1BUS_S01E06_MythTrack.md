@@ -28,7 +28,7 @@ ToDo: Mauritania language French. https://www.saigatours.com/details/north-afric
 
 &nbsp;
 
-# Track In Name of Almighty Elvis
+# Track: In Blessed Name of Elvis
 
 An Africa consumer of USA Elvis takes up residence in an immgrant hotel.
 
