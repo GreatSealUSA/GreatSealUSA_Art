@@ -23,3 +23,6 @@ Trying to hear *my song*. Free Air Force One *Elvis Guitar*. Life became the Par
 "All the world was shining" from the top floor of Vegas lights scenes of Elvis.
 
 NOTEZ: age 16, Carol's interment camp. French langauge lines of Frechman in Westgate Hotel. Pages turning, Caarol's booking travels to inform the free thinker... runs into the baracades of the Hive Minds where We The People are from...
+
+ToDo: Mauritania language French. https://www.saigatours.com/details/north-africa/mauritania/language/ North Africa colony influence. (I've lived in Algeria, I should know to assert this more). "Islamic Republic of Mauritania", Northwest Africa on The Atlantic ocean.
+
