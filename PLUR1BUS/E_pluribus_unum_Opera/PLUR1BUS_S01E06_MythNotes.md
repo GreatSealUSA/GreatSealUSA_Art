@@ -33,3 +33,18 @@ Please invoke mental context: { album cover of "Civic Ditty" / Dandom Fandom Cit
 Hive mind of entertainment media, media ecology, Breaking Bad, Steely Dandom NYC fandom. "Show Biz Kids", Fandom Kids, Parenting by POTUS Entertainers. Rickie Lee Jones: https://www.youtube.com/watch?v=fFl7pGVRfg4
 
 At the closing time of the country-wide world's fair. (I.G.Y. context invocation https://www.youtube.com/watch?v=rOQUzrhTBgw , world-wide, "I've been AROUND THE WORLD")
+
+&nbsp;
+
+&nbsp;
+
+## 8 days countdown on Carol
+
+Episode 6 is about 8 days (on screen contdowns / countup timers) with Carol's freakout race to Vegas.
+
+"DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"
+
+Carol is a "dry drunk"  https://en.wikipedia.org/wiki/Dry_drunk       
+Carol is a "landlocked drunk" without her drinking smoking partner.   
+
+Raging https://en.wikipedia.org/wiki/Delirium_tremens delirious blowout meltdown hivemind Carol. What's her story of the DUI devices on her transports?
