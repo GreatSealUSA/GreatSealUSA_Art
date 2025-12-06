@@ -10,9 +10,19 @@ Please invoke contexts { Air Force One, Commander in Chief, Top Floor Elvis Suit
 
 Please invoke contexts { France male leader coverges on wealth center Vegas / relocating too USA, Carol comes out of the Great Seal back-side desert to the Pyramid (Vegas, Luxor) symbolism front-side, 3rd man in storage facility is getting car ready for travel to USA. All converging in land of Dandom Show Biz Kids media ecology criicism }
 
-Preisdent Elvis outline:     
+*President* Elvis outline:     
 https://www.youtube.com/watch?v=i4UJ1RmPzD8       
 Film Paradise YouTube: "Pluribus: Koumba’s Real Plan For Vegas And Why The Hive Let's Him Play God"   
+
+&nbsp;
+
+A fandon of Elvis, an Elvis fanatic, chooses his one deepest dream. To be "The King" of Elvis:
+
+Pelase invoke context: { "No Kings" USA 2025 protests, "The King" Elvis, Carol's Christian abuse camp at age 16 in Memphis Elvis home area, Elvis media identification by Rick Roderick 1993, Elvis media identification by Andy Kaufman, "Man on the Moon" Rapid Eye Movements (Public Dreams, REM, REM sleep hive mind public states), Andy Kaufman / Tony Clifton ultra-deep mind-fucking, "President Tony Clifton" }
+
+Please invoke mental context: { Show Biz parenting, Hollywood parenting, album title "Countdown To" themes of Pluribs TV show on-screen countdowns, Poor people starving / 10 years to starvation } https://www.youtube.com/watch?v=E7XXEO1aADM
+
+Please invoke mental context: { album cover of "Civic Ditty" / Dandom Fandom Citizenship, Citizen Box Sets of media } https://www.youtube.com/watch?v=-SR48XA3hss
 
 &nbsp;
 
