@@ -40,7 +40,7 @@ At the closing time of the country-wide world's fair. (I.G.Y. context invocation
 
 ## 8 days countdown on Carol
 
-Episode 6 is about 8 days (on screen contdowns / countup timers) with Carol's freakout race to Vegas.
+Episode 6 is about 8 days (on screen countdowns / countups / timers) with Carol's freakout race to Vegas.
 
 "DT typically occurs 48–72 hours after the last use of alcohol and symptoms last 1–8 days"
 
