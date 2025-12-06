@@ -26,3 +26,12 @@ NOTEZ: age 16, Carol's interment camp. French langauge lines of Frechman in West
 
 ToDo: Mauritania language French. https://www.saigatours.com/details/north-africa/mauritania/language/ North Africa colony influence. (I've lived in Algeria, I should know to assert this more). "Islamic Republic of Mauritania", Northwest Africa on The Atlantic ocean. Metaphors of The Altantic over-consuption of Elvis Vegas. https://od.reddit.com/r/pluribustv/comments/1p80qwy/koumba_diabates_surname_reveals_his_character_arc/ ... "riverrun, past Eve and Adam's, from swerve of shore to bend of bay, brings us by a commodius vicus of recirculation back to Howth Castle and Environs. **Sir Tristram, violer d'amores, fr'over the short sea, had passen-core rearrived from North Armorica** on this side the scraggy isthmus"
 
+&nbsp;
+
+# Track In Name of Almighty Elvis
+
+An Africa consumer of USA Elvis takes up residence in an immgrant hotel.
+
+https://youtu.be/YAlDbP4tdqc?t=96
+
+57 channels. "I can see it in your eyes" of the hive mind / free thinkers / Carol's eyes.
