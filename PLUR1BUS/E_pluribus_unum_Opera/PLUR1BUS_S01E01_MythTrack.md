@@ -180,6 +180,8 @@ Welcome To: https://www.youtube.com/watch?v=RRKJiM9Njr8
 
 Welcome To The *Jolly* Roger, ladies / Lady Pirates, hive mind happy Jolly!
 
+ToDo: "Butt Pirate" metaphors *Breaking Badness*?
+
 &nbsp;
 
 &nbsp;
