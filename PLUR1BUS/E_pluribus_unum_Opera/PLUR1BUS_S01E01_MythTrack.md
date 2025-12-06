@@ -166,6 +166,16 @@ Carol woke, Wake, Finnegans.
 
 &nbsp;
 
+&nbsp;
+
+### Track X 0: Pirate Gender X Flags
+
+Carol takes up inhalation fumes, smoking, with Helen as they celebrate the Joycean end of the world at the Public House boozing. From her book dealer partner, Carol takes a hit of chemicals metaphors. Romance chemistry lighting up The Black Parade of the hive mind takeover. https://en.wikipedia.org/wiki/The_Black_Parade
+
+Welcome To: https://www.youtube.com/watch?v=RRKJiM9Njr8
+
+&nbsp;
+
 ### Track 9: Hive Mind Thoughts And Dreams Scattered
 
 "Daryl Hall & John Oates - You Make My Dreams (Official HD Video)"    
