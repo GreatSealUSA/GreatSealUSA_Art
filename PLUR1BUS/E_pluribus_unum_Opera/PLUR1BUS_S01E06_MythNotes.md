@@ -68,13 +68,3 @@ Elvis fans of USA music may know uSA films.  "Pirate Lady" story of Carols theme
 
 And he likes music, We Built this Vegas city. The Vegas video images / Bay area crossover themes. Elvis fan and Air Force One "Jefferson Airplaine" fan? Lyrics: "Don't tell us you need us 'cause we're the ship of fools: Looking for America!" (immigrant from West Africa looking for Air Force One ride to "No Kings" Elvis Vegas king). Carol to the Hive Mind: "Don't tell us you need Us" ("We Are Us" title Episode One) https://youtu.be/K1b8AhIsSYQ?t=187 (136,012,708 views since February 6, 2013) Elvis radio station / media ecology radio. *Starship* Kepler-22b metaphors abound. Too many hive mind runaways...
 
-&nbsp;
-
-### Musical fingerprint Tuning, Radio Shack
-
-Radio Shack storage unit, "can you hear me on this old ham radio" invocation of stored techology of home audience viewers of the Cosmos. 
-
-The Who: Getting in Tune? Who are You Signals?      
-https://www.youtube.com/watch?v=W6-3rnD7FSc
-
-Tuning the Radio Shack and finding Carol's out-of-bands English video VHS media.
