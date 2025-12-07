@@ -59,6 +59,21 @@ Carol is starting a world war! A call to arms on Air Force One.
 
 &nbsp;
 
+&bnsp;
+
+### Track 5.1: Drown some *UnSung* Joyce man
+
+Singsong memtaphros.    
+Give up all I have.    
+Drown, Pirate Man sent off the plank in Carol's fiction story.   
+Pay any prize to rescue the hive mind / humanism.   
+
+Who's Next?    
+https://www.youtube.com/watch?v=Ka_pPf7OqiE
+
+
+&nbspl
+
 ### Track 6: Carol can't hear a word Hive Mind Helen says
 
 "David Guetta - Titanium ft. Sia (Official Video)"   
