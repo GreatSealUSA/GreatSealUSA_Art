@@ -132,7 +132,7 @@ https://youtu.be/IOs82ubFyFQ?t=2044 Homosexual Helen and Carol hookup metaphors.
 
 # Track: Facing Las Vegas
 
-{ face cards, Do It Again callback Steely, Leving Las Vegas Carol / Hive Mind flee before Carol's arrival, John Cena (poker player?) face added to Vegas wrestle, Pop Culture, Inside orgy music video scene, Face Dances Who callbacks }
+{ face cards, Do It Again callback Steely, Leving Las Vegas Carol / Hive Mind flee before Carol's arrival, John Cena (poker player?) face added to Vegas wrestle, Pop Culture, Inside orgy music video scene, Face Dances Who callbacks, metahors of wedding veil / Islamic latest Levant mythos women veil - using cards (holding up card backs) to hide your face in poker }
 
 https://www.youtube.com/watch?v=bESGLojNYSo
 
