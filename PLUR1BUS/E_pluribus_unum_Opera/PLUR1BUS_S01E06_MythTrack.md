@@ -72,4 +72,8 @@ Some would call this the Grail legend search. Some would call this a search for 
 
 Those poker games forever, some kind of Lifting the Hive Mind Veil... Mecca women's veils. Some call it magic, Love and hot Tubs are the answer, and you know that!
 
+Future 10 years out of the *now*.
+
 https://www.youtube.com/watch?v=bVYXWVs0Prc
+
+Campbell: Libedo over Credo (ToDO: add more on MythNotes parallel file)
