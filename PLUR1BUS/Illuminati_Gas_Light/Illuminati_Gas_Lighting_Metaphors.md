@@ -18,6 +18,9 @@ Finnegans Wake Wiki this up.
 
 Stage live performance / living: house lights. Carol wanting the street lights on. Vegas lights on. End of episode 6 - when man departs his storage union Radio Shack metaphors - the hive mind turns on the street lights / stage lights for him. Media ecology of stage lighting metaphors vs. northern lights ice cold bed / dead bedroom / marriage metaphors. USA immigration I.C.E. metaphors abound on Helen inviting Carol to the ice cold bed. Name of band... time period of song. Train drawing back earlier in time, year 1976 reflections Woodstock 1969 media meme waves / metaphor waves. Train Doobie Brothers, Long Train Coming song. I.C.E. immigration raids metaphors of USA immigrant / foreign aliens from Africa to Carol and Vegas, Pirate Lady, Elvis King metaphors. Helen cold as I.C.E. hot sex bed metaphors. https://www.youtube.com/watch?v=ySb1f9zWJkQ
 
+Cold bedroom / dead bedroom, Northern Lights visit by Helen gift to Carol. Publisher to writer metaphors, spokeswoman for author metaphors. "Before the stage fell apart" Stage lighting / Truman Show movie light falling on True-man from outer-space simulation dometop. Media ecology metaphors abount, Carol says it looks like a screen saver, flying toasters. Public House toasting, toasting by Carol's adult lit smoking while living with a smoker. Passing the torch, flame to flame, Olympic torch metaphors. You don't know what you have done: The Finale has done, Carol and Helen lit the world on fire at the Zero Hour. https://www.youtube.com/watch?v=m3LUm5cwvfU
+
+
 &nbsp;
 
 ## Associated metaphors
