@@ -22,7 +22,7 @@
 
 11. Quantum entangled Helen academic **graduate school** post-doctorate studies of page-skipping Bitter "Coming Out" of Carol and Finnegans Wake Joyce drunk author / Carol drunk author. Helen the school-educated (minute 22 Episode One) failure to grasp Joyce. "The Omphalos Cafe" "James Joyce's Ulysses: Wake Up You Blockheads!"  time-index link https://www.youtube.com/watch?v=squl14tighM&t=802s
 
-12. Women giving life womb metaphors, Carol's ice bed, eggs on ice. "Speak women", "sacred life giver" Bloomsday / Blooming womb metaphors. Time-index link https://youtu.be/squl14tighM?t=920
+12. Women giving life womb metaphors, Carol's ice bed, eggs on ice. "Speak women", "sacred life giver" Bloomsday / Blooming womb metaphors. Time-index link https://youtu.be/squl14tighM?t=920 Helen schooling Carol to speak her "Bitter birth stage" (virgin eggs metaphors) unpublished deeper personal work and even if you maye one person happy happy happy (hive mind happy metaphors)
 
 &nbsp;
 
