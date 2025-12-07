@@ -107,3 +107,6 @@ https://www.youtube.com/watch?v=Mt9FG9YjBMM
 
 Stunning women, stunning beauty in poker hot tub. Having the run of the retail house. Sex with the employee of the store, servants of the house like Hollywood reality Arnold Governor. 
 
+Touched my mind, consent to touch, "Touched in the nind" metaphors of Judgement Days.
+
+
