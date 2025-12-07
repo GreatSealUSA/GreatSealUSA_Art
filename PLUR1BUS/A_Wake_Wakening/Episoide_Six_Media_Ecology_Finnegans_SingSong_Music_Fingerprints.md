@@ -33,3 +33,4 @@ https://www.youtube.com/watch?v=rZFXicbBb2c
 
 SingSonng, Lot's of Fun at Finnegans Wake Public House, two ladies light-up their cigarettes at the end of the world. Northern lights, eggs blazing, fags and lesbians metaphors, touchy touch-device Pirate Lady gender third-rail literature topics. Smoke up for the first time, Carol: https://youtu.be/YdizZtOddC8?t=71
 
+ToDo: Lunch meeting in Spain for free thinkers before "Woke" of Tim. Finnegan's wife calls for **Naked Lunch** metaphors, Dandom. https://youtu.be/YdizZtOddC8?t=66
