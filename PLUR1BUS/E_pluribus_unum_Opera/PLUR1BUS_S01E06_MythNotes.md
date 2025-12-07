@@ -64,6 +64,8 @@ Media Ecology metaphors, audience programming context USA society: Leaving Las V
 
 ## Elvis Fans from Africa 
 
+From *out of* Africa. Pied Piper metaphors. The Fall of Helen / Fall of Tim Finnegan, Minute 22 of Episode One / Kepler-22b track. EMBED_TRACK OPERA_A: Why did Helen fall for the hive mind mind-games? Treets of the future 1982 https://www.youtube.com/watch?v=e7olfvXs2R4 - littered with the remains of the 13 fools and the so-called hive mind brains. Only God knows...
+
 Elvis fans of USA music may know uSA films.  "Pirate Lady" story of Carols themes. Ship captain metaphors of Carol's books. ["it has been invoked upon the death of several other heads of state. It is famously featured in Dead Poets Society (1989) and is frequently associated with the star of that film, Robin Williams."](https://en.wikipedia.org/wiki/O_Captain!_My_Captain!)
 
 And he likes music, We Built this Vegas city. The Vegas video images / Bay area crossover themes. Elvis fan and Air Force One "Jefferson Airplaine" fan? Lyrics: "Don't tell us you need us 'cause we're the ship of fools: Looking for America!" (immigrant from West Africa looking for Air Force One ride to "No Kings" Elvis Vegas king). Carol to the Hive Mind: "Don't tell us you need Us" ("We Are Us" title Episode One) https://youtu.be/K1b8AhIsSYQ?t=187 (136,012,708 views since February 6, 2013) Elvis radio station / media ecology radio. *Starship* Kepler-22b metaphors abound. Too many hive mind runaways...
