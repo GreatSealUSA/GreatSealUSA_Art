@@ -61,3 +61,15 @@ NOTE: this song is a mind-fuck on audience fandom, the F.M. radio childhood audi
 ToDo: how does Helen and Carol take coffee? Carol the drunk hangover treatments? Clouds in milk boxes.  
 
 To see the total Finnegans Wake night-hours Eclipse of the Northen Lights. Vegas light view scenes, lights on in Carol's City, Neon gas lights of Vegas. 
+
+&nbsp;
+
+# Track: Mind brain games forever
+
+Wrestle with the problems for 10 year plans / planning white board home office.
+
+Some would call this the Grail legend search. Some would call this a search for John 1:1 via Finnegans Wake.Some would call it "Finnegans Woke", mantra "Peace On Earth"
+
+Those poker games forever, some kind of Lifting the Hive Mind Veil... Mecca women's veils. Some call it magic, Love and hot Tubs are the answer, and you know that!
+
+https://www.youtube.com/watch?v=bVYXWVs0Prc
