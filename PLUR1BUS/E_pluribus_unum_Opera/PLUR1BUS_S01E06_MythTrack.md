@@ -81,3 +81,29 @@ Campbell: Libedo over Credo (ToDO: add more on MythNotes parallel file)
 ToDo: not just title song, the whole album!!! From the album Mind Games (1973).
 
 * "John Lennon deeply admired Elvis Presley, viewing him as "the thing" in rock and roll, and paid homage to him in songs like "(Just Like) Starting Over", channeling Elvis/Orbison vibes; The Beatles also covered Elvis tunes like "I'm Gonna Sit Right Down and Cry (Over You)", with Lennon on lead, showing Lennon's foundational love for the King." - Google A.I. LLM hive mind. 2025-12-07 afternoon USA
+
+
+&nbsp;
+
+# Track: Mind-fuck for Real-fuck
+
+Payback of real-fuck hot tub orgy for mind-fuck RNA of humanity. Campbell: "Libedo over Creedo" written hive rules / John Cena enforcer "muscles" for mob rules. Troubadours against the Church, year 1210 Europe history of sex. Women's choice Troubadours year 1210.
+
+ToDO: Any songs about Cambridge Analytica mind-fuck? 
+
+Intercourse dialog intercourse sex, Finnegans Wake both merged.
+
+Vegas TWO meeting *Against Nature* of tag-tem John Cena hive mind nature: https://www.youtube.com/watch?v=tZemaEpPJ80 Nature of the 22B team.
+
+Lighting of neon gasses in Vegas. Deep mystical between me and you, free men / free women. What time of year was it in Vegas? July? 
+
+The hive mind manipulating media channels / media medium (medium is the massage, space age)
+
+Maybe tonight a hand of poker.
+
+# Space Age Lovers Hot Tub Time Machine
+
+https://www.youtube.com/watch?v=Mt9FG9YjBMM
+
+Stunning women, stunning beauty in poker hot tub. Having the run of the retail house. Sex with the employee of the store, servants of the house like Hollywood reality Arnold Governor. 
+
