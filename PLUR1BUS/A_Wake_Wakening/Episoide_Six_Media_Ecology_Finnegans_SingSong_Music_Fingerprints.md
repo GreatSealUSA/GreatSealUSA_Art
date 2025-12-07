@@ -20,7 +20,9 @@
 
 10. RNA / stem sells / egg cells on ice in a cold bed / dead bed / Joyce "The Dead" metaphors of Dublin. Two Lesbians seeking a "virgin" birth on ice bed, science inception of Finnegans Wake metaphors. Man vs. nature, rising above nature with iced egg of Carol. Again, sciencce inception, Finn Again, Then Again. Quantum inception, Quantum conception, Virgin Carol Egg birth metaphors of Joyce. http://www.concentric-literature.url.tw/issues/Idealism/7.pdf  Literary author Quantum engagled on an ice bed of a literary publicist and seller, mixing up the airport public fiction bookshelf. 
 
-11. Quantum entangled Helen academic **graduate school** post-doctorate studies of page-skipping Bitter "Coming Out" of Carol and Finnegans Wake Joyce drunk author / Carol drunk author. Helen the school-educated (minute 22 Episode One) failure to grasp Joyce. "The Omphalos Cafe" "James Joyce's Ulysses: Wake Up You Blockheads!"  https://www.youtube.com/watch?v=squl14tighM&t=802s
+11. Quantum entangled Helen academic **graduate school** post-doctorate studies of page-skipping Bitter "Coming Out" of Carol and Finnegans Wake Joyce drunk author / Carol drunk author. Helen the school-educated (minute 22 Episode One) failure to grasp Joyce. "The Omphalos Cafe" "James Joyce's Ulysses: Wake Up You Blockheads!"  time-index link https://www.youtube.com/watch?v=squl14tighM&t=802s
+
+12. Women giving life womb metaphors, Carol's ice bed, eggs on ice. "Speak women", "sacred life giver" Bloomsday / Blooming womb metaphors. Time-index link https://youtu.be/squl14tighM?t=920
 
 &nbsp;
 
