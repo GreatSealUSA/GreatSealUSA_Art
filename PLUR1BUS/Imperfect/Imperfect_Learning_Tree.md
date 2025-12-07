@@ -9,3 +9,16 @@ Niether knew the missing key.
 # .
 
 Neither knew www.Romans1132.com (Rhyming singsong phrase)
+
+&nbsp;
+
+&nbsp;
+
+# Imperfect counting of population
+
+Episode 6 gives a population account, but ignores the real world accounting failures.
+
+Since school has been eliminated, all language translation issues resolved, all commmunications issues resolved. Many domestic abuse, parents disappearing newborns, torture / secret prisons discovered, etc. 
+
+Mah 31, 2025     
+https://www.theguardian.com/commentisfree/2025/may/31/earth-population-billions-decline-birthrate-west
