@@ -77,4 +77,4 @@ Radio Shack storage unit, "can you hear me on this old ham radio" invocation of 
 The Who: Getting in Tune? Who are You Signals?      
 https://www.youtube.com/watch?v=W6-3rnD7FSc
 
-Tuning the Radio Shack and finding Carol.
+Tuning the Radio Shack and finding Carol's out-of-bands English video VHS media.
