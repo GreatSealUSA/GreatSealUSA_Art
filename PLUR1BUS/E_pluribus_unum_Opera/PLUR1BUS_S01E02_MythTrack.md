@@ -67,6 +67,9 @@ Singsong memtaphros.
 Give up all I have.    
 Drown, Pirate Man sent off the plank in Carol's fiction story.   
 Pay any prize to rescue the hive mind / humanism.   
+I'm looking for that *free ride* to me, you. Pirate spyglass metaphors. Pirates are parasides, ride for free. 
+
+EMBED_TRACK 5.1.1: keyboard metaphors, music keys counting timer countdowns onscreen. Pirate sailing. Images of Carol's Blues. 73 men, San Francisco USA freedom of lexbian sexuality. We Are CALLING EVERYONE to Join the Other Shore of Kepler-22B - Happy Laugh our Lives Away. Nobody voluteered at all. Watching those rain-drops tear-drops fall. https://www.youtube.com/watch?v=HqFFjoRnltg future history, ride starships - be amazed at the friends on your hive mind tripping out.
 
 Who's Next?    
 https://www.youtube.com/watch?v=Ka_pPf7OqiE
