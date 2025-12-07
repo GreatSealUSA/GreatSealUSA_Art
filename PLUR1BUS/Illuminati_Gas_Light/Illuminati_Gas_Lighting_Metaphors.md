@@ -35,6 +35,8 @@ Cold bedroom / dead bedroom, Northern Lights visit by Helen gift to Carol. Publi
 
 5. "Blinded By The Light" media ecology / media empire / Eden metaphors / Northern lights metaphors in Pluribus. Media ecology of associated metaphor media: https://www.youtube.com/watch?v=flPSUqo6ml0 to I.C.E. immigration / USA passport controls. Visa controls. Apple music empire / podcast empire / iPod empire. Bruce Springsteen subconsous metaphor monomyth association to outspoken criticism from outside nation. Rolling Stone metaphors, rolling to Finnegan Wake Dublin cycles of Joyce media ecology (McLuhan) moving away from Trump to Ireland media messages: https://www.hispano-irish.com/bruce-springsteen-says-hell-move-to-ireland-if-trump-wins-irish-central/ - being famous and the song "Blinded By The Light" written by Springsteen early on about *Almost Famous* (Rolling Stone magazine) and film to TV to Apple TV media ecology Finnegans Wake style associations / McLuhan Wake, invention of the very field of "media ecology", the movement of media, ecological northern lights / Kepler-22b media ecology fiction vs. NASA nonfiction progress of humankind (happy/kindness/world peace metaphors abound) in discovery of planet in habitat zone... media of light telescopes / electromagnetic spectrum / space lighting aurorae metaphor parallels to Great Seal USA Pyramid "The Enlightment"...
 
+6. Meta-meta-meta metaphors meta. I created this GitHub page on Sun-Day, Northern Lights sun metaphors. Decemer 7, 2025. Morning.
+
 
 &nbsp;
 
