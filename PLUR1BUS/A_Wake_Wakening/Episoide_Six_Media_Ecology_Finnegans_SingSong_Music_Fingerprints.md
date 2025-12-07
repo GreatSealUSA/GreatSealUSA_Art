@@ -18,7 +18,9 @@
 
 9. Joyce is the ultimate All In One Thunderwords voice. The 1923 depth-charges of Finn's Hotel streaming publication year 1924 onward. Carol's Bitter "Coming Out of the Closet" unpublished book, *Work In Progress* metaphors abound. https://JamesJoyce.ie/events/mamalujo-finnegans-wake-as-a-work-in-progress/
 
-10. RNA / stem sells / egg cells on ice in a cold bed / dead bed / Joyce "The Dead" metaphors of Dublin. Two Lesbians seeking a "virgin" birth on ice bed, science inception of Finnegans Wake metaphors. Man vs. nature, rising above nature with iced egg of Carol. Again, sciencce inception, Finn Again, Then Again. Quantum inception, Quantum conception, Virgin Carol Egg birth metaphors of Joyce. http://www.concentric-literature.url.tw/issues/Idealism/7.pdf  Literary author engagled on an ice bed of a literary publicist and seller, mixing up the airport public fiction bookshelf.
+10. RNA / stem sells / egg cells on ice in a cold bed / dead bed / Joyce "The Dead" metaphors of Dublin. Two Lesbians seeking a "virgin" birth on ice bed, science inception of Finnegans Wake metaphors. Man vs. nature, rising above nature with iced egg of Carol. Again, sciencce inception, Finn Again, Then Again. Quantum inception, Quantum conception, Virgin Carol Egg birth metaphors of Joyce. http://www.concentric-literature.url.tw/issues/Idealism/7.pdf  Literary author Quantum engagled on an ice bed of a literary publicist and seller, mixing up the airport public fiction bookshelf. 
+
+11. Quantum entangled Helen academic **graduate school** post-doctorate studies of page-skipping Bitter "Coming Out" of Carol and Finnegans Wake Joyce drunk author / Carol drunk author. Helen the school-educated (minute 22 Episode One) failure to grasp Joyce. "The Omphalos Cafe" "James Joyce's Ulysses: Wake Up You Blockheads!"  https://www.youtube.com/watch?v=squl14tighM&t=802s
 
 &nbsp;
 
