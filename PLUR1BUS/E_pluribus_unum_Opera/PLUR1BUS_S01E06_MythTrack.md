@@ -128,4 +128,13 @@ Book reading, An American reading a German book: https://youtu.be/IOs82ubFyFQ?t=
 
 https://youtu.be/IOs82ubFyFQ?t=2044 Homosexual Helen and Carol hookup metaphors.
 
+&nbsp;
+
+# Track: Facing Las Vegas
+
+{ face cards, Do It Again callback Steely, Leving Las Vegas Carol / Hive Mind flee before Carol's arrival, John Cena (poker player?) face added to Vegas wrestle, Pop Culture, Inside orgy music video scene, Face Dances Who callbacks }
+
+https://www.youtube.com/watch?v=bESGLojNYSo
+
+Can't read Carol's Wall Facer face 
 
