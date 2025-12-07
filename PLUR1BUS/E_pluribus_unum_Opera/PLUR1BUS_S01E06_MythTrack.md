@@ -35,3 +35,29 @@ An Africa consumer of USA Elvis takes up residence in an immgrant hotel.
 https://youtu.be/YAlDbP4tdqc?t=96
 
 57 channels. "I can see it in your eyes" of the hive mind / free thinkers / Carol's eyes.
+
+&nbsp;
+
+### Track: Musical fingerprint Tuning, Radio Shack
+
+Radio Shack storage unit, "can you hear me on this old ham radio" invocation of stored techology of home audience viewers of the Cosmos. 
+
+The Who: Getting in Tune? Who are You Signals?      
+https://www.youtube.com/watch?v=W6-3rnD7FSc
+
+Tuning the Radio Shack and finding Carol's out-of-bands English video VHS media.
+
+&nbsp;
+
+### Track: Carol, you think Milk is about you
+
+John Cena / Vegas meeting with detected El Supremo at the stop of the stairs. Ghost of Elvis (Waslking in Memphis). Waking into Vegas party.
+
+https://www.youtube.com/watch?v=j13oJajXx0M      
+18,072,251 views January 17, 2012 (13 years ago)    
+
+NOTE: this song is a mind-fuck on audience fandom, the F.M. radio childhood audience hive mind. It distorts and slows down sections. Media ecology within ecology. It does not have any distinguish song title remix indicator ;) Booby trapped media metaphors.
+
+ToDo: how does Helen and Carol take coffee? Carol the drunk hangover treatments? Clouds in milk boxes.  
+
+To see the total Finnegans Wake night-hours Eclipse of the Northen Lights. Vegas light view scenes, lights on in Carol's City, Neon gas lights of Vegas. 
