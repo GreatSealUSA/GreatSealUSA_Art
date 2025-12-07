@@ -101,12 +101,25 @@ The hive mind manipulating media channels / media medium (medium is the massage,
 
 Maybe tonight a hand of poker.
 
+&nbsp;
+
 # Track: Space Age Lovers Hot Tub Time Machine
 
 https://www.youtube.com/watch?v=Mt9FG9YjBMM
 
-Stunning women, stunning beauty in poker hot tub. Having the run of the retail house. Sex with the employee of the store, servants of the house like Hollywood reality Arnold Governor. 
+(Visual of specific YouTube selection... film footage) Stunning women, stunning beauty in poker hot tub. Having the run of the retail house. Sex with the Target-ed employee of the store, servants of the house like Hollywood reality Arnold Governor. First sex, threshold crossing of youth in the film. Elvis fandom, young girls... below the hips visuals. Ed Sullivan Show != Vegas Show Girls / Caberet
 
 Touched my mind, consent to touch, "Touched in the nind" metaphors of Judgement Days.
 
+&nbsp;
 
+# Track: not just entertainment
+
+Full Show, full nudity metaphors. https://www.youtube.com/watch?v=IOs82ubFyFQ
+
+Vegas... Elvis on tap.
+
+"1,357,764 views January 28, 2019"      
+"Cabaret 1993 - Mendes Production \[feat Alan Cumming\] (Full show)"  
+
+Cumming, fertility meta title.
