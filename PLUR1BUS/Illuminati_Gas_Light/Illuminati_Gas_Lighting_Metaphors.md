@@ -16,7 +16,7 @@ Carol lit a cigarette at the Zero Hour and they drew big attention to her being 
 
 ## Associated metaphors
 
-1. Apple TV+ lit screen social media device, Apple computers metaphors, of Helen before The Fall of Helen (Finnegan, Finn Cycle https://en.wikipedia.org/wiki/Fenian_Cycle ). Apple TVPlus "media illuninati" ([Citizen Kane 1941 Germany World War Two metaphors, USA media ecology, Roger Ebert](https://www.rogerebert.com/reviews/great-movie-citizen-kane-1941) who married a black woman antii-Illuminati metaphors. [Chicago Sun-Times illuminate Sun](https://en.wikipedia.org/wiki/Roger_Ebert) metaphors.)
+1. Apple TV+ lit screen social media device, Apple computers metaphors, of Helen before The Fall of Helen (Finnegan, Finn Cycle https://en.wikipedia.org/wiki/Fenian_Cycle ). Apple TVPlus "media illuninati" ([Citizen Kane 1941 Germany World War Two metaphors, USA media ecology, Roger Ebert](https://www.rogerebert.com/reviews/great-movie-citizen-kane-1941) who married a black woman (like forbidden USA social marriage of two lesbians in Pluribus unity story) anti-Illuminati metaphors. [Chicago Sun-Times illuminate Sun](https://en.wikipedia.org/wiki/Roger_Ebert) metaphors.)
 
 2. Helen and Carol taking up smoking together at the Zero Hour, Edward Bernays "media power Illuminati". https://en.wikipedia.org/wiki/Torches_of_Freedom Statue of Liberty. Lady liberty. Union of lesbian The Enlightment metaphors. again: https://en.wikipedia.org/wiki/Torches_of_Freedom  Easer Sunday 1929, Sunday born light, summer solstice pre-prep death, before Birthday December 25 winter solstice reborn. Planting of body into earth, sunlight grows plants, death of human body to feed nutrition to earth metaphors.
 
