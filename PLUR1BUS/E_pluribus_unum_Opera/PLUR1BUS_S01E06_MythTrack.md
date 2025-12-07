@@ -123,3 +123,9 @@ Vegas... Elvis on tap.
 "Cabaret 1993 - Mendes Production \[feat Alan Cumming\] (Full show)"  
 
 Cumming, fertility meta title.
+
+Book reading, An American reading a German book: https://youtu.be/IOs82ubFyFQ?t=1997
+
+https://youtu.be/IOs82ubFyFQ?t=2044 Homosexual Helen and Carol hookup metaphors.
+
+
