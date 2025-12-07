@@ -64,7 +64,7 @@ Carol is starting a world war! A call to arms on Air Force One.
 ### Track 5.1: Drown some *UnSung* Joyce man
 
 Singsong memtaphros.    
-Give up all I have.    
+Give up all I have. Even Air Force One property rights.       
 Drown, Pirate Man sent off the plank in Carol's fiction story.   
 Pay any prize to rescue the hive mind / humanism.   
 I'm looking for that *free ride* to me, you. Pirate spyglass metaphors. Pirates are parasides, ride for free. 
