@@ -77,3 +77,6 @@ Future 10 years out of the *now*.
 https://www.youtube.com/watch?v=bVYXWVs0Prc
 
 Campbell: Libedo over Credo (ToDO: add more on MythNotes parallel file)
+
+ToDo: not just title song, the whole album!!! From the album Mind Games (1973).
+
