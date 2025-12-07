@@ -80,3 +80,4 @@ Campbell: Libedo over Credo (ToDO: add more on MythNotes parallel file)
 
 ToDo: not just title song, the whole album!!! From the album Mind Games (1973).
 
+* "John Lennon deeply admired Elvis Presley, viewing him as "the thing" in rock and roll, and paid homage to him in songs like "(Just Like) Starting Over", channeling Elvis/Orbison vibes; The Beatles also covered Elvis tunes like "I'm Gonna Sit Right Down and Cry (Over You)", with Lennon on lead, showing Lennon's foundational love for the King." - Google A.I. LLM hive mind. 2025-12-07 afternoon USA
