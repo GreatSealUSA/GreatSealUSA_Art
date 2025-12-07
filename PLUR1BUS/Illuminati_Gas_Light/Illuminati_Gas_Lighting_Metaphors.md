@@ -12,6 +12,12 @@ Carol lit a cigarette at the Zero Hour and they drew big attention to her being 
 
 &nbsp;
 
+# House lights
+
+Finnegans Wake Wiki this up.
+
+Stage live performance / living: house lights. Carol wanting the street lights on. Vegas lights on. End of episode 6 - when man departs his storage union Radio Shack metaphors - the hive mind turns on the street lights / stage lights for him. Media ecology of stage lighting metaphors vs. northern lights ice cold bed / dead bedroom / marriage metaphors. USA immigration I.C.E. metaphors abound on Helen inviting Carol to the ice cold bed. Name of band... time period of song. Train drawing back earlier in time, year 1976 reflections Woodstock 1969 media meme waves / metaphor waves. Train Doobie Brothers, Long Train Coming song. I.C.E. immigration raids metaphors of USA immigrant / foreign aliens from Africa to Carol and Vegas, Pirate Lady, Elvis King metaphors. Helen cold as I.C.E. hot sex bed metaphors. https://www.youtube.com/watch?v=ySb1f9zWJkQ
+
 &nbsp;
 
 ## Associated metaphors
