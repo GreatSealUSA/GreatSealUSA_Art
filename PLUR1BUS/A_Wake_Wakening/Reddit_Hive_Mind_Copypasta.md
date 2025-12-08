@@ -93,3 +93,5 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 31. Pilot episode. Air Force One / commercial flight pilots. Cruise control / autopilot metaphors of not getting the story as audience members. Flying above head on cruise control patrol car / I.C.E. crusing the streets for immigrants Carol policing / autopilot reactionary reading of { Finnegans Wake, Pluribus, Great Seal USA - Power of Myth, Inner Reaches of Outer Space meaning of Pluribus latin }
 
+32. McLuhan's "lazy wake" Finnegans Wake audience interview. Stoned drunk. (One Burbon One Scotch One Beer lyrics used "stoned"?) Carol Stoned on booze and first-time smoking at Zero Hour. How stoned readers of audience are like second screen readers, won't follow hyperlinks / Wiki reading. Stoner Terence McKenna mushroom (mushroom cloud atom bomb Carol request pending) better than lazy drugs. Hive mind fugus metaphros of Terence McKenna. Stoner readers, zoned out readers, won't get the story.
+
