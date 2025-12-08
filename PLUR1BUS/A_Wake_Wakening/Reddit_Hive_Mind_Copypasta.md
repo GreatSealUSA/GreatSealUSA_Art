@@ -29,4 +29,14 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 ## Meta More
 
-"The Gods Must Be Crazy" signals from above metaphors?
+1. "The Gods Must Be Crazy" signals from above metaphors?
+
+2. Audience squares son't get it. This is a repeating sign-wave occliscope message, not a square wave, PCM encoding.
+
+3. Square cultural reference is Charlie Brown and Lucy (Mind Doctor is in for 5 cents) - and Spike lives in Needles near Vegas - anyway "Blockhead" - Squares metaphors. Block chain, block signal, signal blocking, Radio Shack Storage Manager signal block chain analysis?
+
+4. Try the RNA message on a vibrator. Contact she puts it through speakers for a blind man "to feel". Helen an Carol vibrator metaphors.
+
+5. Any lesbian scissor sex jokes? Couple of two, married. The message was "cut off", and more than 78 seconds?
+
+6. Old Ham Radio - Ruins of Sante Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technolgy. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM
