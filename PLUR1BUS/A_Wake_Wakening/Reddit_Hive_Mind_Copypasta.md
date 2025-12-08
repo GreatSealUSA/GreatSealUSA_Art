@@ -39,4 +39,5 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 5. Any lesbian scissor sex jokes? Couple of two, married. The message was "cut off", and more than 78 seconds?
 
-6. Old Ham Radio - Ruins of Sante Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technolgy. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM
+6. Old Ham Radio - Ruins of Sante Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technolgy. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM - Radio Shack man won't take bread from the hivemind. He is traveling to the promised land. Rio Grande language. King Elvis Vegas.
+
