@@ -99,9 +99,11 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 34. Caerol always bitching, being a woman's bitch, wearing pants in the family. Bitching audience members who don't like Helen's graduate work on Joyce reading.
 
-35. Carol, substance abuser, stoning the hive mind. Weight in stones of a heavy load (Pink Floyd, "Hey You" lyrics), Molly Hatchet (Women revenge on men) Flirting With Disaster heavy load / Carol's message to 12: You'All know what I mean about body snacher movies, right? on Air Force One command and control / Cheif meeting commander roles. American mythology of Finnegans Wake Levant monomyth transitions: TItle "Rainy Day Women" metaphor for dry drunk woman, Carol wet drinking - stoning the "good" behavior Hive Mind. Stone living all alone (Carol) all lone / hive mind rescue from lonliness https://www.youtube.com/watch?v=fm-po_FUmvM
+35. Carol, substance abuser, stoning the hive mind. Weight in stones of a heavy load (Pink Floyd, "Hey You" lyrics), Molly Hatchet (Women revenge on men) Flirting With Disaster heavy load / Carol's message to 12: You'All know what I mean about body snacher movies, right? on Air Force One command and control / Cheif meeting commander roles. American mythology of Finnegans Wake Levant monomyth transitions: TItle "Rainy Day Women" metaphor for dry drunk woman, Carol wet drinking - stoning the "good" behavior Hive Mind. Stone living all alone (Carol) all lone / hive mind rescue from lonliness https://www.youtube.com/watch?v=fm-po_FUmvM (Rainy Day women: pouring booze, pouring rainfall, Helen Fall of Mankind, Tim Finnegan Falls at the Zero Hour Public House at Episode One minute-men 22)
 
 36. Body snackers, body snatchers invasion
 
 37. Lost and found metaphors. Helen on a milk carton lost to Carol.
+
+38. Milk is for babies on the teet. Carol egg nesting on ice. Milk is for babies from mama, Carol spices up the milk with Irish car bombs, Finnegans Wake curdled milk. Stout woman with a heavy pour: https://en.wikipedia.org/wiki/Irish_car_bomb_(cocktail)
 
