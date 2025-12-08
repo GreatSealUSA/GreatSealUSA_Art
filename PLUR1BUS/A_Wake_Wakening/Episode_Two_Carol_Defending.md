@@ -34,6 +34,18 @@ CAMPBELL: You have to go past the imagined image of Jesus. Such an image of oneâ
 
 &nbsp;
 
+# Carol Age 16 kidnap 
+
+As a kid, kid-napped to forced lesiban hive mind conditions. Pirate Lady stole Carol's booty partner, Helen.
+
+"In Patrick's autobiographical Confessio, he writes that when he was about sixteen, he was captured by Irish pirates from his home in Britain and taken" -  https://en.wikipedia.org/wiki/Saint_Patrick - same age as Carol kidnapping, age 16
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 ## Beyond GitHub 
 
 https://bsky.app/profile/greatsealusa.bsky.social/post/3m5hcns6n6c2l      
