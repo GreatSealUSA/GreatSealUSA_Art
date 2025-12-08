@@ -29,4 +29,7 @@ Carol's arrested development of DUI / drink driving devices (literary devices) o
 
  4. USA society paranoia about I.C.E. police metaphors and police cars / unmarked / unmask. All over again, Deja Vu. { Carol letting her freak flag fly, feels like she owes it to Helen / lesbian independence } https://youtu.be/as5lE64J1hQ?t=53 { had the flu virus, Christmas reborn / born again in hive mind for Helen, increases my paranoia, mirror, giving in an inch to fear, promise this year / new years of countup timer of yeaz 0 Jesus on-screen counting Zero Hour } https://youtu.be/as5lE64J1hQ?t=95
 
+5. "Buddy cops", roughing up the airport book promotion stand. Airport security crossing metaphors of I.C.E. immigrants police state. Book buddy cops. Publisher wife / Author wife.
+
+
 
