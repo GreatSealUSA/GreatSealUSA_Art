@@ -71,4 +71,12 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 20. Police slammer, slamming a drink. Policing the hive mind from ICEd drinks, chilled drinks, chill out Carol...
 
+21. Great Seal USA age 21 metaphors, 21 math of Campbell / founding fathers indoctrination ritual age into the Pluribus hive mind, year 1776 proposal. Age 21 boozing by Carol. Passport / graduate study (Helen) metaphors / passing age 21 age of "Reason Thinking" boozing, Carol threshold arrested development (police car, handcuffs of hive mind Pirate Lady).
 
+22. Detox from Carol, leaving her city, fleeing Vegas before she arrives.
+
+23. Hangovers from Carol. Hangman pirates / piracy criminals.  Hanging man from the crashed air craft after carol crashed the hive mind the first time in street assult in front of her house.
+
+24. Go home carol, you drunk
+
+25. Rituals of age 21 passing. Reddit audience not grasping adult content of Joyce. Joyce banned in USA. Thrown out of the PUblic House / Public Library by police state, Joyce was. Druk given the bum's rush by Federals.
