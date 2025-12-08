@@ -37,3 +37,17 @@ Have you ever read Finnegans Wake? it is the least "on the nose" book you will e
 Speaking of concrete, Helen / Tim fall on hard rock and cracked her / his skull. What brings Tim Finnegan back to life? The water of life, booze.
 
 At 31 minutes in Episode Three, the "water of life" is brought up.
+
+&nbsp;
+
+&nbsp;
+
+## Fall of the Helen Peacemaker 
+
+In the relationship, Helen is "the calm one" in the marriage. https://youtu.be/hBaiyzj5wdc?t=161 Helen is the P.R. publisher for the couple, she arranges the conversations / dialogs.
+
+The Fall of the Peacemaker - USA song about "Give Peace a Chance!"     
+
+Dreamer / Imagine they call the hive minds utopia dreamers.    
+
+https://www.youtube.com/watch?v=gncyDkWWY_w
