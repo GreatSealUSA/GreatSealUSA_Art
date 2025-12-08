@@ -139,3 +139,14 @@ https://www.youtube.com/watch?v=bESGLojNYSo
 Can't read Carol's Wall Facer face 
 
 ToDo: any Elvis in this visuals or song?
+
+&nbsp;
+
+# Track: King me "The King" Elvis 
+
+Elvis suite King, Cqrol the Bee-hive Queen with her lover Helen.   
+
+"All Good People" moved past Queen Carol to the Hive Mind, but she races to battle the game of wits with "The King" Elvis content. Music + author Carol seeking the Editor / Publisher Helen. Defending their genetic diversity from the hive mind, their strategic chess movies.
+
+https://www.youtube.com/watch?v=x4_iGD0FMkk
+
