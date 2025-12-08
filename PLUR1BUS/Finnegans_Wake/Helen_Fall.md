@@ -52,6 +52,6 @@ Dreamer / Imagine they call the hive minds utopia dreamers.
 
 https://www.youtube.com/watch?v=gncyDkWWY_w
 
-Burial ritual of Helen in back-40 (spouse in [Intersteller 2014 *science fiction* film](/GreatSealUSA_Art/blob/main/Interstellar_2014/Religion_Interstellar.md)). 
+Burial ritual of Helen in back-40 (spouse in [Intersteller 2014 *science fiction* film](/GreatSealUSA_Art/blob/main/Interstellar_2014/Religion_Interstellar.md)). Gravity equations of lifting the curse of the hive mind infection / virus. Gravity to lift Helen out of her grave, Finnegans Ladder to space elevator climb / Tower of Babel author Carol John 1:1 climbing.
 
 { Bonus themes: "Land without a truth", Carol's rule of hive mind never lies. "Land without a King" - Elvis Suite of Hotel, The King. Stop the madness of Carol, angry mad, madness of the hive mind peace utopia }
