@@ -40,6 +40,18 @@ Carol does a lot of moves, the butterfy effect. Even if Carol is in private in h
 
 &nbsp;
 
+### Track 3.1 Lunchfast Air Force One
+
+The Air Force One meeting dramatically addreses the hive mind from the top of the stairs (Dandom "Show Biz Kids" of Elvis)...
+
+The lunch meeting has metaphors of pre-Twelve gather for Jesus 13. Only 5, partial assembly.
+
+Mr. Robot Open Source, Public Table, gathering of the Free Thinkers about a Future World song:
+
+https://old.reddit.com/r/MrRobot/comments/e31daz/for_those_with_family_and_friends_to_celebrate/
+
+&nbsp;
+
 ### Track 4: Helen is So Happy, She Smiled On Death
 
 &nbsp;
