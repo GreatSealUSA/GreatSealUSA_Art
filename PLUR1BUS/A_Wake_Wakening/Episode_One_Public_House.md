@@ -53,3 +53,23 @@ So the Cigarette. Helen just mind-fucked Carol in a consentual way in the Public
 So, to recap what I am saying: Carol didn't understand fully what Helen just said about her graduate school study of Finengans Wake, Carol has likely never touched by Finnegans Wake. But the *weight* of the Wake, the density of Plutonium creation in a breeder reactor *was felt in the heart to heart talk of spouses*. It was felt *so deeply* by Carol, that she felt they had just consuated the marriage. They just passed second stage threshold. And Carol wanted a cigarette after being heart-fucked / mid-fucked by Helen into unity marriage. They had just created the ultimate human hivemind of Troubadour year 1210 choice marriage. It had flowered out of their partnership. They walk outside to do the smoke ritual celebration (after dialog spiritual intercourse / sexual intercourse consumation).
 
 Maybe it was at that point, in her mind, the egg timer of the frozen eggs was going to ring for Carol? Don't know... but looking at future episodes for discussion of age and menopause and more than just polish / edit / publish of Carol's deeper Bitter Pupa book. (Pupa being a stage of development, Campell's stage of marriages, society Finnegans Wake 4 stage cycles, etc, etc. Fractals, Finnegans Wake is fractal art, zoom in zoom out, Cosmos forest zoop to one human heart tree).
+
+&nbsp;
+
+&nbsp;
+
+# Book Tour: "A Book Of Dumb Love"    
+
+Romance Pirate tales, dumb love stories.    
+
+The Book of The Dumb. Monomyth Piracy metaphors, The Heroe's Journey where writers never go to Minute 22 (Kepler-22b) of Episode One and graduate school threshold of actually reading the TRUE ORGIN of MonoMyth pre-Campbell. So many fiction literary writers latch on 1949 Campbell without going to 1923 Finn's Hotel.  Page 581 of Finnegans Wake,"MonoMyth" and seeing the "Dumb love" story science fiction { Quran, Bible, Torah } trillogy. 
+
+Book of Love, Gabriel and Peter speak: 
+
+Book of love: where music comes from (Campbell expounds on sound singsong of the universe, Aum) and his wife directs teaches dancing of Finnegans wake. https://youtu.be/cTVpoT82toY?t=72
+
+Long and boring, written very long ago ( Torah Tower of Babel ) https://youtu.be/cTVpoT82toY?t=139
+
+https://youtu.be/cTVpoT82toY?t=153 { flowers, bees, hive minds, cross-polination }
+
+SEE_ALSO: Same artists bee hive metaphors. Sledgehammer 
