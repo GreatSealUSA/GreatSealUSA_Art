@@ -4,6 +4,8 @@ CONTEXT ASSERTION: Vegas founded by religion Mormons USA https://www.nps.gov/art
 
 CONTEXT ASSERTION: Book of Life / Book of Deaths "book written" Bible verse Exodus 32:32 https://biblehub.com/exodus/32-32.htm
 
+CONTEXT ASSERTION: Vince Gilligan public education https://youtu.be/kFrffEktluo?t=3315
+
 &nbsp;
 
 # 12 unveil deeds of men
