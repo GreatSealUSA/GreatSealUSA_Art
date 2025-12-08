@@ -96,3 +96,5 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 32. McLuhan's "lazy wake" Finnegans Wake audience interview. Stoned drunk. (One Burbon One Scotch One Beer lyrics used "stoned"?) Carol Stoned on booze and first-time smoking at Zero Hour. How stoned readers of audience are like second screen readers, won't follow hyperlinks / Wiki reading. Stoner Terence McKenna mushroom (mushroom cloud atom bomb Carol request pending) better than lazy drugs. Hive mind fugus metaphros of Terence McKenna. Stoner readers, zoned out readers, won't get the story.
 
 33. Carol the book author does a book tour audience AMA on Reddit. Mirroring opening of the Pilot Episode, but Helen convices her to do it online. "terminal moraine" line from Joseph Campbell / JCF lectures of broken mythoogy stories. Terminal online book tour audience, Helen touching the touch device with the cigarette lit in a dark parking lot at the Zero Hour.
+
+34. Caerol always bitching, being a woman's bitch, wearing pants in the family. Bitching audience members who don't like Helen's graduate work on Joyce reading.
