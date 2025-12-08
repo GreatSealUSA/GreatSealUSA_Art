@@ -51,3 +51,5 @@ The Fall of the Peacemaker - USA song about "Give Peace a Chance!"
 Dreamer / Imagine they call the hive minds utopia dreamers.    
 
 https://www.youtube.com/watch?v=gncyDkWWY_w
+
+{ Bonus themes: "Land without a truth", Carol's rule of hive mind never lies. "Land without a King" - Elvis Suite of Hotel, The King. Stop the madness of Carol, angry mad, madness of the hive mind peace utopia }
