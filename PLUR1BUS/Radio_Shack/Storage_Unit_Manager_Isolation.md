@@ -1,6 +1,6 @@
 # Storage Unit Manager Isolation
 
-I have witnessed manu do indeed live at the storage unit for 24 hour security.
+I have witnessed many do indeed live at the storage unit for 24 hour security.
 
 > For me the real mystery is how a guy who works in a storage facility knows so many secret details about the hive consciousness.
 
