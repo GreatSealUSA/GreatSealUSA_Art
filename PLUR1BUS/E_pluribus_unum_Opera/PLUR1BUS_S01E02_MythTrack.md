@@ -42,7 +42,7 @@ Carol does a lot of moves, the butterfy effect. Even if Carol is in private in h
 
 ### Track 3.1 Lunchfast Air Force One
 
-The Air Force One meeting dramatically addreses the hive mind from the top of the stairs (Dandom "Show Biz Kids" of Elvis)...
+The Air Force One meeting dramatically addreses the hive mind from the top of the stairs (Dandom "Show Biz Kids" of Elvis)... to arrange lunch, to conduct lunch, master to hivemind.
 
 The lunch meeting has metaphors of pre-Twelve gather for Jesus 13. Only 5, partial assembly.
 
