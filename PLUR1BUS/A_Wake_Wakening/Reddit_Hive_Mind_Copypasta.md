@@ -64,3 +64,11 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 16. Lush metaphors? Being a drunk "lush" https://www.merriam-webster.com/dictionary/lush writer Carol? Lush sexual vibrators for lesbians? https://www.lovense.com/store/lush-vibrators - Carol shaking the tree of hive for an Eve apple to fall metaphors? Hitting the G-spot / God-spot for that Eve Adam Apple? Carol's emotional outbrusts quake the earth sexual orgasm quaking metaphors? Slege Carol with her emotional triggering of the bombs and hive mind freakouts? https://www.youtube.com/watch?v=OJWJE0x7T4Q
 
 17. Intoxicating writing, music, environment / gas lighting / gas leaks / drunk on fumes / drunk on breath detector in car-fumes Carol's dashboard
+
+18. Cock-tales of why lesbians. Drinking squirt. Drinking cock, refusing the hive cocky? Cocktail drunks at the Public House Episode One minute 22. Tale tellings of cocks, writer's tales, Vince Gilligan's story tales metaphors.
+
+19. Neat / streight / sexual lesbians / straight from the bottle drinking of Carol.
+
+20. Police slammer, slamming a drink. Policing the hive mind from ICEd drinks, chilled drinks, chill out Carol...
+
+
