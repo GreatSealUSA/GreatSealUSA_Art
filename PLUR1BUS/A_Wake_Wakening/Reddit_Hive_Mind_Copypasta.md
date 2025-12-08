@@ -84,3 +84,9 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 26. Not a show for babies (famous line of YouTube YMS). Carol asserts this at the Air Force One lunch break / smoke break (callback to Episode One minute 22 non-smoking break). Carol asserts by having the child (boy) cover adult (woman) birthing subjects at the meal table.
 
 27. How smoking by drunk is a common experience, Carol minute 22 Episde One. Episode for commercial TV media ecology Breaking Bad has commercial breaks / acts. Uninterputed viewing - not using second screen and commenting on Reddit. Distracted comment reading / distracted Pluribus watching.
+
+28. Pickle Rick. Carol getting pickled drunk, Joyce pickle writing codes / encryption keys. IBM Austin Pickle Center NSA super computer cluster (NSA San Antonio references, Vegas Manhattan Project testing grounds Nebvada, White Sands New Mexico). Drunk Carol, drinking langage, pickle. Public House Episode One Minute 22 chemical dependency release button metaphors, "pushing the button", pickle / cucumber as sexual literaure metaphors (Dandom) https://taskandpurpose.com/history/military-pilots-drop-bombs-pickle-button/ - and all around sausage fest / pickle fest metaphors of Morty / Rick duo... Helen Carol dynamic writing duo. https://old.reddit.com/r/EnglishLearning/comments/1e66rix/can_pickle_also_mean_damage/
+
+29. Chornically drunk carol, Chronic metaphors. She allso does perscription pills, white woman's suburub, Mother's Little Helpeer metaphors.
+
+30. Booze Cruise Carol - cruising car (Sante Fe King Of the World dandom / Midnight Cruisder Zero Hour Dandom) - police cruiser. Brusing for a drunk cruising / DUI. Booze Cruise ship metaphors, pirate ship ladies. Booze Cruise missles, atomic bomb / bombed-out Carol. Booze Cruise Kepler-22B space ships.
