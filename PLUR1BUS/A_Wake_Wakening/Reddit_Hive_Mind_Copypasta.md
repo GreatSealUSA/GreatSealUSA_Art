@@ -29,7 +29,7 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 ## Meta More
 
-1. "The Gods Must Be Crazy" signals from above metaphors?
+1. "The Gods Must Be Crazy" signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology?
 
 2. Audience squares son't get it. This is a repeating sign-wave occliscope message, not a square wave, PCM encoding.
 
