@@ -148,5 +148,7 @@ Elvis suite King, Cqrol the Bee-hive Queen with her lover Helen.
 
 "All Good People" moved past Queen Carol to the Hive Mind, but she races to battle the game of wits with "The King" Elvis content. Music + author Carol seeking the Editor / Publisher Helen. Defending their genetic diversity from the hive mind, their strategic chess movies.
 
+Mr. White / Mad Hatter man / Capture All We The People Want... Betty White, "White Queen".
+
 https://www.youtube.com/watch?v=x4_iGD0FMkk
 
