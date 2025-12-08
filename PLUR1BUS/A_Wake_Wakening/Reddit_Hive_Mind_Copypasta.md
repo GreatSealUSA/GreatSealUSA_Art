@@ -24,3 +24,9 @@ The Elementary Particles of Memes John 1:1
 The Elementary Particles of Metaphors Meta John 1:1    
 
 "without a solid grasp of [theoretical physics / quantum mechanics](http://www.concentric-literature.url.tw/issues/Idealism/7.pdf)"
+
+&nbsp;
+
+## Meta More
+
+"The Gods Must Be Crazy" signals from above metaphors?
