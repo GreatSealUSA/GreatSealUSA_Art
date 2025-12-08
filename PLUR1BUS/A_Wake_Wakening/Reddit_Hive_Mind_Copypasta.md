@@ -90,3 +90,6 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 29. Chornically drunk carol, Chronic metaphors. She allso does perscription pills, white woman's suburub, Mother's Little Helpeer metaphors.
 
 30. Booze Cruise Carol - cruising car (Sante Fe King Of the World dandom / Midnight Cruisder Zero Hour Dandom) - police cruiser. Brusing for a drunk cruising / DUI. Booze Cruise ship metaphors, pirate ship ladies. Booze Cruise missles, atomic bomb / bombed-out Carol. Booze Cruise Kepler-22B space ships.
+
+31. Pilot episode. Air Force One / commercial flight pilots. Cruise control / autopilot metaphors of not getting the story as audience members. Flying above head on cruise control patrol car / I.C.E. crusing the streets for immigrants Carol policing / autopilot reactionary reading of { Finnegans Wake, Pluribus, Great Seal USA - Power of Myth, Inner Reaches of Outer Space meaning of Pluribus latin }
+
