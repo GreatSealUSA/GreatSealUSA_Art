@@ -42,3 +42,6 @@ The Elementary Particles of Metaphors Meta John 1:1
 6. Old Ham Radio - Ruins of Sante Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technolgy. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM - Radio Shack man won't take bread from the hivemind. He is traveling to the promised land. Rio Grande language. King Elvis Vegas.
 
 7. Just one more drink from the Public House water of Life, Carol asks the bartender. Pink lesbians, Pink Floyd *watering holes*. "Western Woman, Wetern Girl:" https://youtu.be/zpotZUiKLbU?t=113 Drunk Carol, "Bartender, what is wrong with me", the Pirate Lady captain says: https://youtu.be/zpotZUiKLbU?t=236
+
+8. Drinking yourself to death, woke / wake The Finnegans, Drinking Yourself Alive, like Carol. Public House drink drive drink death metaphors.
+
