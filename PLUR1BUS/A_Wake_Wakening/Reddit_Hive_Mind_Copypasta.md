@@ -29,6 +29,8 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 ## Meta More
 
+Ideas on what to merge into the clusterfuck above, more thoughts not yet put into the gumbo:
+
 1. "The Gods Must Be Crazy" signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology?
 
 2. Audience squares son't get it. This is a repeating sign-wave occliscope message, not a square wave, PCM encoding.
@@ -56,4 +58,6 @@ The Elementary Particles of Metaphors Meta John 1:1
 13. Metaphors of North Amierca inventing "Ice BEER" and "Ice distillation" and Carol the Immigrant I.C.E. attacker in police car. And "Ice concetration" of Apple-jack, Carol saying "Pluck and Apple" to hive mind, Eve metaphors of distillation. Authoring John 1:1 commandments to hive of distilling / concentrating boozing.
 
 14. "Hittin the hard stuff" of hard reading Joyce. Booz metaphors of hitting. "Hit me up" appointment making.
+
+15. Indra's net of gems and  jewels for Wiki weaving metaphors of Carol's writing interconnected books year apart.
 
