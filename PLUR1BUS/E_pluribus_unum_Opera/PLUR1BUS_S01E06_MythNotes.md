@@ -70,3 +70,9 @@ Elvis fans of USA music may know uSA films.  "Pirate Lady" story of Carols theme
 
 And he likes music, We Built this Vegas city. The Vegas video images / Bay area crossover themes. Elvis fan and Air Force One "Jefferson Airplaine" fan? Lyrics: "Don't tell us you need us 'cause we're the ship of fools: Looking for America!" (immigrant from West Africa looking for Air Force One ride to "No Kings" Elvis Vegas king). Carol to the Hive Mind: "Don't tell us you need Us" ("We Are Us" title Episode One) https://youtu.be/K1b8AhIsSYQ?t=187 (136,012,708 views since February 6, 2013) Elvis radio station / media ecology radio. *Starship* Kepler-22b metaphors abound. Too many hive mind runaways...
 
+&nbsp;
+
+# Vegas Second Screen Audience
+
+Time-index link to Vegas images: https://youtu.be/ETUGwC9jXCM?t=144
+
