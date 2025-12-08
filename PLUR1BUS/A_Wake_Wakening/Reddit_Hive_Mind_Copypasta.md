@@ -107,3 +107,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 38. Milk is for babies on the teet. Carol egg nesting on ice. Milk is for babies from mama, Carol spices up the milk with Irish car bombs, Finnegans Wake curdled milk. Stout woman with a heavy pour: https://en.wikipedia.org/wiki/Irish_car_bomb_(cocktail)
 
+39. Nursing a drink, milk carton nursing the hive mind, nursing Helen to the doctors in a pussy wagon. Lesbians nursing frozen ice eggs, nursing the 12. Finnegans Wake has nursery rhymes stories. https://old.reddit.com/r/TrueLit/comments/10ii4hr/the_official_truelit_finnegans_wake_readalong/j5qeeu3/
+
+40. Cut-ups, jokers on Reddit with extreme low-effort replies. Scissors cut-up / rock paper Scissors lesbian metaphors. Drunk sex with the two. https://en.wiktionary.org/wiki/cutup a joker who wants to cup-up the hive minds, carve out people. Drunk surgeon Carol. "The Joker" batman, cut-up lips. Cut-up cosmetics joke, Trump orange (Great Seael USA President, Comedian Joker cut-up). A "Copy Pasta", "Word Salad" is Joycean Wake Finnegan end is begin of the story.
+
