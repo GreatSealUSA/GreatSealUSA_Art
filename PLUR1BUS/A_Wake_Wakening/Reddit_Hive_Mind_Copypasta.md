@@ -45,3 +45,6 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 8. Drinking yourself to death, woke / wake The Finnegans, Drinking Yourself Alive, like Carol. Public House drink drive drink death metaphors.
 
+9. Drink driving. Driving others crazy. Driving others into death. Metaphors of Carol's confrontation (and line in Sagan's Contact film about confrontational woman to NASA / New Mexico space telescope lead-up). Ellie also drives like a mad woman / madness when going to confront the NASA leader scene about funding cancel rumors.
+
+10. Delirium Tremmors / Elephants in the room / Pink Ladies (Grease Musical) / Pink lesbians ... booze Pink Elephants.
