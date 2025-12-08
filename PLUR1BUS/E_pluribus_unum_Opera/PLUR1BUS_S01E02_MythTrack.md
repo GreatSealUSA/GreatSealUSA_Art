@@ -129,7 +129,7 @@ This show opens a lot of Finnegans Wake out-of-band associations to other scienc
 
 &nbsp;
 
-&npbs;
+&nbsp;
 
 ## Meta Metaphors 
 
