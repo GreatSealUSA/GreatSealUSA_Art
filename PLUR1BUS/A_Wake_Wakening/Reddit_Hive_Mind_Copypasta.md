@@ -48,3 +48,7 @@ The Elementary Particles of Metaphors Meta John 1:1
 9. Drink driving. Driving others crazy. Driving others into death. Metaphors of Carol's confrontation (and line in Sagan's Contact film about confrontational woman to NASA / New Mexico space telescope lead-up). Ellie also drives like a mad woman / madness when going to confront the NASA leader scene about funding cancel rumors.
 
 10. Delirium Tremmors / Elephants in the room / Pink Ladies (Grease Musical) / Pink lesbians ... booze Pink Elephants.
+
+11. Carol being told by 12 to buzz-off, Hive metaphors. Carol the Queen bee metaphors. Elvis King hotel suite metaphors. Chess metaphors? "All GOOD kind nice hive mind people" opening. Queen, the White Queen run so fast. https://www.youtube.com/watch?v=x4_iGD0FMkk
+
+
