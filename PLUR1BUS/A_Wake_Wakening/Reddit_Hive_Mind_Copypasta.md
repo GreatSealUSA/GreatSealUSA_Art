@@ -51,4 +51,9 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 11. Carol being told by 12 to buzz-off, Hive metaphors. Carol the Queen bee metaphors. Elvis King hotel suite metaphors. Chess metaphors? "All GOOD kind nice hive mind people" opening. Queen, the White Queen run so fast. https://www.youtube.com/watch?v=x4_iGD0FMkk
 
+12. Overloaded meanings metaphors of fermenting.
+
+13. Metaphors of North Amierca inventing "Ice BEER" and "Ice distillation" and Carol the Immigrant I.C.E. attacker in police car. And "Ice concetration" of Apple-jack, Carol saying "Pluck and Apple" to hive mind, Eve metaphors of distillation. Authoring John 1:1 commandments to hive of distilling / concentrating boozing.
+
+14. "Hittin he hard stuff" of hard reading Joyce. Booz metaphors of hitting. "Hit me up" appointment making.
 
