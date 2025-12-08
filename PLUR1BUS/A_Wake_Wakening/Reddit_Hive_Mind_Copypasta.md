@@ -55,5 +55,5 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 13. Metaphors of North Amierca inventing "Ice BEER" and "Ice distillation" and Carol the Immigrant I.C.E. attacker in police car. And "Ice concetration" of Apple-jack, Carol saying "Pluck and Apple" to hive mind, Eve metaphors of distillation. Authoring John 1:1 commandments to hive of distilling / concentrating boozing.
 
-14. "Hittin he hard stuff" of hard reading Joyce. Booz metaphors of hitting. "Hit me up" appointment making.
+14. "Hittin the hard stuff" of hard reading Joyce. Booz metaphors of hitting. "Hit me up" appointment making.
 
