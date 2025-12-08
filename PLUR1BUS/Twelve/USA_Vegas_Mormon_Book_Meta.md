@@ -6,6 +6,10 @@ CONTEXT ASSERTION: Book of Life / Book of Deaths "book written" Bible verse Exod
 
 &nbsp;
 
+# 12 unveil deeds of men
+
+http://www.gnosis.org/library/revstev.htm
+
 From "The Apocryphal New Testament"    
 M.R. James-Translation and Notes    
 Oxford: Clarendon Press, 1924    
