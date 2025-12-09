@@ -121,5 +121,5 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 44. Rotgut booze. High on the shelf for Carol. Well drinks. Licking the food at the military base, rotgut booze donuts - police cop Carol and donuts? Home simpson donut eating audience intelligence good enough for Rick and Morty show.
 
-45. Founding Fathers Tea Party (creaing the new hivemind Pluribus slogan), upseeting the calm relaxing tea party of the hive mind with Carol's agression. Tea tolder / non-drinkers.
+45. Founding Fathers Tea Party (creaing the new hivemind Pluribus slogan), upseeting the calm relaxing tea party of the hive mind with Carol's agression. Tea tolder / non-drinkers. Carol authoring a piracy of tea for her Pirate Lady characters.
 
