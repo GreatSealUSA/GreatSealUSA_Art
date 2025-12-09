@@ -61,7 +61,11 @@ Echos of [echoland! caution!](https://youtu.be/WoiJVkdDbOo?t=288) and echos of C
 
 [Caution! Echoland! Dancing Northern Lights!](https://youtu.be/WoiJVkdDbOo?t=288) "These stories are making and **Breaking Lives**" 1986 / Mr. White Teacher, BreakingBad.- Teach your children Well, Deja Vu, Echoland! Deja Vu, early echos, early version, the past... Writers Guild on the Maritn Luther King Jr. road... https://www.youtube.com/watch?v=GBO43n_Dbh0
 
-* 1987 Skywalking Gauchos: "There is a kind of secondary hero to revitalize the tradition. This hero **reinterprets the tradition and makes it valid as a living experience today** instead of a lot of outdated clichés. This has to be done with all traditions."
+* 1987? Skywalking Gauchos (in NYC? final year of filming?): "There is a kind of secondary hero to revitalize the tradition. This hero **reinterprets the tradition and makes it valid as a living experience today** instead of a lot of outdated clichés. This has to be done with all traditions."
+
+* And [feed them on *your dreams*](https://youtu.be/GBO43n_Dbh0?t=115). Mr. Walter White...  1987? "A dream is a personal experience of that deep, dark ground that is the support of our conscious lives, and a myth is the society’s dream. The **myth is the public dream** and the dream is the private myth. If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an adventure in the dark forest ahead of you."
+
+Hello Carol! Incoming Skywalking message from { year 1985, 1986, 1987, 1988 }: "If your private myth, your dream, happens to coincide with that of the society" - you have a Dark Forest delivery from outer-space. "If it isn’t, you’ve got an adventure in [the dark forest](https://en.wikipedia.org/wiki/The_Dark_Forest) ahead of you".
 
 &nbsp;
 
