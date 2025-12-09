@@ -21,7 +21,7 @@ The Influencer of Google Search:
 
 <img width="2454" height="1030" alt="image" src="https://github.com/user-attachments/assets/adf3b961-228f-4be6-bd35-a86e54eceb92" />
 
-The ARG game is afoot. The interviews and the opening speech at the WRITERS GUILT OF AMERICA. The ARG Guild.
+The ARG game is afoot. The interviews and the opening speech at the WRITERS GUILT / GUILD OF AMERICA. The ARG reality building gaming Guild.
 
 A new media ecology of peer to peer showwriting / showrunning. The gauntlet has been thrown down to peer writiers from on-high respected writer.
 
