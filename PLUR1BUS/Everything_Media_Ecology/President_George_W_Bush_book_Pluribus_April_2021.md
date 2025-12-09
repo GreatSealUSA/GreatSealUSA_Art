@@ -1,8 +1,10 @@
 # Pluribus TV show
 
 Helen and Carol "ice bedding" themes of years ahead inception.     
-Carol's frozen eggs / ovaries on "ice" themes.     
+Carol's frozen eggs / ovaries on "ice" themes conception inception.     
 Carol agressively driving a police car / police state metaphors.      
+{ conception ICE eggs / inception books } Metaphors Ahoy! Incepting a book into a story    
+{ conception / inception } Founding Fathers Latin phrase *inception*      
 
 &nbsp;
 
