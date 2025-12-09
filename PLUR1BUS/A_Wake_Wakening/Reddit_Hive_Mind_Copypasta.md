@@ -131,3 +131,6 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 47. Drinking "night cap" metaphors. Zero Hour. NYE toast.
 
 48. Drinking "one for the road" metaphors.
+
+49. Getting blasted drunk. { Blast Carol's house, blasting caps, getting capped, Star Wars Blasters / Skywalker Ranch 1988 book } Social media audinces / second screen audiences blasted out on meme and small screens. Memem blasted. **Not being able to copy with science fiction storytelling that doeson't have laser swords and blasters as heroes against the Hive Empire** - and how Carol has to get blasted with Joyce bottle of booze and literary authoring devices. How touch devices audiences are twitch gamers / twitchy about entertainment science fiction (SciFi redundancy) of laser-fights / lasser-swords / light sabers / blasters. Han Shot First fandom, wishing for murder killing revenge story / action violence that Carol mocks with pusy street fighting in front of her house cat-fight pussy-fight lesbian fights. Drunk on booze, drunk on blaster entertainment thrills / CGI laser guns.
+
