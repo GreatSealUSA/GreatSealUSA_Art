@@ -31,7 +31,7 @@ https://www.complex.com/style/2014/04/george-w-bush-used-google-images-to-paint-
 
 &nbsp;
 
-&npbsp;
+&nbsp;
 
 # Concepts of a plan for metaphors
 
