@@ -6,6 +6,11 @@ The back-cover of "Inner Teaches of Outer Space" / "Inner Reaches Of Outer Space
 
 &nbsp;
 
+22 minutes into Episode One of Pluribus, at the Zero Hour countdown in the Public House, Helen introduces James Joyce's Finnegans Wake graduate school study. Kepler-22b RNA decoding.
+
+&nbsp;
+
+
 # B Side book cover
 
 <img width="1000" height="750" alt="image" src="https://github.com/user-attachments/assets/02c0c7cb-daa4-4564-8808-4fefdddebeeb" />
