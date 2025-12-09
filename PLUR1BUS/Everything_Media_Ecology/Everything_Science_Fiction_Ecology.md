@@ -40,3 +40,5 @@ Inner Reaches of Outer Space, **year 1986**, Stephan's book re-view about Plurib
 
 5. ... Founding Father year 1820 took a sledgehammer to the King James Englisy science fiction and Founded a localized MonoMyth using the Great Seal USA metaphors tools. https://en.wikipedia.org/wiki/Jefferson_Bible OPERA_A if only Carol could find her publisher Helen? Radio Shack "Two Against Nature" with Carol. F.M. No Static Radio at all! Clock everything you see, you two, even the on-screen show timers. Countdown to... John One One metaphors. https://www.youtube.com/watch?v=M1pmEy6oNvc author Carol. Bounty on the Hive Mind Pirate Lady for Piracy of Helen!
 
+7. ... The Orgins of eggs on ice metaphors if icy cold foreigner four-score Bush book title treament. Oh Joyce drunk Carol author, who orgines Johny Walker 1:1 ? We THe People originate this "6 7" shit. Ice bed dead in bed metaphors. OPERA_A How you treating those two immigrants from Africa, those Islamic visitors to USA? https://www.youtube.com/watch?v=aP8Rbct_50Y Page 581 ffinnegans wake, I've seen! I've saw! Before! - What was the April 2021 Inception title book about, Show Title inception?
+
