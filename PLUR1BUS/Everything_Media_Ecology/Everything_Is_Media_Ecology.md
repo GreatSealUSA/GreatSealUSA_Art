@@ -35,7 +35,7 @@ This is a pirate ship facing into the wind. Into the prevealing atttiude as Mart
 
 1. Reddit Hive mind, NOTE THE DATE, February 7, 2013 Reddit posting. Not this month,not Pluribus, but Reddit termnology of bee hive metaphors. https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
-2. Note the TOPIC about media ecology of that February 7, 2013 Reddit posting. https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/ "It seems that most of the peer reviewed articles on violence in video games indicate that it causes aggressive behavior in children and young adults yet most of reddit rejects this conclusion. What do the psychologists of reddit think of the conclusion? Is it wrong?"
+2. Note the TOPIC about media ecology of that February 7, 2013 Reddit posting. https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/ "It seems that most of the **peer** reviewed articles on violence in video games indicate that it causes **aggressive** behavior in children and young adults yet most of reddit rejects this conclusion. What do the psychologists of reddit think of the conclusion? Is it wrong?"
 
 ## 2013-02-17 Media Ecology Psycology "video games indicate that it causes aggressive behavior"
 
