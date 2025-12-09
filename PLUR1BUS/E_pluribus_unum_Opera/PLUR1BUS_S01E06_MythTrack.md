@@ -28,6 +28,15 @@ ToDo: Mauritania language French. https://www.saigatours.com/details/north-afric
 
 &nbsp;
 
+# Track: The West Is The Best 
+
+Elvis West Gate Suite    
+https://youtu.be/BXqPNlng6uI?t=317
+
+The doors of Hive Mind perception and messaging RNA and West Gateway keeping reach-out-touch-someone phone to signs outside in the parking lot.
+
+&nbsp;
+
 # Track: In Blessed Name of Elvis
 
 An Africa consumer of USA Elvis takes up residence in an immgrant hotel.
