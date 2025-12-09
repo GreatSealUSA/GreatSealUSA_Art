@@ -55,6 +55,12 @@ Echos of [echoland! caution!](https://youtu.be/WoiJVkdDbOo?t=288) and echos of C
 
 &nbsp;
 
+#### callback: Writers Guild ARG / Writers Guilt
+
+* Summer of 1985? "what is unfortunate for us is that a lot of the **people who write these stories** do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is ***one*** of **our problems today**."
+
+&nbsp;
+
 ## Vince Gilligan Echos 
 
 Breaking Bad    
