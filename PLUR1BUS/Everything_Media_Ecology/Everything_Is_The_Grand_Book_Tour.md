@@ -10,6 +10,13 @@ The back-cover of "Inner Teaches of Outer Space" / "Inner Reaches Of Outer Space
 
 &nbsp;
 
+Helen's Fall. Helen's end. Book without ending, B-side / A-side, Page 581 Finnegans Wake. OPERA_A Doors close, a hive mind opens. https://www.youtube.com/watch?v=BXqPNlng6uI
+
+Book Tour Ending. Last show on the Grand Tour by Carol and Helen. Airport thresholds. The Grand Tour metaphors abound / inbound / outbound.
+
+&nbsp;
+
+
 
 # B Side book cover
 
