@@ -16,6 +16,8 @@ Episode 5 checkpoint. https://www.youtube.com/watch?v=6E55TLRmuRs Carol as antic
 
 Bible verse Luke 14:26: "If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, even his own life, he cannot be my disciple" - the religion conversion camp "Freedom Falls" that Carol is forced into at age 16 pubirty parenting.
 
+Episode 6: https://youtu.be/kfWduhytIUs?t=223 the words parts of humanity and sanded them down.  Isaiah 45:2 / Isaiah 40:4. https://youtu.be/kfWduhytIUs?t=507 their faovorite social media influencer. https://youtu.be/kfWduhytIUs?t=636 Real loyalty is choice. Egoism. https://youtu.be/kfWduhytIUs?t=672 middle lane of raod metaphors (OPERA_A ToDo: The Eagles, "On The Border") https://youtu.be/kfWduhytIUs?t=713 "the ice her out" (deport metaphors of I.C.E.)  https://youtu.be/kfWduhytIUs?t=920 The Problem Child. The pushy Carol.
+
 &nbsp;
 
 
