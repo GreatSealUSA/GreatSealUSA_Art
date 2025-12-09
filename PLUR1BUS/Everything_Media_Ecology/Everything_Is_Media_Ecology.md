@@ -31,7 +31,7 @@ https://deadline.com/2025/02/vince-gilligan-wga-award-speech-1236291243/
 
 # This is in the Face of The Wind 
 
-This is a pirate ship facing into the wind. Into the prevealing atttiude as Martin Luther King Jr. said about morality. In the very heart of the Reddit Twitch media hive mind.
+This is a pirate ship facing into the wind. Into the prevealing atttiude as Martin Luther King Jr. said about morality. [Against the *hive mind* of playing on the F.M. radio ecology, swore that it would never end](https://www.youtube.com/watch?v=2vRsEC65NTA). In the very heart of the Reddit Twitch media hive mind. The years roll slowly past, and Carol found herself alone, surrounded by strangers that previous used to be friends. 
 
 1. Reddit Hive mind, NOTE THE DATE, February 7, 2013 Reddit posting. Not this month,not Pluribus, but Reddit termnology of bee hive metaphors. https://old.reddit.com/r/psychology/comments/181smu/is_the_reddit_hive_mind_wrong_about_video_games/
 
