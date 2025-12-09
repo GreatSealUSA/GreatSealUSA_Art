@@ -126,3 +126,4 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 45. Founding Fathers Tea Party (creaing the new hivemind Pluribus slogan), upseeting the calm relaxing tea party of the hive mind with Carol's agression. Tea tolder / non-drinkers. Carol authoring a piracy of tea for her Pirate Lady characters.
 
+46. Walter White grave https://www.soapcentral.com/shows/silver-jack-s-saloon-pluribus-special-connection-breaking-bad-better-call-saul-fans-might-noticed
