@@ -59,6 +59,8 @@ Echos of [echoland! caution!](https://youtu.be/WoiJVkdDbOo?t=288) and echos of C
 
 * Summer of 1985? "what is unfortunate for us is that a lot of the **people who write these stories** do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is ***one*** of **our problems today**."
 
+[Caution! Echoland! Dancing Northern Lights!](https://youtu.be/WoiJVkdDbOo?t=288) "These stories are making and **Breaking Lives**" 1986 / Mr. White Teacher, BreakingBad.- Teach your children Well, Deja Vu, Echoland! Deja Vu, early echos, early version, the past... Writers Guild on the Maritn Luther King Jr. road... https://www.youtube.com/watch?v=GBO43n_Dbh0
+
 &nbsp;
 
 ## Vince Gilligan Echos 
