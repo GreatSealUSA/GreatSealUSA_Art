@@ -42,3 +42,8 @@ Inner Reaches of Outer Space, **year 1986**, Stephan's book re-view about Plurib
 
 7. ... The Orgins of eggs on ice metaphors if icy cold foreigner four-score Bush book title treament. Oh Joyce drunk Carol author, who orgines Johny Walker 1:1 ? We THe People originate this "6 7" shit. Ice bed dead in bed metaphors. OPERA_A How you treating those two immigrants from Africa, those Islamic visitors to USA? https://www.youtube.com/watch?v=aP8Rbct_50Y Page 581 ffinnegans wake, I've seen! I've saw! Before! - What was the April 2021 Inception title book about, Show Title inception?
 
+8. ... Carol, what happened age 16, is the Egypt pyramid absent in society, did they try to mind-beat you to renouncing your nature at age 16? Is that why you are so "Bitter Awakening" to the crowds - and so reserved drinking away your work in progress book? OPERA_A Paul Allen Bears Metaphors of App empires, Sports Empires, Dreamworks, And Billionare Space Ships.... Paul Bears the Egypt Stations. https://www.youtube.com/watch?v=CWYlWvtEyio of the media ecology Wired World crisis. Page 581, I saw I sae the Bellevue Riot House, Almost Famous metaphors abound. Jimi Hendrix white man ownerships. Piracy of black holdings. Brain damage sports, Brain institution, and SETI Array like New Mexico 78 seconds of messaging delivery, I saw Page 581 Finnegans Wake, the sports monomyths, the app monomyths, the operating systems of monomyths empires, the Dreamworks and fleet of cruisde ships monomyths, the French film festival Bellevue Riot House metaphors. I'm sorry I saw, page 581 Finnegans Woke. Where would Apple Be without 1997 rescue of Jobs and workers? Disney's grown up to be a cow, but life on SpaceX mars grew up from Vern Raburn.
+
+9. 
+
+\
