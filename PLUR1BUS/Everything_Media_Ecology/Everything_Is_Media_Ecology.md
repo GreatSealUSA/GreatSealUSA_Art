@@ -61,6 +61,8 @@ Echos of [echoland! caution!](https://youtu.be/WoiJVkdDbOo?t=288) and echos of C
 
 [Caution! Echoland! Dancing Northern Lights!](https://youtu.be/WoiJVkdDbOo?t=288) "These stories are making and **Breaking Lives**" 1986 / Mr. White Teacher, BreakingBad.- Teach your children Well, Deja Vu, Echoland! Deja Vu, early echos, early version, the past... Writers Guild on the Maritn Luther King Jr. road... https://www.youtube.com/watch?v=GBO43n_Dbh0
 
+* 1987 Skywalking Gauchos: "There is a kind of secondary hero to revitalize the tradition. This hero **reinterprets the tradition and makes it valid as a living experience today** instead of a lot of outdated clichés. This has to be done with all traditions."
+
 &nbsp;
 
 ## Vince Gilligan Echos 
