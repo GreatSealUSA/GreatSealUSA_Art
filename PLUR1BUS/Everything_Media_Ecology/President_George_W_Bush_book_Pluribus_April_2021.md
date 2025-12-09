@@ -28,3 +28,13 @@ https://www.businessinsider.com/george-w-bush-has-the-most-edited-wikipedia-page
 
 Goerge W. Bush is called-out as an image stealer, like ChatGPT, in year 2014 regarding hive mind theft of the public published media ecology of World Wide Web     
 https://www.complex.com/style/2014/04/george-w-bush-used-google-images-to-paint-portraits-of-world-leaders
+
+&nbsp;
+
+&npbsp;
+
+# Concepts of a plan for metaphors
+
+1. "Ahoy!" is another word for "Hello Carol", "Ahoy Carol!" piracy pirate Lady Pirate Man
+
+2. Carol conception, frozen eggs, fertility of lesbians. Love traingles abound, Great Seal pyramid triangles out of Africa, nile river fertiity metaphors of the front-side of the pyramid. The fertility of the Nile 12,000 years ago as exampled by James Burke in 1978 at the opening episode on climate change New York City incepiton / conception of the pyramids and technological civilization of the Great Seal Founding Fathers message. How deep do you really want to go with the George W. Bush April flowers, April 2021 book title of the Apple //+ show title "PLUR1BUS", One Book to Rule Them All? "Conception of a plan", conception of a planned parenting female freedom against the male hive-mind, conception of the flowering April 2021 "Jasmine Revolution" and flowering metaphors of eggs-on-ICE until the world is not the Rat Race of Moderntiy? How far do you want to go with these George W. Bush flowering plants on the front-side of the pyramid metaphors? How long as social media been avoding calling out Bush's April 2021 Bloomsday metaphors of Minute 22 of the countdown Zero Hour of Helen's Graduate Study book, "Finnegans Wake" bloomsday flowering? How deep did Joseph Campbell's wife *inception* and cultivate the JCF archives? How deep did the flowering of Hawaii incept the cold ICE tourism of Helen and Carol? Is Hawaii the paired pyrammid front-side of the Great Seal pyramid to the ICE bed of inceptions / concepetions? "Concepts of a plan" phrase that fits the I.C.E. vs. Health Care. How far did Jean's dancing of the genes go in the keep-alive signaling of "Inner Reaches of Outer Space" messages about metaphors and science fiction stories and pages about the pyramid Founding Fathers seals. Carol needs fathers for those eggs. The foundation of Pluribus is quaking in antcipation of a hot bed, not an icy bed. Can Tim Finnegan rise again? Can the Radio Shack Stoage man form with Carol, Two Against Nature, USA yipee-kayee Gaouchos of the West? OPERA_A This Cuervo Gold is for you, Carol! Drink up! The Blues and Elvis Suite, somebody else's favorite monomyth. https://www.youtube.com/watch?v=gEPxyPy2D1U
