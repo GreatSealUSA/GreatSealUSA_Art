@@ -1,6 +1,8 @@
 # Pluribus Bluesky Ecology 
 
-OPERA_A 
+OPERA_A https://www.youtube.com/watch?v=wuJIqmha2Hk (Album cover image is spaceship)
+
+&nbsp;
 
 <img width="1800" height="680" alt="image" src="https://github.com/user-attachments/assets/4cd04642-58fa-4c5c-982f-88a8354d8e74" />
 
