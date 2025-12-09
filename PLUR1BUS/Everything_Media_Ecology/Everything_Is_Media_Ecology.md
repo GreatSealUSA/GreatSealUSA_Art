@@ -108,7 +108,9 @@ Because something changed February 2014. A year afer 13. The Pluribus 13. The Gr
 
 Something changed in year 2013. And it was described December 5, 2014 to the public. A report was compiled, a book was written, and like Carol and Helen, the book was published And a book tour, the OPENING DAY of the book tour December 5, 2014
 
-Is a "vide game" not a "war of all against all"?
+Is a "video game" not a "war of all against all"?    
+Is a "vibe media Truth Social [Surkovian](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) vibes pied [piper](https://metalinjection.net/news/top-putin-adviser-quotes-five-finger-death-punch-in-russian-editorial-attacking-u-s) leaderships" not a "war of all against all"?     
+Hello Carol! A message is coming in for you on the display outside the hotel: OPERA_A Carol, lookd own from the Elvis Suite and look up at New Mexico scopes to Kepler-22 minute Episode One https://www.youtube.com/watch?v=rZoD8JEFjAE
 
 Vince Gilligant is a TV producer and writer, and December 5, 2014 I am pointing you all, We The People All, Pluribus All - to a television producer from across the world:
 
