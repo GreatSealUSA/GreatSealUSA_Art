@@ -119,3 +119,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 44. Stand-up drinking, drunk's falling down (Tim Finnegan). "The Stand" by Stephen King story with atom bomb of Vegas, Carol's request for atomic bomb. "The Stand" military base virus outbreak, drunk on the gatekeeping job.
 
+44. Rotgut booze. High on the shelf for Carol. Well drinks. Licking the food at the military base, rotgut booze donuts - police cop Carol and donuts? Home simpson donut eating audience intelligence good enough for Rick and Morty show.
+
+45. Founding Fathers Tea Party (creaing the new hivemind Pluribus slogan), upseeting the calm relaxing tea party of the hive mind with Carol's agression. Tea tolder / non-drinkers.
+
