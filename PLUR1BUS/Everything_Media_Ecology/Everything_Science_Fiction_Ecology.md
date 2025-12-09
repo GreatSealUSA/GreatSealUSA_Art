@@ -24,3 +24,12 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m4xplhcfns2t
 
 Inner Reaches of Outer Space, **year 1986**, Stephan's book re-view about Pluribus tragedy: https://youtu.be/08R1kPdfrHA?t=4427 1987 lecture "we have simply forgotten about and thrown away" - Pluribus "we have simply forgotten about and thrown away" hive mind Founding Father ideals and Latin phrases.
 
+&nbsp;
+
+&nbsp;
+
+### Seas / Pirate seas / Sees Alsos
+
+1. Mr. Robot TV show within a show. The simulacra of news within Mr. Robot, the news network for the Preisdent. Carol's White House CSPAM Podium. The Zero Hour "drop a beat" of singsong in the Public House, the 22 minute Kepler-22 b-side of needle drop on James Joyce's Finnegans Wakage Page 581, which Helen skpped as a Graduate Student in study, she skipped chapters and page 581 of Wake/Woke just like Helen skipped chapters of Carol's "Bitter Awakening" unpublished manuscript book. Mr. Robot TV show within a TV show, Pluribus TV show has News at the Zero Hour on the bar-side TV set about important breaking news of Finnegans Wakeup call!
+
+2. 
