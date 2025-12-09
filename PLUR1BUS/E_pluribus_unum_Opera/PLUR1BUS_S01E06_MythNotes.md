@@ -90,3 +90,6 @@ Vince casted his own head for Episode Six Carol holdings. An apperance of the le
 
 BONUS_A Enter Shikari "The die is cast" (Wake Tim Death is cast / Walter White death burial site at casting at the Public House minute 22, pirate ships casting off from dead-man's story to new world story rebirth monomyths), "Becket said it best" lyrics. Album title: Nothing is True, The Hive Always Trus says Carol, Everything is Possible for Elvis after Closing Time at the Washington Zoo. https://www.youtube.com/watch?v=HLdurSmOf4E 
 
+The Great Seal Latin was a casting Matthew 4:19 - role casting for the 13 leaders, the 13 players casting in their persona roles. Christ, what a mess, I think Becket said it best; Try again, Fail Better!
+
+
