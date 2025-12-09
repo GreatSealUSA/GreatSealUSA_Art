@@ -80,7 +80,7 @@ Time-index link to Vegas images: https://youtu.be/ETUGwC9jXCM?t=144
 
 # Vince Gilligan Casting
 
-Vince Gilligan is a ficker of Men, casting head-cannon mythology. Matthew 4:19 casting.
+Vince Gilligan is a ficker screne cinematogrphy oustanding lighting fisher of Men, casting head-cannon mythology streamcasting. Matthew 4:19 casting.
 
 Casting actors. 
 
