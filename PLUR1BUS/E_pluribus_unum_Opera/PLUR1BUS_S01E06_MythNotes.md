@@ -76,3 +76,17 @@ And he likes music, We Built this Vegas city. The Vegas video images / Bay area 
 
 Time-index link to Vegas images: https://youtu.be/ETUGwC9jXCM?t=144
 
+&nbsp;
+
+# Vince Gilligan Casting
+
+Vince Gilligan is a ficker of Men, casting head-cannon mythology. Matthew 4:19 casting.
+
+Casting actors. 
+
+On the Mount Doom, the resting place of bad-man Breaking Bad grave, the story begins at the Zero Hour up and down the countdowns digits. Public House keppler Minute 22-b Finnegans Wake Tim spinning in his grave, as spinning front to back Finnegans Wake has no end page. 
+
+Vince casted his own head for Episode Six Carol holdings. An apperance of the leader of the hive mind author, Carol the author metaphors. Storytelling from milk breast factor to Elvis Studio Suite / Top Floor of the El Supremo of Vegas, the Show Biz raised Elvis children of We Are The World. Opera_A Citizen Carol, Citizien American, Show Biz Media Moderator / Police Car State. Been to the Washington D.C. Zoo? https://www.youtube.com/watch?v=-SR48XA3hss
+
+BONUS_A Enter Shikari "The die is cast" (Wake Tim Death is cast / Walter White death burial site at casting at the Public House minute 22, pirate ships casting off from dead-man's story to new world story rebirth monomyths), "Becket said it best" lyrics. Album title: Nothing is True, The Hive Always Trus says Carol, Everything is Possible for Elvis after Closing Time at the Washington Zoo. https://www.youtube.com/watch?v=HLdurSmOf4E 
+
