@@ -16,3 +16,6 @@ HASHTAGS: #Happy #ViralMetaphors #ViralHappiness plurals in Minute 22 of Episode
 
 https://www.youtube.com/watch?v=wuJIqmha2Hk
 
+&nbsp;
+
+"Countdown to" Happy. BONUS_A TikTok count-up count-down pyramid steps of the 12 to 13 Great Seal United States of America, out of Africa metaphors...
