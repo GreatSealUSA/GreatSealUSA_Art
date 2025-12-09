@@ -22,5 +22,5 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m4xplhcfns2t
 
 * Year 1987, thrown away: "All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away**. And how incredibly unfortunate and terrible this is." - [Dr. Stephan A. Hoeller](http://www.gnosis.org/971219.htm), year 1987, "Joseph Campbell: A Modern Sage" http://www.gnosis.org/971219.htm also on YouTube: https://youtu.be/08R1kPdfrHA?t=4427
 
-Inner Reaches of Outer Space, **year 1986*, Stephan's book re-view about Pluribus tragedy: https://youtu.be/08R1kPdfrHA?t=4427 1987 lecture "we have simply forgotten about and thrown away" - Pluribus "we have simply forgotten about and thrown away" hive mind Founding Father ideals and Latin phrases.
+Inner Reaches of Outer Space, **year 1986**, Stephan's book re-view about Pluribus tragedy: https://youtu.be/08R1kPdfrHA?t=4427 1987 lecture "we have simply forgotten about and thrown away" - Pluribus "we have simply forgotten about and thrown away" hive mind Founding Father ideals and Latin phrases.
 
