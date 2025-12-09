@@ -2,7 +2,7 @@
 
 { Joyce 1923 Finn's Hotel [Echoland](https://old.reddit.com/r/FiveYearsOfFW/comments/l8gn6d/finnegans_wake_page_13_discussion_thread/) - Media Echology - Media Ecology }
 
-[We Is Us - Pilog Episode](https://en.wikipedia.org/wiki/We_Is_Us). Us, You, Me, Everyone.   
+[We Is Us - Pilot Episode](https://en.wikipedia.org/wiki/We_Is_Us). Us, You, Me, Everyone.   
 
 Opening Piloting us episode: *Audience Within an Audience*,*Fandom within a Fandom*
 
