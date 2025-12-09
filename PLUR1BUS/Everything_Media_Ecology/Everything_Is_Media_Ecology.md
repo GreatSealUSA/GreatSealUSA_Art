@@ -45,11 +45,11 @@ It seems that most of the peer reviewed articles on violence in video games indi
 
 The Empire of Skywalker has Fallen since 1998.
 
-* Summer of 1986: "The mother is really a **more immediate parent** than the father because one is born from the mother, and the first experience of any infant is the mother."
+* Summer of 1986?: "The mother is really a **more immediate parent** than the father because one is born from the mother, and the first experience of any infant is the mother."
 
-* "Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then **what happens to the aggression? This is a problem that the world is going to have to face — because aggression is a natural instinct** just as much as, and **more immediate than**, compassion, and it is always going to be there. It’s a biological fact."
+* Summer of 1985?: "Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then **what happens to the aggression? This is a problem that the world is going to have to face — because aggression is a natural instinct** just as much as, and **more immediate than**, compassion, and it is always going to be there. It’s a biological fact."
 
-Echos of echoland and echos of Carol's agression / Mr. White Walter White Gravesite agression at Episode One minute Twenty-Two.
+Echos of [echoland! caution!](https://youtu.be/WoiJVkdDbOo?t=288) and echos of Carol's agression / Mr. White Walter White Gravesite agression at Episode One minute Twenty-Two.
 
 (This same Skywalker book teaches the meaning of the word "Pluribus" and he vs. she in Latin, the Founding Fathers *hive mind*. Not just *any* book I am citing here. Pirate Lady metaphors abound in that Latin encoding deconstruction of Founding Fathers metaphors in summer 1985 / summer 1986 / 1987 leading to book (Helen) post-death publication 1988.)
 
