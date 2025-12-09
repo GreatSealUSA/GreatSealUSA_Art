@@ -29,6 +29,9 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 ## Meta More
 
+<img width="1027" height="1299" alt="image" src="https://github.com/user-attachments/assets/b4086486-cf46-4ef7-8a1a-2ba193ca5a6c" />
+
+
 Ideas on what to merge into the clusterfuck above, more thoughts not yet put into the gumbo:
 
 1. "The Gods Must Be Crazy" signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology?
