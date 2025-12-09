@@ -116,3 +116,6 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 42. Food dishes you find at a funeral wake or Public House that have booze ingredients. Carol buried out back of Hellen's house, so booze https://old.reddit.com/r/BBQ/comments/eyt2on/jack_daniels_ribs/ and Islamic visitor Lady Pirate smoker / pork / Carol throwing stones at the hive mind / cover stone over Helen's remains. The remaining drink, the dregs of a boozer and Helen's wrapped body. Remaining countdown on-screen timers. Remaining food supply 10 years for hive mind. https://old.reddit.com/r/bartenders/comments/1g04m4y/what_is_the_remaining_alcohol_from_bartender/
 
 43. https://old.reddit.com/r/etymology/comments/139nq68/what_are_the_origins_of_the_newer_slang_meaning/ "They also used to refer to beginning drinking as getting lit as in “the drinking lamp has been lit”. OPERA_A https://www.youtube.com/watch?v=mvDFdLZJ-q0
+
+44. Stand-up drinking, drunk's falling down (Tim Finnegan). "The Stand" by Stephen King story with atom bomb of Vegas, Carol's request for atomic bomb. "The Stand" military base virus outbreak, drunk on the gatekeeping job.
+
