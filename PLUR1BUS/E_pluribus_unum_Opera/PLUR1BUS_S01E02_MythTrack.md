@@ -13,6 +13,21 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m5cvwzhphs2i
 
 &nbsp;
 
+## Track 1.1: Year One Day One (Episode Two Pluribus)  
+
+Countdown timer / uptime of the new operating system.
+
+You didn't stand a chance, Jesus Son, you didn't stand a chance? Carol.     
+Sold to society!    
+Being who you really want to be!    
+Jethro Tull - Skating Away (Sight And Sound In Concert: Jethro Tull Live, 19th Feb, 1977)    
+Live Streaming / Broadcast Television     
+Universal mind... written you Carol and 12 into the passion play?     
+614,406 views January 12, 2024     
+https://www.youtube.com/watch?v=FOhD-VGIt_8
+
+&nbsp;
+
 ## Track 2, Carol: my image of you Pirate Lady!
 
 Carol got her fiction creation, the Pirate Lady, come to life in title of episode 2.
