@@ -82,7 +82,9 @@ Time-index link to Vegas images: https://youtu.be/ETUGwC9jXCM?t=144
 
 Vince Gilligan is a ficker screne cinematogrphy oustanding lighting fisher of Men, casting head-cannon mythology streamcasting. Matthew 4:19 casting.
 
-Casting actors. 
+Casting actors. Casting stories
+
+* at his speech to the WGA, he used "casting" in terms of "figuring out your next project" and "bad guys". WRITER Andy Taylor, nto ACTORS. Casting the writing cast / die. https://www.youtube.com/shorts/ohOibt3o7uU?t=88
 
 On the Mount Doom, the resting place of bad-man Breaking Bad grave, the story begins at the Zero Hour up and down the countdowns digits. Public House keppler Minute 22-b Finnegans Wake Tim spinning in his grave, as spinning front to back Finnegans Wake has no end page. 
 
