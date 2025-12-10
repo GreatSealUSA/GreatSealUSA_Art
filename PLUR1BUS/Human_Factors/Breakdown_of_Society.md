@@ -21,3 +21,11 @@ OPERA_A My Old High School values of sports over science and non-fiction learnin
 
 OPERA_A what are they teaching children to complete over, out-insult the teachers. Parents teaching. Music industry cartel not backing up the film video in the vault degrated to YouTube - soon A.I. will disappear those media ecology realities with fake-inserted "corrections" that are not true reality to film original.  https://www.youtube.com/watch?v=BznKC3Umc8A
 
+&nbsp;
+
+# Two TV series about meth, then TV Ecology
+
+After two TV series blaming meth drugs, now the time comes of taking on the TV mental hive mind influences. https://www.hollywoodreporter.com/tv/tv-news/vince-gilligan-writers-villain-stories-political-climate-walter-white-1236137964/
+
+ToDo: scatter these into other pages? The addictons to low-mind Televisions. Grenade bomb mentally disturbed. Carol's Christian age 16 "fix the lesbian" kidnapping. https://www.youtube.com/watch?v=qXCwH7eXcj4 Truth 1990. See this bomb pin, 8 seconds. 78 seconds. 6, 7, 8 ate 9 (signal is 78 seconds in RNA signal). Trusing the Hive Mind, Always True. Television repair character who says television is the opiate of the masses. The meth drug dealer of two shoes about lawyer dealers and meth dealing.
+
