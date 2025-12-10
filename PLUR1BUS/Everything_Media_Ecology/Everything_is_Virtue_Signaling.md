@@ -19,4 +19,6 @@ The Luke Skywalker virtual signaling website, May the Force Be With You **year 1
 
 The back cover of this book has 1950 New Mexico. Carol and Helen's home. The birthpalce of the 1950 Atomic Bomb, New Mexico. The array antennta that gets the 78 second signal of RNA virtues is in New Mexico. ABQ abounds, metaphors Ahoy!
 
-Carol only met with 5, now number 6 is leaving his storage unit (end of Episode Six) to meet Carol after the VHS (1986 media of Star Wars / Josep Campbell / PBS medium technology) delivery from USA.
+Carol only met with 5, now number 6 is leaving his storage unit (end of Episode Six) to meet Carol after the VHS (1986 home-delivery media of Star Wars / Joseph Campbell / PBS home medium technology) delivery from USA.
+
+<img width="1171" height="1252" alt="image" src="https://github.com/user-attachments/assets/6b212464-7ce7-4eb4-9042-672f5b03fd21" />
