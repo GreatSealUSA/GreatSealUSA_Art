@@ -59,6 +59,16 @@ Am I getting the gist, am I getting warm?
 
 &nbsp;
 
+# Track 2.5 - Carol: The Hive will do Vry Best 
+
+If you let me try, Carol. Hello, Carol! Pirate Lady created for you out of fiction, from out of Africa. Special delivery, Helen Knows!    
+
+Drinks alone some time?
+
+https://www.youtube.com/watch?v=zG3De54RzNI
+
+&nbsp;
+
 # Track 3 - the Hive Mind sees 13 every moves
 
 "Daryl Hall & John Oates - Private Eyes (Official HD Video)"   
