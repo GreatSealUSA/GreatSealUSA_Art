@@ -8,3 +8,14 @@ https://www.youtube.com/watch?v=E6l5ezErGuw
 "Pull up in a car for the first time" -- Police Cruisder Carol. "The Man" police.    
 White Hhuse / Man of the House / Only USA native New Mexico Pollen Path inheritance metaphors 1950 inner reaches B-side cover (image in this project ToDo: link in markdown here. Pollen path has two birds, one stone, that bird Helen and that bird Pirate Lady - two birds, stone drunk Carol New Mexico sand paintings). 
 
+&nbsp;
+
+# Big Ideas
+
+13 free thinking OpCodes against the MonoMyth hive minds.
+
+Match up attitudes / rules of the Hive Mind to classic relation texts { Torah, Bible, Quran, Upanishads, Novaho Pollen Path, Buddha, etc, etc. }. Time-index to episode dialog quotes. 
+
+See if there is any pattern of the 13 and their { age / orgin / name / gender / family / occupation / etc. }.
+
+Metaphors of { supercompter cluster, networking TCP/IP v6, CPU microcode updates, CPU OpCodes, forbidden OpCodes / Undocumented OpCodes, competing instruction sets (AMD vs. Intel compatibility on advanced instructions), firmware updates, operating system updates, application updates, operating system API, application API, JSON interchange, Wiki documentation vs. reality of exploration coding, userland vs. God escelations, Great Seal of the United States of America metaphors of cross-mythology Out of Africa OpCodes of symbolism ideals blueprints (Public Dream vs. Private Dream, MLK Jr Dreams) }
