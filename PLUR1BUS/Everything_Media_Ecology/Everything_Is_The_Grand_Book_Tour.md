@@ -54,3 +54,15 @@ He mentions "Greatest Generation" / 1950's shows (ToDo: Donald Fegan Hipsters bo
 
 5. "The Power of Myth" book from year 1988, page 31 and on discusses the meaning of Pluribus show  title https://en.wikipedia.org/wiki/E_pluribus_unum adaptation. Easter egg: Vince Gilligan in his speech name-dropped "Darth Vader" bad guy where these interviews were conducted for the book. https://www.youtube.com/shorts/ohOibt3o7uU
 
+&nbsp;
+
+&nbsp;
+
+# Audience Fixated On 
+
+Media ecology metaphors of real-world fixation of real-world media interfaces. https://youtu.be/_qP4aMglhGE?t=1861 ( "TWO PLANES ONE RUNWAY The 1991 LAX Disaster | Mayday: Air Disaster" )
+
+Vince Gilligan is saying social meme audiences fixate on the aspirational aspects of bad guys. Darth Vader, Mr. White teaching the society https://www.youtube.com/shorts/ohOibt3o7uU  Fixated on self-harm to ABQ, chemistry dependencye, the booze bause chemical dependency of Carol that Mr. White cultivates. And the *getting pissed* smoke break at minute 22 in Episode One, the Funeral Wake of Walter White middle age book writing post-gradulate women pissed-off and boozed-up by drug makers / booze sellers. Walter White's toxic masculinity gravesite / grave they are pissing upon metaphorically. https://www.soapcentral.com/shows/silver-jack-s-saloon-pluribus-special-connection-breaking-bad-better-call-saul-fans-might-noticed
+
+Fixated on terrible lawers, type casting the lead actress, "Saul is good, Saul is cool!!!" audience media fixations of being Truth Social consumers and not seeing the problem of Truth Social drug meme dealers. Opening Gauntlet against this thrown at start of year 2025: https://www.youtube.com/shorts/ohOibt3o7uU 
+
