@@ -33,7 +33,7 @@ Carol Pirate Lady **author**, book writer, song lyrics: "Well, do you ever get t
 
 <img width="924" height="324" alt="image" src="https://github.com/user-attachments/assets/628a3702-b65d-4053-bb26-47cd5553cde2" />
 
-* See also, this Reddit comment from this year is in the same theme of the song lyrics. "I feel like we're all just witnessing one big reverse psychology play unfolding before our eyes in real time." - [June 11, 2025 Reddit](https://old.reddit.com/r/politics/comments/1l8o24w/walmart_faces_maga_boycott_after_heiress_funds_no/mx6b0jm/) (and in contxt to "No Kings" posting of the Reddit comment: Elvis King themes of Air Force One destination suite.
+* See also, this Reddit comment from this year is in the same theme of the song lyrics. "I feel like we're all just witnessing one big reverse psychology play unfolding before our eyes in real time." - [June 11, 2025 Reddit](https://old.reddit.com/r/politics/comments/1l8o24w/walmart_faces_maga_boycott_after_heiress_funds_no/mx6b0jm/) (and in contxt to "No Kings" posting of the Reddit comment: Elvis King themes of Air Force One destination suite.)
 
 https://bsky.app/profile/greatsealusa.bsky.social/post/3m7nc7glz422c     
 https://old.reddit.com/r/Pluribus13/comments/1pj4euc/make_your_peace_with_everyone_sold_to_society/   
