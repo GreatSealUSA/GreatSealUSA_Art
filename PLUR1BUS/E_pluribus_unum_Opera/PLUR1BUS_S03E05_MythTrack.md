@@ -25,6 +25,23 @@ https://www.youtube.com/watch?v=3JFcRRftxzM
 
 &nbsp;
 
+&nbsp;
+
+### New Mexico Convoy Hive Mind
+
+Caral creates nicknames for her characters in her pirate stories. Land Pirate metaphors abound, landlocked New Mexico (Old Mexico isn't land lock, oceans on sides). 
+
+**New mexico***    
+https://youtu.be/Uxp6OG8izQg?t=72
+
+1. "Bear" is police, Carol's policing milk lost and found and police car. "Bear" is also a homosexual term? In a hive-mind cock-blocked two spouses relationship? Pussy-blocked animal terms?
+
+2. Fleeing in a convoy from Carol in police car.
+
+3. Military outpost / Fort metaphors of standing on top of a high building. { Watchtower (Watch Out! Echoland! Caution!, Jimi Hendrix on ICE / state police / bears chasing ), guard tower, obeservation tower, vantage point }
+
+&nbsp;
+
 ### Up On the Roof, Forget me Not
 
 Empty school visuals opening, empty city Carol.
