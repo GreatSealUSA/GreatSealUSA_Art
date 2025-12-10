@@ -94,3 +94,12 @@ Better get on Air Force One, [Citizen Steely Dan](https://www.youtube.com/watch?
 
 <img width="560" height="568" alt="Screenshot from 2025-11-11 10-59-08" src="https://github.com/user-attachments/assets/d8c13633-49fa-4ff3-9915-4b3f6dccc230" />
 
+### "The World We Used To Know, Pirate Lady tells me: doesn't spin"
+
+Smiling like before, the Time of Our Time of frowning.... spin the song up.
+
+https://youtu.be/x2Oq1lCxf6E?list=PLz9BoPKruY1XxDedKGhSmWUi0Jqko8Ixu&t=83
+
+Police cruiser ICE the immigrants. Show Title: April 2021 inception https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants - ICE roundup metaphors abound. Great seal wagon circles abound out west. Carol wants to circle the wagons against the hive mind. Carol's eggs on ice, ice bed hot sexuality interchange (Steely Dan steam powered literary metaphor devices, Naked Lunch) abound.
+
+
