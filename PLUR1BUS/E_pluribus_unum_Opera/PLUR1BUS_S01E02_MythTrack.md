@@ -59,7 +59,7 @@ Am I getting the gist, am I getting warm?
 
 &nbsp;
 
-# Track 2.5 - Carol: The Hive will do Vry Best 
+# Track 2.5 - Carol: The Hive will do Very Best 
 
 If you let me try, Carol. Hello, Carol! Pirate Lady created for you out of fiction, from out of Africa. Special delivery, Helen Knows!    
 
