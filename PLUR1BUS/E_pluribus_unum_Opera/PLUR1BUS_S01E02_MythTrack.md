@@ -31,6 +31,12 @@ https://www.youtube.com/watch?v=FOhD-VGIt_8
 Carol Pirate Lady **author**, book writer: "Well, do you ever get the feeling that **the story's too damn real** And in the present tense? Or that **everybody's on the stage** and it seems like you're the **only
 person** sitting in the audience?"... Hello Carol!
 
+https://bsky.app/profile/greatsealusa.bsky.social/post/3m7nc7glz422c     
+https://old.reddit.com/r/Pluribus13/comments/1pj4euc/make_your_peace_with_everyone_sold_to_society/   
+
+
+&nbsp;
+
 &nbsp;
 
 ## Track 2, Carol: my image of you Pirate Lady!
