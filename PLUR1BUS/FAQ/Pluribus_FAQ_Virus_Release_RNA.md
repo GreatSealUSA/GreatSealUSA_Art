@@ -1,4 +1,4 @@
-# Pluribus FAQ: Virus Release / RNS 
+# Pluribus FAQ: Virus Release / RNA 
 
 FAQ: Frequently Asked Questions    
 Technical about the RNA message. The virus / going viral / spreading.
