@@ -167,3 +167,16 @@ This show opens a lot of Finnegans Wake out-of-band associations to other scienc
 
 Some of my markdown heading titles on this page for Tracks use comma, others use dash, others have none at all. James Joyce Book Title absence voids.
 
+## ToDo: create MythNotes file for this episode
+
+## Ice Pirates, Sailing Away / Skating Away 
+
+https://en.wikipedia.org/wiki/The_Ice_Pirates
+
+Yer zero / skating away on thin ice. Eggs on ice, Northern Lights on Ice
+
+https://www.youtube.com/watch?v=FOhD-VGIt_8&t=62s 
+
+Rummy navy / goverment drink rum / naval metaphors / navy  metaphors, Naval belly buton of exposure in pubic / clothing veils / Carols' egg. Umbilicle cord Campbell / imperfection. On thin ice for being a drunkard.
+
+Famous ship wrecks and oil spills from drunk sea pirates, oil pirates, nature pirates. Climate change oil thin ice melthing. Pirates of the land / digging into ice / offshore drills.
