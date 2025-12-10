@@ -16,6 +16,8 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m5cvwzhphs2i
 
 ## Track 1.1: Year One Day One (Episode Two Pluribus)  
 
+ToDo: turn this mess into a numbered list, lyrics / video dialog at the start of each entry
+
 Countdown timer / uptime of the new operating system.
 
 You didn't stand a chance, Jesus Son, you didn't stand a chance? Carol.     
