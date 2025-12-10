@@ -73,3 +73,18 @@ Long and boring, written very long ago ( Torah Tower of Babel ) https://youtu.be
 https://youtu.be/cTVpoT82toY?t=153 { flowers, bees, hive minds, cross-polination }
 
 SEE_ALSO: Same artists bee hive metaphors. Sledgehammer 
+
+&nbsp;
+
+&nbsp;
+
+# Minute 22 Of Episode One 
+
+The 22 minute of Pilot Episode.
+
+1. There is tapping on the microphone, we are shifting to deeper level of poetic. The opposite of a "Microphone Drop", but a tapping test before singsong metaphors (Finnegans Wake is singsong poetry).
+
+2. "Great" is used in context of Finnegans Wake. You are here, on the "Great Seal USA" GitHub project page. "Great" is word-associated with Finnegans Wake. As deep as deep can be. Page 3 of Opening Episode of Finnegans Wake: Tristan, Page 3 Fall of the USA Stock Market. The Great Seal symbols understood, Dolar Bill decoding, of James Joyce stock market fall. OPERA_A Album Title: Citizen Dublin, Citizen James Joyce, years 1923 to Star Wars Force Day, 1939 streaming publcation. https://www.youtube.com/watch?v=atZ7BlqSPUg - Black Stock Market, Floor 14 fall *men* HCE - going to strike all hate words from the book of John One One book authoring / bookk writing. Floor 14, Elevator floor 13 skipped, Pluribus 13 / Great Seal 13. Metaphors to metaphor translation like ThunderWords do in Page 3. *When Thunder Strikes* from the Stock Market again...
+
+3. Heart to Heart conversation of post-doctorate graduation level of unity marriage. The archbishop just sanctified Carol ;) OPERA_A Stake my independence claim. https://youtu.be/atZ7BlqSPUg?t=164 the sky is falling, a name of the monomyth has changed, from Levant "old world order" to Great Seal new world order. https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants Carol is gatekeeping the Africa pyramid peoples from at her gate to her back yard. Metaphors Ahoy, Carol! Piracy of monomyth (Page 581 Finnegans Wake) have been seen, Sorry I Saw!
+
