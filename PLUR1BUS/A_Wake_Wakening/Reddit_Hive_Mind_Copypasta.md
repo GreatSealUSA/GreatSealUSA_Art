@@ -137,3 +137,6 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 50. ++ Regarding the self-imposed driving restrictions... "Maybe they had a close call in the past (you call drinking special)." would be another good one. And the legendary behaviors of Helen having a 'close call" in graduate school with almost being mind-raped while drunk (at university youth days) and grasping Finnegeans Wake! A Reddit audience that considers it a "close call with death" (Tim) to read a book on paper / media ecology / Postman 1985 about book reading abandonment to Apple //+ television shows.
 
 52. Reading comprehension, try it! Read a book, year 1923 "Finn's Hotel", Haunted Hotel story, Pluribus is in it.
+
+53. Ice in your drink pirates, Piate writing, drunk authoring on ice. https://en.wikipedia.org/wiki/The_Ice_Pirates
+
