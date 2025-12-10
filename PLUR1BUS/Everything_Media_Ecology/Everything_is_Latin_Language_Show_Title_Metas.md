@@ -42,6 +42,8 @@ OPERA_A Get your warmth from booze and smoking fags metaphors: Northern Lights s
 
 ## 1923 Finn's Haunted Hotel   
 
+Asserting the phrase: "Helen and Carol are in the story of Finn's Haunted Hotel, 1923 Joyce"
+
 1. Sagan 1995 Haunted Hotel. Walter White grave Public House. They are in a haunted metaphors hotel of Finn's Hotel cycles. We The People are. Writers Guild WGA message from show creator.
 
 2. Enter Shakari Dream's Hotel Alarm bells, outside, Finn's Dreamer Hotel. Public House / Public Dream.  https://www.youtube.com/watch?v=hJOiQo2ulyw
