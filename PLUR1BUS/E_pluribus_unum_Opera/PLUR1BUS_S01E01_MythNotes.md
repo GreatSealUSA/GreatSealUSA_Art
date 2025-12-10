@@ -6,6 +6,10 @@ Tim Apple iPad iPhone screen cracking meataphors. Apple bite broken Apple. Eve +
 
 Helen's uni / university graduate studies of James Joyce (drunk) before she became a book publisher married to a (drunkard) book author.
 
+??? Carol smoking forst time, flame, woman Helen a book publisher / free thinker burned like a witch at the grave site of Walter White / Old World Order? Light up cigs (Edward Bernays maniipulation of women Easter fertility eggs frozen Carol / Helen marriage? Ice bed? Deceration by Bernays and Brill to burn Helen at the stake, Statue of Libety ideals burned up by NYC men (NYC Mayor who supported NYC President POTUS?) https://en.wikipedia.org/wiki/Torches_of_Freedom Helen's a wtich for profit power seeking airport (Public Crossroads / Public Library / Ben Franklin) book ordering? End of the book tour, ending all book tours? ???!
+
+&nbsp;
+
 # Man Another Time Zone
 
 Smoke break Minute 22 of Episode One. Kepler-22 / 22 minutes countdown timing emphasis.
