@@ -13,6 +13,7 @@ https://bsky.app/profile/greatsealusa.bsky.social/post/3m5cvwzhphs2i
 
 &nbsp;
 
+
 ## Track 1.1: Year One Day One (Episode Two Pluribus)  
 
 Countdown timer / uptime of the new operating system.
@@ -28,8 +29,9 @@ https://www.youtube.com/watch?v=FOhD-VGIt_8
 
 "push off from the shore" of Pirate Lady, across the ocean to the meeting on Air Force One. James Joyce's year 1923 Finn's Hotel... Finnegans Wake recirculations.
 
-Carol Pirate Lady **author**, book writer: "Well, do you ever get the feeling that **the story's too damn real** And in the present tense? Or that **everybody's on the stage** and it seems like you're the **only
-person** sitting in the audience?"... Hello Carol!
+Carol Pirate Lady **author**, book writer, song lyrics: "Well, do you ever get the feeling that **the story's too damn real** And in the present tense? Or that **everybody's on the stage** and it seems like you're the **only person** sitting in the audience?"... Hello Carol! 
+
+* See also, this Reddit comment from this year is in the same theme of the song lyrics. "I feel like we're all just witnessing one big reverse psychology play unfolding before our eyes in real time." - [June 11, 2025 Reddit](https://old.reddit.com/r/politics/comments/1l8o24w/walmart_faces_maga_boycott_after_heiress_funds_no/mx6b0jm/)
 
 https://bsky.app/profile/greatsealusa.bsky.social/post/3m7nc7glz422c     
 https://old.reddit.com/r/Pluribus13/comments/1pj4euc/make_your_peace_with_everyone_sold_to_society/   
