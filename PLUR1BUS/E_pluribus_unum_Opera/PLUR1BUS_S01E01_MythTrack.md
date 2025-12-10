@@ -123,6 +123,15 @@ https://www.youtube.com/watch?v=eKrcd9o03SE
 Abba S.O.S.     
 https://www.youtube.com/watch?v=cvChjHcABPA
 
+1. Carrying on without Helen https://youtu.be/cvChjHcABPA?t=41
+
+2. Wish I understood - something died / Funeral wake. https://youtu.be/cvChjHcABPA?t=82
+
+3. What happened to society? Carol, Pirate Lady is throwing you a line to rescue from drowning in the water. Hive mind voices. https://youtu.be/cvChjHcABPA?t=102
+
+CHAIN ? How can I carry on... nautical themes... Carry on Wayward Sons https://www.youtube.com/watch?v=2X_2IdybTV0 - peace when you are done. Rest that the hive mind keeps telling Carol. Rest when freaking out in front of White House Podium message. Carol not resting when digging hole and taking water. ToDo: (move to episode 2, or keep here for foreshadow shadowboxing / foreplay with Helen Pirate Lady?)
+
+
 &nbsp;
 
 ### Track 5: Carol and Helen placed thier bets
