@@ -19,6 +19,8 @@ Answer 3: Once infected people would use the kissing (like fast-acting Herpes Si
 
 &nbsp;
 
+## One Rat
+
 Suggested name for the rat.
 
 "The BINGO rat". They were testing many rats, this rat called BINGO first. Also a Better Call Saul reference of BINGO games.
