@@ -26,6 +26,8 @@ Universal mind... written you Carol and 12 into the passion play?
 614,406 views January 12, 2024     
 https://www.youtube.com/watch?v=FOhD-VGIt_8
 
+"push off from the shore" of Pirate Lady, across the ocean to the meeting on Air Force One. James Joyce's year 1923 Finn's Hotel... Finnegans Wake recirculations.
+
 &nbsp;
 
 ## Track 2, Carol: my image of you Pirate Lady!
