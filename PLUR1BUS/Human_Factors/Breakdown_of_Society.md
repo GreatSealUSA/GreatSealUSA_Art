@@ -29,3 +29,20 @@ After two TV series blaming meth drugs, now the time comes of taking on the TV m
 
 ToDo: scatter these into other pages? The addictons to low-mind Televisions. Grenade bomb mentally disturbed. Carol's Christian age 16 "fix the lesbian" kidnapping. https://www.youtube.com/watch?v=qXCwH7eXcj4 Truth 1990. See this bomb pin, 8 seconds. 78 seconds. 6, 7, 8 ate 9 (signal is 78 seconds in RNA signal). Trusing the Hive Mind, Always True. Television repair character who says television is the opiate of the masses. The meth drug dealer of two shoes about lawyer dealers and meth dealing.
 
+&nbsp;
+
+&nbsp;
+
+# Year One Day One (Episode Two Pluribus)  
+
+Countdown timer / uptime of the new operating system.
+
+You didn't stand a chance, Jesus Son, you didn't stand a chance? Carol.     
+Sold to society!    
+Being who you really want to be!    
+Jethro Tull - Skating Away (Sight And Sound In Concert: Jethro Tull Live, 19th Feb, 1977)    
+Live Streaming / Broadcast Television     
+Universal mind... written you Carol and 12 into the passion play?     
+614,406 views January 12, 2024     
+https://www.youtube.com/watch?v=FOhD-VGIt_8
+
