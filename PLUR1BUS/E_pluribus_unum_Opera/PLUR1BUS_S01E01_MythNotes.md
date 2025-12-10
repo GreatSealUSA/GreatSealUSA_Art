@@ -5,3 +5,12 @@
 Tim Apple iPad iPhone screen cracking meataphors. Apple bite broken Apple. Eve + Eva paired uni / unity hive mind / unity marriage united Falls.
 
 Helen's uni / university graduate studies of James Joyce (drunk) before she became a book publisher married to a (drunkard) book author.
+
+# Man Another Time Zone
+
+Smoke break Minute 22 of Episode One. Kepler-22 / 22 minutes countdown timing emphasis.
+
+In another Time Zone, across the ocean, smoke break opening of this video
+
+https://www.youtube.com/watch?v=YdizZtOddC8
+
