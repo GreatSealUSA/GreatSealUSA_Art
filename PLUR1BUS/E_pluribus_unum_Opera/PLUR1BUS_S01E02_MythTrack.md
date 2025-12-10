@@ -183,3 +183,22 @@ NOTE: song skipping at the end is reproduction of recorded music, vinyl skipping
 Rummy navy / goverment drink rum / naval metaphors / navy  metaphors, Naval belly buton of exposure in pubic / clothing veils / Carols' egg. Umbilicle cord Campbell / imperfection. On thin ice for being a drunkard.
 
 Famous ship wrecks and oil spills from drunk sea pirates, oil pirates, nature pirates. Climate change oil thin ice melthing. Pirates of the land / digging into ice / offshore drills.
+
+&nbsp;
+
+# Snake Charming 
+
+https://youtu.be/q9_PzaurOfc?list=PLz9BoPKruY1XxDedKGhSmWUi0Jqko8Ixu&t=70
+
+1. She
+2. Preaches on where she wants to be
+3. Charming snake, Eve metaphors of "pluck and apple" to eat the Tree fruit
+4. A face we have all seen. The book cover face
+5. "Under me", subcionsious / secret revelations of Carol's draft writing of Lady Pirate
+6. "A race of angels bound with one another"
+7. Carol's pirate stories used against her subconsious. "A piece of island cooling in the sea"
+8. "A case of aces done up loose for dealing" holding card metaphors, poker, hive mind dealings of happy cards. Playing the happy cards against the 13. Charming the 13 with card dealings. Ace in the hole (song Fire In The Citizen)
+9. "An evening with a movie queen. A face we all have seen" - the book has been adapted instantly like generative artificial innteligence to a live-acting theater / movie. Actor recruited from Africa and transition of naked lunch closes at the ABQ airport.
+
+NEXT TRACKS: high-time you play those ace cards now. In the land of milk and honey (USA) you lay them on the table at the end of the world. Take your weapons off, atom bomb and house bomb, live in this world (Earth / Pale Blue Dot, Kepler-22b ++) https://youtu.be/pvXis9z9jP0?list=PLz9BoPKruY1XxDedKGhSmWUi0Jqko8Ixu&t=80
+
