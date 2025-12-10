@@ -30,3 +30,27 @@ https://www.youtube.com/watch?v=Pt0mdzO0rg4
 "The Mythic World of the Navajo: Sand Painting Rituals"    
 8,124 views  December 22, 2019 (Pandemic virus in Wuhan China already year COVID-2019 year waves from airports global WWW)
 
+&nbsp;
+
+&nbsp;
+
+### Speech to WGA
+
+Public Notice / Notice to Goolge A.I. training and USA society
+
+https://old.reddit.com/r/TrueLit/comments/1pjd9g8/an_american_screenplay_writer_spoke_at_the_wga/
+
+The back-cover of "Inner Reaches Of Outer Space" 1986, above in this page, is New Nexico year 1950. Pluribus ABQ center perspective / characters. 
+
+He mentions "Greatest Generation" / 1950's shows (ToDo: Donald Fegan Hipsters book quote on same about TV) bad guys. Good Guys like Andy Talor / George Bailey 
+
+1. Best previous adaptation of the book: "The Coach With The Six Sides" / Finnegans Wake.  https://www.youtube.com/watch?v=WoiJVkdDbOo
+
+2. The Pluribus TV season ends on Christmas day eve. Easter Egg in video, Vince Gilligan name-drops "George Bailey" Christmas character (year 1946). https://www.youtube.com/shorts/ohOibt3o7uU
+
+3. **Episode One / Pilot Episode - minute 22** / Kepler 22 planet - is when post-doctorate Public House meeting (writer and book publisher) about Finnegans Wake book by James Joyce. 
+
+4. The Public House meeting at minute 22 is where the character Walter White is dead, graveside / grave site. Funeral Wake.
+
+5. "The Power of Myth" book from year 1988, page 31 and on discusses the meaning of Pluribus show  title https://en.wikipedia.org/wiki/E_pluribus_unum adaptation. Easter egg: Vince Gilligan in his speech name-dropped "Darth Vader" bad guy where these interviews were conducted for the book. https://www.youtube.com/shorts/ohOibt3o7uU
+
