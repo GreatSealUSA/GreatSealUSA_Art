@@ -28,6 +28,9 @@ https://www.youtube.com/watch?v=FOhD-VGIt_8
 
 "push off from the shore" of Pirate Lady, across the ocean to the meeting on Air Force One. James Joyce's year 1923 Finn's Hotel... Finnegans Wake recirculations.
 
+Carol Pirate Lady **author**, book writer: "Well, do you ever get the feeling that **the story's too damn real** And in the present tense? Or that **everybody's on the stage** and it seems like you're the **only
+person** sitting in the audience?"... Hello Carol!
+
 &nbsp;
 
 ## Track 2, Carol: my image of you Pirate Lady!
