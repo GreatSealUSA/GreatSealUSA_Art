@@ -84,7 +84,7 @@ Vince Gilligan is a ficker screne cinematogrphy oustanding lighting fisher of Me
 
 Casting actors. Casting stories
 
-* at his speech to the WGA, he used "casting" in terms of "figuring out your next project" and "bad guys". WRITER Andy Taylor, nto ACTORS. Casting the writing cast / die. https://www.youtube.com/shorts/ohOibt3o7uU?t=88
+* at his speech to the WGA, he used "casting" in terms of "figuring out your next project" and "bad guys". WRITER Andy Taylor / George Baley (Christmas ending of Season One), not ACTORS - "Made-up bad guys", "made-up good guys" (Myths). Casting the writing cast / die. https://www.youtube.com/shorts/ohOibt3o7uU?t=88 - "Other tough times in our history" - REAL WORLD April 2021 book assertion / inception. 
 
 On the Mount Doom, the resting place of bad-man Breaking Bad grave, the story begins at the Zero Hour up and down the countdowns digits. Public House keppler Minute 22-b Finnegans Wake Tim spinning in his grave, as spinning front to back Finnegans Wake has no end page. 
 
