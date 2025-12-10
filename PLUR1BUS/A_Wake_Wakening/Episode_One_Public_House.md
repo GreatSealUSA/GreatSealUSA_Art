@@ -88,3 +88,7 @@ The 22 minute of Pilot Episode.
 
 3. Heart to Heart conversation of post-doctorate graduation level of unity marriage. The archbishop just sanctified Carol ;) OPERA_A Stake my independence claim. https://youtu.be/atZ7BlqSPUg?t=164 the sky is falling, a name of the monomyth has changed, from Levant "old world order" to Great Seal new world order. https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants Carol is gatekeeping the Africa pyramid peoples from at her gate to her back yard. Metaphors Ahoy, Carol! Piracy of monomyth (Page 581 Finnegans Wake) have been seen, Sorry I Saw!
 
+Better get on Air Force One, Citlizen Steely Dan / Citizen Finnegans Wake defense force.
+
+<img width="560" height="568" alt="Screenshot from 2025-11-11 10-59-08" src="https://github.com/user-attachments/assets/d8c13633-49fa-4ff3-9915-4b3f6dccc230" />
+
