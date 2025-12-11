@@ -72,3 +72,19 @@ And what might We All find from Kepler-22B gazing? Deaf-dumb-and-blind media eco
 
 Come on Humanity, Pale Blue Dot Pride, Level up our MonoMyth Public Lessons, as Vince has called for at the WGA. https://www.youtube.com/watch?v=e5MAg_yWsq8 Set an open course for the fertlized eggs on ice open seas, Climb Board... We will search with the Great Seal of the United States of America metaphors! Oh Lord, I will try my John One One ... Cary on wayward writers at the WGA... Vince has set sails We The People reformations.  https://www.youtube.com/watch?v=2X_2IdybTV0
 
+&nbsp;
+
+## Carol is defending her Nested Eggs 
+
+&nbsp;
+
+From Mr. White Science Teacher, methlord acceleration.
+
+Just one more morning, Finnegans Wake Up Carol fans, put on your waking shoes....
+
+From the Atalntic Coast of Flordia, see what you can see! The Whole World is **Falling Down** in front of Carol at Minute 22 of Episode One!
+
+https://www.youtube.com/watch?v=2EH_KNfRWSs
+
+John One One Levant Public Dreams got the best of the hive mind. Pull yourself together Carol. Cling down from hotel rooftop, Carol.... We have American Public Dreams 1776 to remember....
+
