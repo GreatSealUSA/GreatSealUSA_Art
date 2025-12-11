@@ -1,4 +1,6 @@
-check spell on 
+# Everything is Schrödinger [Cathouse](https://www.youtube.com/watch?v=2eYpM2EEcS8)
+
+&nbsp;
 
 THE_BIG_ASSERTION: Minute 22 of Kepler-22B story, Episode One Piloting, at the 22 minute, the Zero Hour. In a *Public House* boozing on the grave site of Walter White, a Funeral Wake is being held, gettin piss drunk and pissing on the Mr. White gravespot / g-spot / X chromosome marks the spot. Boozing it up on the "Water Of Life", women celebrating the death of a man who made ABQ toxic chemical dependent with labatory science. Infertility rituals. Helen delivers her post-doctorate thesis: James Joyce Finnegans Wake explains your future, to Carol and the audience entangled. Walter White bad guys are marked for X chromosome execution, dead and alive both. James Joyce is our tool of post-doc military science lab release of RNA Hesienberg mind-fuck meth stimulated agression in men. Terrritorial toxic masculenty that's kept those eggs on ice, the police car state metahors of Romans 11:32 police who *induce* the law-breaking, the bold sinning. A new leader is in town, and Germany's Martin LUther is the old Woke Order, this is Post Romans 11:32 sinners.
 
