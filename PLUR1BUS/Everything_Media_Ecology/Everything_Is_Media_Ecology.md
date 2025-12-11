@@ -137,6 +137,8 @@ OPERA_A : Bible Thumping, Finnegans Wake iterates around, image on the album cov
 
 * did you count to 26? https://mcluhansnewsciences.com/mcluhan/2016/10/abcedmindedness/ - "Just as he does with the “vacuum”, McLuhan takes “abcedmindedness” in two different ways, one seemingly only negative, reflecting literal (ABC…) thought, the other a difficult positive, enabling complex insight into “the gestures of being itself”.  But where he treats the “vacuum” first in negative (empty) fashion, then in positive (replete), here the order is reversed to treat “abcedmindedness” first in its positive aspect (“to be abced-minded is to be part of the dream of history that is Finnegans Wake“), then in its negative one (“just alphabetically controlled”). As with the “vacuum”, the great question is, of course, the relation between these two senses of the term."
 
+OPERA_A : (Dedicated to Rajaa, Metaphors of Hope.) https://www.youtube.com/watch?v=ho7796-au8U did you count to 26?
+
 &nbsp;
 
 ## Everything is Viral Social Distancing
