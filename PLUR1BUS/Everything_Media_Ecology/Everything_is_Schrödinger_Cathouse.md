@@ -89,3 +89,8 @@ https://www.youtube.com/watch?v=2EH_KNfRWSs
 John One One Levant Public Dreams got the best of the hive mind. Pull yourself together Carol. Cling down from hotel rooftop, Carol.... We have American Public Dreams 1776 to remember....
 
 Finnegans Wake *Iterates*, Go Figure, Carol. Bitter Woke Wake book, no begin, no end, Finn Cycle.  Just like your monthly release of those eggs. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
+
+<img width="460" height="396" alt="image" src="https://github.com/user-attachments/assets/e80d3264-0bc8-4ef6-9eb9-51519f7817b8" />
+
+All right, yha yha, Fall of the Peacemakers, Helen the relationship PR peacemaker, Tim - pull yourself together. Put on a new face. Climb down from the ladder, Tim, get back in the race. We The People have dreams to dust off. The Pyramid Hill Clumb of 13 steps to iterate, climb back down, and Do It Again! OPERA_A In the morning period of Helen's death... you go sailing for the Walter White who stole your eggs... https://www.youtube.com/watch?v=LqfNiJQ3HJk
+
