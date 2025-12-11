@@ -133,6 +133,8 @@ That is the heart of the Levant "1 John 4:20" crisis. People will listen to a bo
 
 That's what the hive mind criticism is in { Pluribus 2025 / Finn's Hotel 1923. }.  The **LISTEN UP** Microphone Taps at Minute 22 of Episode One of Pluribus TV streaming show. The picture frame is the image. The framing is what you hear, do not earwicer listen in the Public House, earworm song. Microphone tapping at Minute 22 on Finnegans Wake book, **Bible thumping** ear-worm ear-wicker HCE metaphors of Finnegans Wake and in Pluribus Episode One minute 22 - the Finnegans Wake book thumping verbal dialog to the micrphone knocking / port pirate ship knocking - urge to go for a smoke break because the microphone tapping at Minute 22 of Pluribus Episode One ... Kepler 22 message....
 
+OPERA_A : Bible Thumping, Finnegans Wake iterates around, image on the album cover is Hive Mind World Wide Web, I still remember the Public Dream there in HCE's Public House - Minute 22 Joyce invocation within the Public House / micrphone tapping / booze tapping at the Public House of Earwicker - Minute 22 of Episode One Pluribus. Count to 100, long-distance MonoMyth recirculation of Adam and Eve church. The sound of singsong. John One One. God is dead, He said Good-bye - Walter White's death location is the Pubilic House in ABQ where the admired bad-guy rests and the ladies are doing a Wake Funeral ritual - Do you still remember ALP's dream? The time Tim said goodbye? Hellen say Goodbye with a smile, did you count to 100? Looking for the sunshine - the Happy Hive Mind? https://www.youtube.com/watch?v=ZS-k02hf-hI
+
 &nbsp;
 
 ## Everything is Viral Social Distancing
