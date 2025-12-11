@@ -145,8 +145,11 @@ OPERA_A : Must be getting early, the on-screen clocks of the Minute 22 of Plurib
 
 ## Everything is Viral Social Distancing
 
-The viral infected hive mind socail distance from Carol. Leaving ABQ. Leaving Las Vegas before Carol comes to Elvis "The King" suite at the Western Gate of Western World.
+The viral infected hive mind social distance from Carol. Leaving ABQ. Leaving Las Vegas before Carol comes to Elvis "The King" suite at the Western Gate of Western World.
 
+OPERA_A Repeating Repeater ... Carol keeps attacking, the hive mind distances... firsts are out against the hive https://youtu.be/mzvk0fWtCs0?t=79 It's even worse than it appears
+
+&nbsp;
 
 ## Everything is Organized Religion Shunning
 
