@@ -6,7 +6,9 @@ THE_BIG_ASSERTION: Minute 22 of Kepler-22B story, Episode One Piloting, at the 2
 
 Misdeeds of age 16 aginst [the schizophrenic daughter](https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32) at Levant doouble-imported Christian Lesbian torture camp? OPER_A Import from Afar, Aja, Metaphors of Lunch without clothing, a mechanical torture of a lesbian at the camp. Literary devices of machine-think binary logic of zero or one, dead or alive { Helen, Tim }, and the authoring of books - who created John One One, us ladies or Him? https://www.youtube.com/watch?v=M1pmEy6oNvc
 
-This is a [shootout at the "NOT OK" X chromosome Saloon and Corral](https://en.wikipedia.org/wiki/Gunfight_at_the_O.K._Corral) / Carol.... against the dar-side of Darth Vader father-figutres that put little 16 year old girls into interment camps and poison ABQ with meth mythos. The sexy cool bad-guys are under *fire*, X Skull and Pirate Ship Jolly Roger raised by the middle aged ladies!
+This is a [shootout at the "NOT OK" X chromosome Saloon and Corral](https://en.wikipedia.org/wiki/Gunfight_at_the_O.K._Corral) / Carol.... against the dark-side of Darth Vader father-figures that put little 16 year old girls into interment camps and poison ABQ with meth mythos. The sexy cool bad-guys are under *fire*, X Skull and Pirate Ship Jolly Roger raised by the middle aged ladies! Pick up the microphone taps at minute 22 Episode One? The singson is on stage, the show is on! OPERA_A Carol, take up your white board pen and paper notes. Media Ecology abounds, Everything is Media Ecology. John One One guitars in hand, pluck this bitter heart-srings Carol! WHO_ARE_YOU Helen, are you Tim? https://www.youtube.com/watch?v=LraRTcSY7eU ALP?
+
+&nbsp;
 
 ## Tim Dead from Backwards Ladder Fall?
 
