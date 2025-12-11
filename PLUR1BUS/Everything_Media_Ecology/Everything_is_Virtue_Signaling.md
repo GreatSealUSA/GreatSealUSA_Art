@@ -29,3 +29,14 @@ Carol only met with 5, now number 6 is leaving his storage unit (end of Episode 
 
 On the VHS tape image, you will see "PARABOLA magazine" at the bottom, an outer-space VLA dish reference metaphor.
 
+&nbsp;
+
+## Sacred Cow Box Milk
+
+Milk Box Epsiode Five / Episode Six on Carol's journey:
+
+* "Both happiness here and the bliss of liberation here and hereafter may be attained if the identity of these S ivas be realized in every human act. This will be achieved by making every human func­tion, without exception, a religious act of sacrifice and worship ( Yajna) . . . . And so the Tantrik Sadhaka (adept) , when **eating or drinking**, or fulfilling any of the other natural functions of the body, does so, saying and believing, Sivo 'ham ("I am Siva"), Bhairavo 'ham ("I am Bhairava"), **Sa'ham ("I am She")**. It is not merely **the separate individual who thus acts and enjoys**. It is Siva who does so in andthrough him. ... ... ...  **In the words of the legendary �tavakra: "Having realized the Self in
+all and all in the Self**, released from egoism and the sense of 'mine' be **happy** (sukhi bhava, 'enjoy']!" - 1986, Inner Reaches of Outer Space, Chapter "Metaphor As Myth and As Religion", page 77
+
+Happy hive mind behaviors, caroll the most miserable.
+
