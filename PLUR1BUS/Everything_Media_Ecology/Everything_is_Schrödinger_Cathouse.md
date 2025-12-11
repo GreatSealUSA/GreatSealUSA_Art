@@ -42,4 +42,6 @@ Did you climb onto an ice bed with northern lights, Carol and Helen? Is there no
 
 Clock everything you seee, on-screen timers, at the Zero Hour of Minute 22 of Kepler-22 Episode One...
 
+Little egg things on ice beds might matter later...
+
 You know, this might get messy, Walter White whacker is pissing on the grave at the Zero Hour, getting pissed drunk.
