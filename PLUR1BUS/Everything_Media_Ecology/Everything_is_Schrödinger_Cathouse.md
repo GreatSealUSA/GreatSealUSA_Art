@@ -74,7 +74,7 @@ Come on Humanity, Pale Blue Dot Pride, Level up our MonoMyth Public Lessons, as 
 
 &nbsp;
 
-## Carol is defending her Nested Eggs 
+## Carol is defending her [Nested](https://en.wikipedia.org/wiki/Recursion_(computer_science)) Eggs 
 
 &nbsp;
 
@@ -88,3 +88,4 @@ https://www.youtube.com/watch?v=2EH_KNfRWSs
 
 John One One Levant Public Dreams got the best of the hive mind. Pull yourself together Carol. Cling down from hotel rooftop, Carol.... We have American Public Dreams 1776 to remember....
 
+Finnegans Wake *Iterates*, Go Figure, Carol. Bitter Woke Wake book, no begin, no end, Finn Cycle.  Just like your monthly release of those eggs. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
