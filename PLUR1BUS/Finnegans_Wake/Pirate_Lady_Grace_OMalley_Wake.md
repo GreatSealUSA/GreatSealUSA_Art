@@ -12,3 +12,14 @@ One of the most enduring legends about her dates from this period and concerns H
 
 James Joyce used the legend of Grace O'Malley ("her grace o'malice") and the Earl of Howth in chapter 1 of Finnegans Wake, but added the kidnapping of another fictional son, Hilary, to match his Shem and Shaun theme. Christopher/Tristopher is turned into a Luderman (happy Lutheran) and Hilary into a Tristian (sad Christian).
 
+&nbsp;
+
+# Pirate Lady Jean 
+
+Jean's adaptation:
+
+https://youtu.be/WoiJVkdDbOo?t=562
+
+Sarah Lawrence student Jean Erdman ... American Dancer 
+
+Jean Erdman has spent her life trying to give the keys to Western Male Domination, Female Subjugation to girls and women!  year 1923 Finn's Hotel, and Vince Gilligan is **WGA** gauntlet to **All Writers**
