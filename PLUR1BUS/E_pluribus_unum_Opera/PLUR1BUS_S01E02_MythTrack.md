@@ -44,7 +44,7 @@ https://old.reddit.com/r/Pluribus13/comments/1pj4euc/make_your_peace_with_everyo
 
 &nbsp;
 
-## Track 1.5 Carol is a Fool wihtout Helen's love
+## Track 1.5 Carol is a Fool without Helen's love
 
 "Lenka - The Show (New Version)"    
 https://www.youtube.com/watch?v=elsh3J5lJ6g
