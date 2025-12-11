@@ -140,3 +140,6 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 53. Ice in your drink pirates, Piate writing, drunk authoring on ice. https://en.wikipedia.org/wiki/The_Ice_Pirates
 
+54. The RNA message comes from "Plains of San Augustine"... "Augustine is the patron saint of brewers" / booze. https://en.wikipedia.org/wiki/Augustine_of_Hippo AND "book printers" saint! Helen publisher.
+
+55. Hounds of booze, booze hounds? Who let the Dog's out on Carol's back yard to eat Helen?
