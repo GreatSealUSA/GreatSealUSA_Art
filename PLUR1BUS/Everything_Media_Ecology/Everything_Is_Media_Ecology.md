@@ -118,3 +118,31 @@ Vince Gilligant is a TV producer and writer, and December 5, 2014 I am pointing 
 
 A Pluribus Book Tour, A Grand Tour of a world-wide Television Reality TV producer from London / Moscow speaking in USA at the opening (not close of) Book Tour December 5, 2014
 
+
+&nbsp;
+
+&nbsp;
+
+# Everything is Egoism
+
+Shunning real living people vs. book character. Levant Trillogy science fiction Bible, verse "1 John 4:20" about shunning / hating / avoding living human persons in favor of science fiction character that is not seen / unseen character. Book and oral word love (John 1:1) love over human person love. Egoism / Egomania / non-personing / dehumanizing a person.
+
+* Banksy: “I could sit in a pub and tell you all the things that are written in this book, but you wouldn't fucking listen.”
+
+That is the heart of the Levant "1 John 4:20" crisis. People will listen to a book, but not listen to a human person. Marshall McLuhan's Finnegans Wake concerns. You will listen to a fiction story, "1 John 4:20" - but not living persons. The MEDIUM of book is what you listen to. The Medium is the Message.  Banksy: “I could sit in a pub and tell you all the things that are written in this book, but you wouldn't fucking listen.” - oral in-person vs. book. Same identical words. Karaoke singer, people flee a real person in front of them in favor of a CD music recording by different people. Back to McLuhan: The medium of the recorded song is the song lyrics. People won't listen.
+
+That's what the hive mind criticism is in { Pluribus 2025 / Finn's Hotel 1923. }.  The **LISTEN UP** Microphone Taps at Minute 22 of Episode One of Pluribus TV streaming show. The picture frame is the image. The framing is what you hear, do not earwicer listen in the Public House, earworm song. Microphone tapping at Minute 22 on Finnegans Wake book, **Bible thumping** ear-worm ear-wicker HCE metaphors of Finnegans Wake and in Pluribus Episode One minute 22 - the Finnegans Wake book thumping verbal dialog to the micrphone knocking / port pirate ship knocking - urge to go for a smoke break because the microphone tapping at Minute 22 of Pluribus Episode One ... Kepler 22 message....
+
+&nbsp;
+
+## Everything is Viral Social Distancing
+
+The viral infected hive mind socail distance from Carol. Leaving ABQ. Leaving Las Vegas before Carol comes to Elvis "The King" suite at the Western Gate of Western World.
+
+
+## Everything is Organized Religion Shunning
+
+Organized crimes. Organized mob mentality. Organized mafia. Organized poltiical party shunning other policial parties. Organized relions shunning out-groups: infidels, non-believers, gentiles.
+
+Germany 1938 - Christians shunning out-group Jewish.
+
