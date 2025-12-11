@@ -143,3 +143,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 54. The RNA message comes from "Plains of San Augustine"... "Augustine is the patron saint of brewers" / booze. https://en.wikipedia.org/wiki/Augustine_of_Hippo AND "book printers" saint! Helen publisher.
 
 55. Hounds of booze, booze hounds? Who let the Dog's out on Carol's back yard to eat Helen?
+
+56. Speak the Finnegans Wake directions. "Helen is a Force Ghost" now, a force of historical information about Carol's boozing and drinking and eating. And John 1:1 writing and reading "Force Ghost".
+
+
