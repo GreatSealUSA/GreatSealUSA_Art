@@ -49,3 +49,11 @@ Little egg things on ice beds might matter later...
 You know, this might get messy, Walter White whacker is pissing on the grave at the Zero Hour, getting pissed drunk. [Run Rabbit, Run, Zero Day Mind Exploits abound](https://www.youtube.com/watch?v=FOhD-VGIt_8)... the basket of eggs on ice is Western Wild merging Eastward, [Sail Away](https://www.youtube.com/watch?v=Bw9gLjEGJrw), Hello Carol, the wourld isn't flat... Wake interates, keep going in one direction and one day you wake up in the present day.... an  millions generations removed from ... being who you really want to be... ... your high monomyth seas abound, dear audience, beyond the Walter White fandom... In a Public House noisy bar, Finnegans Wake tried to call you'all, We The People, think about how many times Tim and Helen have fallen like clockwork...
 
 Is there an entangled message awaiing southern celestial hemisphere? How many seasons of your life will you sail as Chicken Little hatches those falling frozen eggs https://www.youtube.com/watch?v=J4_wXPZ1Bnk ? Look up Carol, Caution! EchoLand! https://www.youtube.com/watch?v=U8s_q3IaglQ - or who is the sinner in 1132? Covered in lies, somewhere bedyoond this, I hope I can find the John 1:1 to author... Dear Audience, Metaphor as Mythology, already coming in https://www.youtube.com/watch?v=rZoD8JEFjAE
+
+&nbsp;
+
+# Unsolved Cosmic Questions
+
+Did the Captain of the Pirate Lady cry? Entangled Bermuda Love Triangles, what does the wind say, Carol?
+
+https://www.youtube.com/watch?v=bDmA8qQKhMY
