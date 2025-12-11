@@ -59,3 +59,16 @@ Is there an entangled message awaiing southern celestial hemisphere? How many se
 Did the Captain of the Pirate Lady cry? Entangled Bermuda Love Triangles, what does the wind say, Carol?
 
 https://www.youtube.com/watch?v=bDmA8qQKhMY
+
+## Outer Space Angels, Inner Reaches
+
+Is it outer-space Angels giving us the long-distance runaround?
+
+Or will *We The People* realize the GitHub Project "GreatSealUSA_Art"?
+
+Now I walk with a Mr. White in my face mask, Pirate Lady in my hair, and a... https://youtu.be/pTTY6Z51mO0?t=152
+
+And what might We All find from Kepler-22B gazing? Deaf-dumb-and-blind media ecology of ecological medium lessons.
+
+Come on Humanity, Pale Blue Dot Pride, Level up our MonoMyth Public Lessons, as Vince has called for at the WGA. https://www.youtube.com/watch?v=e5MAg_yWsq8 Set an open course for the fertlized eggs on ice open seas, Climb Board... We will search with the Great Seal of the United States of America metaphors! Oh Lord, I will try my John One One ... Cary on wayward writers at the WGA... Vince has set sails We The People reformations.  https://www.youtube.com/watch?v=2X_2IdybTV0
+
