@@ -19,9 +19,13 @@ The Luke Skywalker virtual signaling website, May the Force Be With You **year 1
 
 "James Joyce in Finnegans Wake gives Anna Livia **Plurabelle**, the **hero­ine** of his dream book, the same polymorphous character, introducing throughout detectable references to her Hindu prototype, while cast­ing H. C. E., **her snoring spouse**, in the role of Vigm." - 1986, Inner Reaches of Outer Space, Chapter 1 endnotes of chapter "**COSMOLOGY** AND THE MYTHIC IMAGINATION", page 121, note 14
 
+* Vince Gilligant even talked about chasting good guy roles at WGA early year 2025. Proposal for VIRTUE SIGNALING: https://www.youtube.com/shorts/ohOibt3o7uU
 
 The back cover of this paper-printed book has **year 1950 New Mexico** sand paintings about two people on a space journey from New Mexico. Carol and Helen's home. The birthplace of the 1950 Atomic Bomb, New Mexico. The array antenna that gets the 78 second signal of RNA virtues is in New Mexico. ABQ abounds, metaphors Ahoy!
 
 Carol only met with 5, now number 6 is leaving his storage unit (end of Episode Six) to meet Carol after the VHS (1986 home-delivery media of Star Wars / Joseph Campbell / PBS home medium technology) delivery from USA. Old video tapes, kind of things people put in storage unit boxes.
 
 <img width="1171" height="1252" alt="image" src="https://github.com/user-attachments/assets/6b212464-7ce7-4eb4-9042-672f5b03fd21" />
+
+On the VHS tape image, you will see "Parabola media" at the bottom, an outer-space VLA dish reference metaphor.
+
