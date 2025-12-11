@@ -139,6 +139,8 @@ OPERA_A : Bible Thumping, Finnegans Wake iterates around, image on the album cov
 
 OPERA_A : (Dedicated to Rajaa, Metaphors of Hope. رجاء) https://www.youtube.com/watch?v=ho7796-au8U did you count to 26?
 
+OPERA_A : Must be getting early, the on-screen clocks of the Minute 22 of Pluribus Episode One, Dawn is Breaking Everywhere. Light a Public House smoke. (Dedicated to Tristan, Isolde, Metaphors of first marriage) https://www.youtube.com/watch?v=mzvk0fWtCs0 - I see you got your fists out, say your { peace, New Mexico pieces } - But the first law wasn't survival to me... Walter White ABQ lesson to me, the deltas and alphas and the betas and the ABC's we all think of, John 1:1 hive mind. I know the paperwork is in rear, it's even worse than it appears, the dog hasn't been fed, sacred cows dipped in petrol.
+
 &nbsp;
 
 ## Everything is Viral Social Distancing
