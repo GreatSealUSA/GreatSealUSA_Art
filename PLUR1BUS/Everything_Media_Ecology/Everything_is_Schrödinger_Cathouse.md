@@ -19,7 +19,7 @@ What is Helen touching upon with her post-doctorate one-line Thesis about James 
 
 * "Like Schrödinger’s cat, “Bygmester Finnegans” is both dead and alive in the quantum state of superposition. Similarly, within “the cropse of our seedfather” is pure virtuality (Joyce 55.8), for “cropse” functions as a fecund corpse that contains the concentrated energy of crops." http://www.concentric-literature.url.tw/issues/Idealism/7.pdf
 
-Who seeds Carol's mind at the age 16 torture camp? Who seeds Carol's eggs? Who seeds the Apple that Carol tells John Cena to pluck? Who seeded these Eve bad metaphors that Joyce's Wake confronts with the equation of Romans 11:32 of the great Allah seeder of sin?
+Who seeds Carol's mind at the age 16 torture camp? Who seeds Carol's eggs? Who seeds the Apple that Carol tells John Cena to pluck? Who seeded these Eve bad metaphors that Joyce's Wake confronts with the equation of Romans 11:32 of the great Allah seeder of sin? Schrödinger Irsh connections, Joycean. https://www.irishtimes.com/culture/heritage/erwin-schrodinger-in-dublin-physicist-womaniser-fugitive-1.3612898 Cathouse womanizer.
 
 
 # Is the audience brain-dead brainrot or alive?
