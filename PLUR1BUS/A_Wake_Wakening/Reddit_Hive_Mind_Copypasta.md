@@ -146,4 +146,5 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 56. Speak the Finnegans Wake directions. "Helen is a Force Ghost" now, a force of historical information about Carol's boozing and drinking and eating. And John 1:1 writing and reading "Force Ghost".
 
+57. Mad-Dog Carol drinking Mad-Dog 20/20 right from the bottle. Lunar egg cycle, PMS binge drinking? Wild night out? Drinking alone, Carol? https://www.youtube.com/watch?v=lpzqQst-Sg8 (Episode 7 preview of Carol outside her house howling at the moon, mad dog style)
 
