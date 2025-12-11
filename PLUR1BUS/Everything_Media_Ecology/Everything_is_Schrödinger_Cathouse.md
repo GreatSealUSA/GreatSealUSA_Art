@@ -32,5 +32,14 @@ Aspirational Walter White teachings to youth, can we address this at the Neil Po
 
 Is a drunk author a better teacher, Carol? Is Joyce a drunk author metaphor of Chistmas Carol of stuck-up admirers? Nasty Walter White teachers, or Betty WHite fandoms who fixate on the show and not the real-world good deeds? Re-asserting Joycean inceptions: Darth Vader, May the Force Be With You Day - 1939. https://www.youtube.com/shorts/ohOibt3o7uU
 
+# Your Own Fault Daddy!
 
+Did HE incept the Sin, and Sin Bravely isn't properly grasped in Christmas Day Eve 2025 times? Is a Skywalker Ranch Darth Vader James Joyce lesson being overlooked by WGA screenplay writers?
 
+In the Forest of the Night, the Science Fiction Poroblems of the "Dark Forest" admiration societies and fandoms.  https://youtu.be/M1pmEy6oNvc?t=92
+
+Did you climb onto an ice bed with northern lights, Carol and Helen? Is there no escape, better run run run, He Who John 1:1 ordered the sins of men over women... He, his Face, his Mask is an equation, that the cathouse says is inverted! https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+Clock everything you seee, on-screen timers, at the Zero Hour of Minute 22 of Kepler-22 Episode One...
+
+You know, this might get messy, Walter White whacker is pissing on the grave at the Zero Hour, getting pissed drunk.
