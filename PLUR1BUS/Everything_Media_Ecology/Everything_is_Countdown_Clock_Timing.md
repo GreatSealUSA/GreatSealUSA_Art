@@ -10,3 +10,7 @@ What timing of this story!
 
 https://old.reddit.com/r/spaceporn/comments/1pji53j/scientists_identified_ribose_used_in_rna_and_for/
 
+# Countdown To Happy
+
+Steely Dan King of the World Sante Fe New Mexico, Manhattan Project, NYC rock-jazz band.
+
