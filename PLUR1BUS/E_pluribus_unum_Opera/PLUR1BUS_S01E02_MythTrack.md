@@ -114,6 +114,16 @@ https://www.youtube.com/watch?v=oaZl12Z5P7g
 
 &nbsp;
 
+### Track 4.5: With our without you...  U2 Irish Metaphors
+
+FUneral Wake 22 minutes Episode One Metaphors, Walter White Funeral Grave, Helen's death into the hive.
+
+Helen? Tim?
+
+https://www.youtube.com/watch?v=ujNeHIo7oTE
+
+&nbsp;
+
 ### Track 5: Boozer DUI Wrecking Ball
 
 https://www.youtube.com/watch?v=My2FRPA3Gf8
