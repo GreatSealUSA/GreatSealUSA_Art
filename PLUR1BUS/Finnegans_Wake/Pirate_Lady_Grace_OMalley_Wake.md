@@ -23,3 +23,11 @@ https://youtu.be/WoiJVkdDbOo?t=562
 Sarah Lawrence student Jean Erdman ... American Dancer 
 
 Jean Erdman has spent her life trying to give the keys to Western Male Domination, Female Subjugation to girls and women!  year 1923 Finn's Hotel, and Vince Gilligan is **WGA** gauntlet to **All Writers**
+
+&nbsp;
+
+## Carol, [Isolde](https://www.youtube.com/watch?v=Yp_s-BHPxvc), The Bewitching Blonde
+
+https://youtu.be/WoiJVkdDbOo?t=803
+
+Who died before he finished, like Tim finnegan, and you bring the story and develop it back to life like Vince Gilligan is to Finn's Hotel year 1923.
