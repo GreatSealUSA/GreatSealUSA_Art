@@ -40,6 +40,16 @@ Carol Pirate Lady **author**, book writer, song lyrics: "Well, do you ever get t
 https://bsky.app/profile/greatsealusa.bsky.social/post/3m7nc7glz422c     
 https://old.reddit.com/r/Pluribus13/comments/1pj4euc/make_your_peace_with_everyone_sold_to_society/   
 
+&nbsp;
+
+&nbsp;
+
+## Track 1.5 Carol is a Fool wihtout Helen's love
+
+"Lenka - The Show (New Version)"    
+https://www.youtube.com/watch?v=elsh3J5lJ6g
+
+Carol can't figure it out, doing it alone.
 
 &nbsp;
 
