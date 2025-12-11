@@ -146,5 +146,5 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 56. Speak the Finnegans Wake directions. "Helen is a Force Ghost" now, a force of historical information about Carol's boozing and drinking and eating. And John 1:1 writing and reading "Force Ghost".
 
-57. Mad-Dog Carol drinking Mad-Dog 20/20 right from the bottle. Lunar egg cycle, PMS binge drinking? Wild night out? Drinking alone, Carol? https://www.youtube.com/watch?v=lpzqQst-Sg8 (Episode 7 preview of Carol outside her house howling at the moon, mad dog style)
+57. Mad-Dog Carol drinking Mad-Dog 20/20 right from the bottle. Lunar egg cycle, PMS binge drinking? Wild night out? Drinking alone, Carol? https://www.youtube.com/watch?v=lpzqQst-Sg8 (Episode [7 preview](https://old.reddit.com/r/Pluribus_TVshow/comments/1pk9d2a/episode_7_preview/) of Carol outside her house howling at the moon, mad dog style). Lyrics about being invited to hive mind and refuse / getting trashed refuse. And after leaving Episode Six, Leaving Las Vegas.
 
