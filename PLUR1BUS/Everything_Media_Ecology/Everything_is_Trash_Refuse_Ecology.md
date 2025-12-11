@@ -37,4 +37,6 @@ All from the same slavage day. February 28, 1954
 
 * "My friends, all I'm trying to say is that if we are to go forward today, we've got to go back and rediscover some mighty precious values that we've left behind. That's the only way that we would be able to make of our world a **better world**, and to make of this world what God wants it to be and the real purpose and meaning of it."
 
+* "The first principle of value that we need to rediscover is this: that all reality hinges on moral foundations. In other words, that this is a moral universe, and that there are moral laws of the universe just as abiding as the physical laws. I'm not so sure we all believe that." - Cosmic RNA light-years away
+
 ToDo: Finn's Hotel 1923 work unpublished, like Carol's Bitter Woke Up book. "Deacons/Demon Deacons: This is the nickname for the sports teams of Wake Forest University. The name originated in 1923" - vs. Chrimson Tide.
