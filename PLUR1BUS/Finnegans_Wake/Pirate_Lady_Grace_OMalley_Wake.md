@@ -28,6 +28,10 @@ Jean Erdman has spent her life trying to give the keys to Western Male Dominatio
 
 ## Carol, [Isolde](https://www.youtube.com/watch?v=Yp_s-BHPxvc), The Bewitching Blonde
 
-https://youtu.be/WoiJVkdDbOo?t=803
+https://youtu.be/WoiJVkdDbOo?t=802
 
-Who died before he finished, like Tim finnegan, and you bring the story and develop it back to life like Vince Gilligan is to Finn's Hotel year 1923.
+Who died before he finished, like Tim Finnegan, and you bring the story and develop it back to life like Vince Gilligan is to Finn's Hotel year 1923. Like a song from the USA to Ireland, first published in New York in 1864. From Jean's school city of the Lady Lawrence, to the 1923 Dublin Finn's Hotel taking up of work in progress adaptations from song to everything Dublin everywhere.
+
+* Book II, Chapter 1 of James Joyce's Finnegans Wake, page 220 https://www.finnegansweb.com/wiki/index.php/Page_220 "something, until they adumbrace a pattern of somebody else or other, after which they are both car-ried off the set and brought home to be well soaped, sponged and scrubbed again by ANN" - Pluribus, Annie Pluribus, the rivverun cleaning of the Pirate Lady ABQ landing rebirth washing.
+
+
