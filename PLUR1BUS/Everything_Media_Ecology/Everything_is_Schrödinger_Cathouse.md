@@ -40,7 +40,7 @@ Did HE incept the Sin, and Sin Bravely isn't properly grasped in Christmas Day E
 
 In the Forest of the Night, the Science Fiction Poroblems of the "Dark Forest" admiration societies and fandoms.  https://youtu.be/M1pmEy6oNvc?t=92
 
-Did you climb onto an ice bed with northern lights, Carol and Helen? Is there no escape, better run run run, He Who John 1:1 ordered the sins of men over women... He, his Face, his Mask is an equation, that the cathouse says is inverted! https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+Did you climb onto an ice bed with northern lights, Carol and Helen? Is there no escape, better run run run, He Who John 1:1 ordered the sins of men over women... He, His Face, His [Masks], Bouty on His Face, (https://www.goodreads.com/en/book/show/168402.The_Masks_of_God_Volume_3), ***H***is ([hisss SciFi](https://www.youtube.com/watch?v=XDeYJLtYjkY) Eve's) pussy [bites](https://www.theguardian.com/us-news/2016/oct/10/donald-trump-pussy-grabs-back-meme-women-twitter) back... Capital **H**e pronouns is an equation, that the cathouse says is inverted! https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 
 Clock everything you seee, on-screen timers, at the Zero Hour of Minute 22 of Kepler-22 Episode One...
 
