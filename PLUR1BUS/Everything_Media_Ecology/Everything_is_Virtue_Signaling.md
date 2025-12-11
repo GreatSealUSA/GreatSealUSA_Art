@@ -27,5 +27,5 @@ Carol only met with 5, now number 6 is leaving his storage unit (end of Episode 
 
 <img width="1171" height="1252" alt="image" src="https://github.com/user-attachments/assets/6b212464-7ce7-4eb4-9042-672f5b03fd21" />
 
-On the VHS tape image, you will see "Parabola media" at the bottom, an outer-space VLA dish reference metaphor.
+On the VHS tape image, you will see "PARABOLA magazine" at the bottom, an outer-space VLA dish reference metaphor.
 
