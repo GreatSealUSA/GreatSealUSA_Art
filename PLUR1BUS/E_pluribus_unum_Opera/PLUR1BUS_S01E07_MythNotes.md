@@ -35,6 +35,17 @@ OPERA_A The Dreamer's hotel is in very bad shape these days. https://www.youtube
 
 &nbsp;
 
+# 14:00 Cooking
+
+"Those crazy bastards sure can cook" - Walter White Science cooking / Alton Brown Science metaphors. Brown Maillard metaphors. 
+
+President of the United States Of America, Pluribus. John Adams year 1814: "shortest road to men's hearts is down their throats".
+
+
+&nbsp;
+
+&nbsp;
+
 # Programmed songs into Hive Minds
 
 https://www.youtube.com/watch?v=XO9FKQAxWZc       
