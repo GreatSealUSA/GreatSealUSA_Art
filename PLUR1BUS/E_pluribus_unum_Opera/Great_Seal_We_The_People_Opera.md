@@ -96,5 +96,9 @@ Post-doctorate Helen Minute 22 Episode One of Pluribus. Post-Doctorate media stu
 
 OPER_A Teach your science fiction audiences well. Nina Paley October 2015 monomyth (page 581 Finnegans Wake) copyright mind-drilled Earwicker EarWorm Deja Vu Christmans *Carol* singing episode Eight in police cruisder. You who are on the road Carol, as you police state cruise: https://www.youtube.com/watch?v=GBO43n_Dbh0 Deja Vu, repeating recursive Great Seal 13 steps of the Africa pyramid, iterations, Finnegans Wake end and begin iterates. The Founding Fathers Hell slowly go by... Feed them on Public Dreams of the Finn's Hotel 1923... https://youtu.be/GBO43n_Dbh0?t=40
 
+OPERA_A Does this git-hub page reference "Deja Vu" songs from CSNY, yes indeed. Carol's eggs on ice, ice cold death of Helen to the hive mind. And Carol's digging for gold with scratch card lotto tickets ;) "I know: I've seen it before" (Deja Vu) - Page 581 Finnegans Wake! *Sorry to Say I've Seen!!!" - https://youtu.be/ySb1f9zWJkQ?t=29 - as cols as a police state cruising for I.C.E. metaphors of northern lights (police lights) flashing over Carol and Helen's ice bed ;)
+
+Deja Vu all over again :)
+
 
 
