@@ -47,6 +47,11 @@ It's great to see the show emphasizing the Wikipedia free health care informatio
 
 ... Almost a Steely Dan Do It Again replay here, man who gifted water ;)
 
+# 21:00 Cash for stolen gas 
+
+He has no issue with breaking into a gas tank and steling gasoline. But he pays for it with cash under the windshield wiper. She he is programmed by his radio to value caplistism / land owernship of the storage unit. But breaking and entering into the closed gasp cap... OK with.
+
+Humanity makes these kind of inconsistent choices throughout history and in every palce. So maybe this isn't worth much discussion. But it does parallel the Vegas casino concern for money, and Carol playing the gas station lottery for winning money.
 
 
 &nbsp;
