@@ -1,9 +1,11 @@
 # S01E07 MythNotes
 
-road sign     
 09:30     
+road sign: "Jemez Springs 15"      
 
-Finn's Hotel year 1923. Finnegans Wake langauge / thunders.
+<img width="1438" height="918" alt="Screenshot from 2025-12-12 03-21-22" src="https://github.com/user-attachments/assets/de17ddd8-064c-4617-927b-e11eb578e7fe" />
+
+Context Assertion: Finn's Hotel year 1923. Finnegans Wake langauge / thunders.
 
 https://en.wikipedia.org/wiki/Jemez_language#Exclusive_vs._inclusive
 
