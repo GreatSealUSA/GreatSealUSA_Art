@@ -100,5 +100,18 @@ OPERA_A Does this git-hub page reference "Deja Vu" songs from CSNY, yes indeed. 
 
 Deja Vu all over again :)
 
+&nbsp;
 
+&nbsp;
+
+# Lucky 13
+
+Lucky 13. https://www.youtube.com/watch?v=1oqOrI8yK-4     
+66,955 views March 12, 2024   
+
+"Plur --- 1 --- Bus" - "Lucky 1" of the Puribus.
+
+Am I getting the gist? Getting warm on Carol's ICE bed?
+
+Is Carol lost, outside the norm, the new normal? https://youtu.be/1oqOrI8yK-4?t=81
 
