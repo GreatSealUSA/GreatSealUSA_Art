@@ -8,7 +8,7 @@ A New York City response to September 11, 2001
 
 This was a call for free-thinking "We The People" to analyze and respond wtih the pasth foward after the Saudi Arabian September 11, 2001 attacks on New York City / United States of America.
 
-## Godshackers
+## Godwhackers
 
 "Godwhacker" developed from a lyric Donald Fagen wrote a few days after his mother died of Alzheimer's. "It's about an **elite squad of assassins whose sole assignment is to find a way into heaven and take out God"**, he later explained. "If the deity actually existed, what sane person wouldn't consider this to be justifiable homicide?"
 
