@@ -94,5 +94,7 @@ Why this Opera, you say? Deja Vu. Finn Cycles.
 
 Post-doctorate Helen Minute 22 Episode One of Pluribus. Post-Doctorate media studies of Joyce. University of Toronto, Canada. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
 
-OPER_A Teach your science fiction audiences well. Nina Paley October 2015 monomyth (page 581 Finnegans Wake) copyright mind-drilled Earwicker EarWorm Deja Vu Christmans *Carol* singing episode Eight in police cruisder. You who are on the road Carol, as you police state cruise: https://www.youtube.com/watch?v=GBO43n_Dbh0
+OPER_A Teach your science fiction audiences well. Nina Paley October 2015 monomyth (page 581 Finnegans Wake) copyright mind-drilled Earwicker EarWorm Deja Vu Christmans *Carol* singing episode Eight in police cruisder. You who are on the road Carol, as you police state cruise: https://www.youtube.com/watch?v=GBO43n_Dbh0 Deja Vu, repeating recursive Great Seal 13 steps of the Africa pyramid, iterations, Finnegans Wake end and begin iterates. The Founding Fathers Hell slowly go by... Feed them on Public Dreams of the Finn's Hotel 1923... https://youtu.be/GBO43n_Dbh0?t=40
+
+
 
