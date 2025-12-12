@@ -124,6 +124,30 @@ Again with the Walter White behviaor of burning down so others can't have your e
 
 &nbsp;
 
+# European Ideals
+
+Hacking through the forest thresholds.
+
+* "Jyce is talking about.” So I wrote it down in my Joyce notebook: “Romans, Chapter 11, verse 32.” Can you imagine my surprise? There was that same number again, 1132, right out of the Good Book! Joyce had taken that **paradox of the Christian faith as the motto of the greatest masterwork of his life. And there he describes ruthlessly the depths of the private and public monstrosities of human life and action in the utterly sinful course of human** history. It’s all there—told with love."
+
+&nbsp;
+
+"In the Grail legend young Perceval has been brought up in the country by a mother who refused the courts and wanted her son to know nothing about the court rules. Perceval’s life is lived in terms of the **dynamic of his own impulse system until he becomes more mature**. Then he is offered a lovely young girl in marriage by her father, who has trained him to be a knight. And Perceval says, “No, I must earn a wife, not be given a wife.” And that’s the beginning of Europe."
+
+MOYERS: The beginning of Europe?
+
+CAMPBELL: Yes—the individual Europe, the Grail Europe.
+Now, when Perceval comes to the Grail castle, he meets the Grail King, who is brought in on a litter, wounded, kept alive 
+
+... Elvis King? Air Force One king?
+
+... "But when nature is thought of as evil, you **don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people**. And the accent here separates us from nature."
+
+... those were native peoples before he walked in the river?
+
+ToDo: campbell talked about men who went into forest and each went their own path, European ideal.
+
+&nbsp;
 
 # Programmed songs into Hive Minds
 
