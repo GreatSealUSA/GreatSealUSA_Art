@@ -80,3 +80,19 @@ CLIP on YouTube:
 https://youtube.com/clip/Ugkx31Sqw9BwEVCEgniRIeujnAWvSyko0_Ho      
 86,857 views October 21, 2015    
 
+Episode 7: Carol is singing programmed songs from her mind / hive mind / as she drives in a Police State / Police Cruiser / copyright author / book publisher metaphors abound. Vince Gilligant WGA world peace speech about "good guys" ideas abound. Christmans *Carol*, Nina Paley's media ecology Finnegans Wake / Finn's Hotel **post-doctorate disseration Ted Talk - october 2010 about hive mind enforcement** police car crusing / police state. 
+
+OPER_A Nina Paley talks about a police car. A Deja Vu topic of October 2015 approaching November 2015 and December 2025. Deja Vu, any men of Vince Gillian raised on F.M. radio of CSNY? Nina Paley feels like letting her Carol freak flag fly singing on a stage in public about her artwork! Carol feels like she owes it to the hive mind, to Helen someone, to Mr. Nobody, to some future unborn child - just as Nina Paley is saying in this ted talk. And the song talks about virus flu outbreak at Christimas, feelling up to par, and increases police parania / Carol singing in police car  https://www.youtube.com/watch?v=as5lE64J1hQ
+
+I promised myself this year, like Nina did in October 2015... We The People Wikipdia Woke Finn's Hotel 1923 James Joyce. MINUTE TWENTY-TWO EPISODE ONE, POST-DOC DISSERTATION IN A PUBLIC HOUSE, EARWORK CAROL SINGSONGS FINN'S HOTEL 1923 POST-DOC DISSERTAtiON OF JOYCE Deja Vu... Episode 7, Carol is CRUISING in the Sunny Southern Weather to sort out these matters,laughing and doing fireworks celebrating Great Seal USA 1776 Founding Fathers days... this GitHub....  https://youtu.be/as5lE64J1hQ?t=184
+
+Why this Opera, you say? Deja Vu. Finn Cycles.    
+
+When Nina Paley was doing that Ted Talk, Ramadan 2010, I was wedding planing for Arab Spring in Africa. Where the Great Seal pyramid shadows Fall of mankind. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
+
+Why this Opera, you say? Deja Vu. Finn Cycles.    
+
+Post-doctorate Helen Minute 22 Episode One of Pluribus. Post-Doctorate media studies of Joyce. University of Toronto, Canada. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
+
+OPER_A Teach your science fiction audiences well. Nina Paley October 2015 monomyth (page 581 Finnegans Wake) copyright mind-drilled Earwicker EarWorm Deja Vu Christmans *Carol* singing episode Eight in police cruisder. You who are on the road Carol, as you police state cruise: https://www.youtube.com/watch?v=GBO43n_Dbh0
+
