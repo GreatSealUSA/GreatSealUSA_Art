@@ -31,11 +31,18 @@ It is sad to me in December 2025 that that 20 hours of video and the book are no
 * Copyright is brain damage yaer 2010 Ted Talk by Nina Paley https://www.youtube.com/watch?v=XO9FKQAxWZc
 
 
-"we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s **Word**"
+"we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s **Word**" - Bill Moyers, Joseph Campbell, George Lucas 1988 published
 
-"we are indeed: ...God’s **Word**"
+"we are indeed: ...God’s **Word**" - Bill Moyers, Joseph Campbell, George Lucas 1988 published book
 
-Carol is John One One Author. The hive-mind is Gods John One One.
+Carol is John One One Author. Book published. The hive-mind is gods John One One. OPERA_A 
 
 Earth, humanity, created Eden and John One One. Just as teams of writers and researches created Pluribus. Just as James Joyce created Finn's Hotel 1923, Finnegans Wake "May the Force Be With You" May 4, 1939
 
+&nbsp;
+
+<img width="2610" height="1667" alt="image" src="https://github.com/user-attachments/assets/948fde00-18bc-4fc0-b27f-063c35aefd7b" />
+
+&nbsp;
+
+https://youtu.be/XO9FKQAxWZc?t=525
