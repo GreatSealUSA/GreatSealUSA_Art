@@ -64,6 +64,15 @@ The player piano at 15 minutes in Episode Seven invokes Westworld Season 1 conne
 
 &nbsp;
 
+# Broken down cars
+
+Carol's police car and the incming immigrant both have car and petrol scenes. Convergance of associations, Indra's Net of Gems topics reflecting on storytelling web hivemind.
+
+He also puts media into the machine for recorded playback. Media ecology again asserted like post-doctorate assertion by Helen at Minute 22 of Episode One.
+
+
+&nbsp;
+
 &nbsp;
 
 
