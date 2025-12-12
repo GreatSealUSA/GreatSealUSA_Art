@@ -41,3 +41,13 @@ MOYERS: There is something about that on the Great Seal of the United States.
 CAMPBELL: That’s what **the Great Seal is all about**. I carry a copy of the Great Seal in my pocket in the form of a dollar bill. 
 
 &nbsp;
+
+&nbsp;
+
+## See Also: [Puribus TV](/PLUR1BUS/E_pluribus_unum_Opera/Great_Seal_We_The_People_Opera.md)
+
+Hive Mind Whackers. The Vegas Mafia, Reno 911 Carol going around in the police car. Now she changed cars since the police car died. But she still wants to destroy the hive mind.
+
+* "It's about an elite squad of assassins whose sole assignment is to find a way into heaven and take out God", he later explained. "If the deity actually existed, what sane person wouldn't consider this to be justifiable homicide?" - Donald Fagen
+
+... Pluribus 13. elite squad of assassins whose sole assignment is to find a way into the hive minds and take out the command and control systems / virus from invaders. Whack Kepler-22B influencers.
