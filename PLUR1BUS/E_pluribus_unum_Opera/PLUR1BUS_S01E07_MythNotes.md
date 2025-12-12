@@ -31,6 +31,16 @@ Boy, the inception of this wikipedia page to the show is wild. Especially from M
 
 OPERA_A The Dreamer's hotel is in very bad shape these days. https://www.youtube.com/watch?v=hJOiQo2ulyw (Wake uou up from R.E.M. end of the world warning alarm bess, Carol singing Rapid Eye Movement sleeping Finnegans)
 
+&nbsp;
 
+&nbsp;
 
+# Programmed songs into Hive Minds
 
+https://www.youtube.com/watch?v=XO9FKQAxWZc       
+"Copyright is Brain Damage | Nina Paley | TEDxMaastricht"        
+October 21, 2015      
+
+One Woman standing up to the music programmed into her head. One woman, Nina Paley, standing up to the hive mind in America.
+
+I see Episode Seven making parallels to Elvis music drawing / attracting (with hot women) a person to Vegas / West Gate hotel suite. The hive mind programming of Carol and is Koumba Diabaté. Pied piper song metaphors. Themes of Elvis and Carol with the police car, jail-breaking an Apple iPhone / jailbreaking the hive mind. https://www.youtube.com/watch?v=gj0Rz-uP4Mk
