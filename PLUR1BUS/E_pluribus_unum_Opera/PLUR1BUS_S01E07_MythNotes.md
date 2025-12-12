@@ -70,6 +70,16 @@ Cool dude! Styx, a great band from Chicago. OPERA_A "The Grand Hive Mind" 1977: 
 
 &nbsp;
 
+> What does any of that have to do with the songs in the episode
+
+In the hospital scene when she first steals the police car and drives it likes she stole it, the hive mind talks to her through the radio.
+
+The hive mind is programming her / puppeting her brain with media content. Influencing her. She and the Elvis fan are puppets on a string. OPERA_A Kepler-22 B signals like the milk carton seeking, Earth is a puppet https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
+&nbsp;
+
+&nbspl
+
 # Songs?
 
 Shot the Sherrif Police Car, killed the police car, killed Helen,but did not shoot the spirit of the Dupty Carol.
