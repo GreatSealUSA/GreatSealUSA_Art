@@ -48,3 +48,18 @@ Earth, humanity, created Eden and John One One. Just as teams of writers and res
 https://youtu.be/XO9FKQAxWZc?t=525      
 86,857 views October 21, 2015    
 
+&nbsp;
+
+# Pluribus Hive Mind
+
+&nbsp;
+
+<img width="1968" height="1679" alt="image" src="https://github.com/user-attachments/assets/acda0a58-f3cb-4067-8858-8b91879c8cdf" />
+
+&nbsp;
+
+https://youtu.be/XO9FKQAxWZc?t=328     
+86,857 views October 21, 2015    
+
+She is doing a Ted Talk about a global brain of media ecology. Books, songs. James Joyce's year 1923 "Finn's Hotel" media ecology, Finnegans Wake, and all and eveyrhting University of Tronto's Marshall McLuhan had to say about James Joyce.
+
