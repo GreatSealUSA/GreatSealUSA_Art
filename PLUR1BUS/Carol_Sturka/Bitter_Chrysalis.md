@@ -46,3 +46,17 @@ Does Carol's fandom know she is married to a  woman, she is a lesbian?
 The title of Carol's unpublished book could be interpreted as "my bitter coming out" (of the closet), as in sexual confrontation with USA society.
 
 ( Is the sex crime of our author in Phoenix Park (HCE) more than the car booze device? Is it changing her character, selling out her truth toa void confronting USA society, and now society is "Hello Carol!" confronting her? )
+
+&nbsp;
+
+# Bitter Stage Level Up - Book Title
+
+"So you have this **cosmic being** with the different **stages of development** indicated in various parts of its body. In order to get above that, and rise to a place"
+
+Lecture I.1.2 - The Individual in Oriental Mythology       
+By Joseph Campbell     
+Date: **February 20, 1961**     
+Venue: The Cooper Union     
+Location: New York, NY     
+Track 10   
+
