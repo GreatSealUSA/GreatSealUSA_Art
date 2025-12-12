@@ -21,7 +21,8 @@ Like the repeat voice mail greetings do cut-out put downs.
 
 Boy, the inception of this wikipedia page to the show is wild. Especially from Minute 22 (Kepler-22 B) of Episode One and Helen's post-doctorate disseration to Carol about Finnegans Wake / James Joyce. The Woke / Wake, USA metaphors. Finn's Hotel housing all the dreams.
 
-OPERA_A The Dreamer's hotel is in very bad shape these days. https://www.youtube.com/watch?v=hJOiQo2ulyw
+OPERA_A The Dreamer's hotel is in very bad shape these days. https://www.youtube.com/watch?v=hJOiQo2ulyw (Wake uou up from R.E.M. end of the world warning alarm bess, Carol singing Rapid Eye Movement sleeping Finnegans)
+
 
 
 
