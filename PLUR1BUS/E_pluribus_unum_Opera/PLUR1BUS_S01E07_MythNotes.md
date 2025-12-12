@@ -1,8 +1,7 @@
 # S01E07 MythNotes
 
-HOt tub, road sign, hot tob time machine metaphors.
-
-09:30 
+road sign     
+09:30     
 
 Finn's Hotel year 1923. Finnegans Wake langauge / thunders.
 
