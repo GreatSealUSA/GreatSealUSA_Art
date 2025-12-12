@@ -46,6 +46,16 @@ President of the United States Of America, Pluribus. John Adams year 1814: "shor
 
 &nbsp;
 
+# 15:00 Player Piano
+
+Any science fiction television series with a player piano and only one *real person* metaphor invokes Westworld Season 1 from HBO. Player piano metaphors for programming minds was huge and established in science fiction USA society.
+
+
+&nbsp;
+
+&nbsp;
+
+
 # Programmed songs into Hive Minds
 
 https://www.youtube.com/watch?v=XO9FKQAxWZc       
