@@ -145,5 +145,7 @@ Circle Bird 12, Eagle has Landed and Taken off again, Finn Cycles. https://en.wi
 
 * Caution! Echoland! You Lucky One, Pete! Let's see, Andy, ask Pete Townshend- is this a Git Hub truck stop or Saint Peter Townshend's fan club? OPER_A https://www.youtube.com/watch?v=k_JnCWT-_O8 or Pluribus Apple //+ TV as Neil Postman described?
 
-I wished that you could see Kepler-22 B - Minute TWENTY-TWO AT EPISODE ONE OF PLURIBUS. Finn's Hotel 1923 James Joyce post-doctorate work.
+I wished that you could see Kepler-22 B - Minute TWENTY-TWO AT EPISODE ONE OF PLURIBUS. Finn's Hotel 1923 James Joyce post-doctorate work. https://youtu.be/k_JnCWT-_O8?t=181 Keeping Bloomsday in full bloom. 
+
+* "He, the eye, what is represented by the eye. Reason. In Latin you wouldn't have to say "he," it could be "it" or "she" or "he." But the divine power has smiled on our doings. And so this new world has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about. If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the **tumult** in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, not in the name of power, and out of that will come **the flowerings** of the new life. That's the sense of that part of the pyramid."
 
