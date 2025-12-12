@@ -149,6 +149,18 @@ ToDo: campbell talked about men who went into forest and each went their own pat
 
 &nbsp;
 
+&nbsp;
+
+# X Path / Y Path
+
+RNA single-chain, Double-helix two wrapped
+
+Man's path is classic Hero's Journey.
+
+Carol's path is the creative mytholgoy, the witer, the land-locked pirate imagination. The Joyce advisor that Helen has always had the Joyce inside and her post-doctorate minute 22 episode one thesis was very very short and Twitter-like but sincere: Finnegans Wake has it all. No other book compares in art vs. reality. Nonfiction vs. fiction. If you make even one single person happy, unified nonfiction with Wake / Woke.
+
+&nbsp;
+
 # Programmed songs into Hive Minds
 
 https://www.youtube.com/watch?v=XO9FKQAxWZc       
