@@ -57,6 +57,10 @@ It's great to see the show emphasizing the Wikipedia free health care informatio
 
 Any science fiction television series with a player piano and only one *real person* metaphor invokes Westworld Season 1 from HBO. Player piano metaphors for programming minds was huge and established in science fiction USA society.
 
+Carol turns on a programmed player piano in the episode. And people can't discuss the idea of human brains being programmed with music. All these messages of "fucking get out of here" from the Reddit hive mind.
+
+The player piano at 15 minutes in Episode Seven invokes Westworld Season 1 connections with the player piano being metaphor for programming hive mind bots / robots. "Westworld" TV show, and "West Gate" hotel with Elvis. The subtext / between the lines is getting stronger and stronger here. Strings are being pulled in associations, even if misleading story lines.
+
 
 &nbsp;
 
