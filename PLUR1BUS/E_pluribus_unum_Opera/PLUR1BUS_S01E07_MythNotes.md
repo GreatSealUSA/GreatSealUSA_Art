@@ -65,7 +65,7 @@ Shot the Sherrif Police Car, killed the police car, killed Helen,but did not sho
 
 &nbsp;
 
-In USA culture society, we used to say things like "Far-Out, Man!" But today people go into raging hate in year 2025. They say "WHAT THE FUCK" at you, they blow their mind on #TruthSocial messages from King Trump. **Raging Citizens**.
+In USA culture society, we used to say things like "Far-Out, Man!" But today people go into raging hate in year 2025. They say "WHAT THE FUCK" at you, they blow their mind on #TruthSocial messages from King Trump. **Raging Citizens**. Blow their top over MAGA / ICE / Musk and book quotes.
 
 Citizen Steely Dan       
 https://www.youtube.com/watch?v=OlixjoBwIAk
