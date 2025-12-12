@@ -22,7 +22,7 @@ Why this GitHub?
 
 Power of Myth 1988 book:
 
-* Spiritually, however, the center is where sight is. Stand on a height and view the horizon. Stand on the moon and view the whole earth rising — even, **by way of television, in your parlor**.” The result is an **unprecedented expansion of horizon,** one that could well serve in our age, as the ancient mythologies did in theirs, to cleanse the doors of perception “to the wonder, at once terrible and fascinating, of ourselves and of the universe.” He argued that it is not science that has diminished human beings or divorced us from divinity. On the contrary, the **new discoveries of science “rejoin us to the ancients” by enabling us to recognize in this whole universe** “a reflection magnified of our own most inward nature; so that we are indeed its ears, its eyes, its thinking, and its speech—or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s Word.” The last time I saw him I asked him if he still believed—as he once had written—“that we are at **this moment** participating in one of the very greatest leaps of the **human spirit to a knowledge** not only of outside nature but also of our own deep inward mystery.” ... He thought a minute and answered, “The **greatest ever**.” - after death of Campbell October 1987, published 1988
+* Spiritually, however, the center is where sight is. Stand on a height and view the horizon. Stand on the moon and view the whole earth rising — even, **by way of television, in your parlor**.” The result is an **unprecedented expansion of horizon,** one that could well serve in our age, as the ancient mythologies did in theirs, to cleanse the doors of perception “to the wonder, at once terrible and fascinating, of ourselves and of the universe.” He argued that it is not science that has diminished human beings or divorced us from divinity. On the contrary, the **new discoveries of science “rejoin us to the ancients” by enabling us to recognize in this whole universe** “a reflection magnified of our own most inward nature; so that we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s **Word**.” The last time I saw him I asked him if he still believed—as he once had written — “that we are at **this moment** participating in one of the very greatest leaps of the **human spirit to a knowledge** not only of outside nature but also of our own deep inward mystery.” ... He thought a minute and answered, “The **greatest ever**.” - after death of Campbell October 1987, published 1988
 
 Greatest ever, Great Seal USA, "by way of television, in your parlor" - media ecology.  And indeed, after my high school graduation... summer of year 1988. June 21 to June 26, 1988. And the public library to get the book.
 
@@ -30,4 +30,12 @@ It is sad to me in December 2025 that that 20 hours of video and the book are no
 
 * Copyright is brain damage yaer 2010 Ted Talk by Nina Paley https://www.youtube.com/watch?v=XO9FKQAxWZc
 
+
+"we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s **Word**"
+
+"we are indeed: ...God’s **Word**"
+
+Carol is John One One Author. The hive-mind is Gods John One One.
+
+Earth, humanity, created Eden and John One One. Just as teams of writers and researches created Pluribus. Just as James Joyce created Finn's Hotel 1923, Finnegans Wake "May the Force Be With You" May 4, 1939
 
