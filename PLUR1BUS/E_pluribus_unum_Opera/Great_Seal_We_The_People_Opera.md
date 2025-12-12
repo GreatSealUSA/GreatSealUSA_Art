@@ -142,3 +142,8 @@ November 17 2020
 Circle Bird 12, Eagle has Landed and Taken off again, Finn Cycles. https://en.wikipedia.org/wiki/Fenian_Cycle 1923 Finn's Hotel. Minute 22 of Episode One of Pluribus. 
 
 * “When Joyce quipped to a critic, “Some of my puns are trivial and some are quadrivial,” he was being, as always, precise. When my critics imagine I am being vaguely metaphorical, I, too, am trying to be literal and precise.” OPERA_A https://www.youtube.com/watch?v=KutWuAggUzQ 257,405 views February 11, 2009
+
+* Caution! Echoland! You Lucky One, Pete! Let's see, Andy, ask Pete Townshend- is this a Git Hub truck stop or Saint Peter Townshend's fan club? OPER_A https://www.youtube.com/watch?v=k_JnCWT-_O8 or Pluribus Apple //+ TV as Neil Postman described?
+
+I wished that you could see Kepler-22 B - Minute TWENTY-TWO AT EPISODE ONE OF PLURIBUS. Finn's Hotel 1923 James Joyce post-doctorate work.
+
