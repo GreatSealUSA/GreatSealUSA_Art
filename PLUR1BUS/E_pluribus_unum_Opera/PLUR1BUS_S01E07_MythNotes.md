@@ -49,10 +49,24 @@ I see Episode Seven making parallels to Elvis music drawing / attracting (with h
 
 ## Television Programming 
 
-I'ts called programming, hive mind programming.
+It's called programming, hive mind programming.
 
 New York Music Industry Howard Bloom: Billy Joel, Michael Jackson, Styx, Prince. He wrote an entire book about the Pluribus "Hive Mind" in August 2000 - more than 25 years ago.  https://www.goodreads.com/work/quotes/23539-global-brain-the-evolution-of-mass-mind-from-the-big-bang-to-the-21st-c
 
 * "Howard Bloom (born June 25, 1943) is an American author. He was a music publicist in the 1970s and 1980s for singers and bands such as Prince, Billy Joel, and Styx. He has published a book on Islam, The Muhammad Code, an autobiography, How I Accidentally Started The Sixties, and three books on human evolution and group behavior: The Genius of the Beast, Global Brain, and The Lucifer Principle."
 
 Cool dude! Styx, a great band from Chicago. OPERA_A "The Grand Hive Mind" 1977: https://www.youtube.com/watch?v=nO62scTZ7Qk
+
+&nbsp;
+
+# Songs?
+
+Shot the Sherrif Police Car, killed the police car, killed Helen,but did not shoot the spirit of the Dupty Carol.
+
+&nbsp;
+
+In USA culture society, we used to say things like "Far-Out, Man!" But today people go into raging hate in year 2025. They say "WHAT THE FUCK" at you, they blow their mind on #TruthSocial messages from King Trump. **Raging Citizens**.
+
+Citizen Steely Dan       
+https://www.youtube.com/watch?v=OlixjoBwIAk
+
