@@ -55,4 +55,4 @@ New York Music Industry Howard Bloom: Billy Joel, Michael Jackson, Styx, Prince.
 
 * "Howard Bloom (born June 25, 1943) is an American author. He was a music publicist in the 1970s and 1980s for singers and bands such as Prince, Billy Joel, and Styx. He has published a book on Islam, The Muhammad Code, an autobiography, How I Accidentally Started The Sixties, and three books on human evolution and group behavior: The Genius of the Beast, Global Brain, and The Lucifer Principle."
 
-Cool dude! Styx, a great band from Chicago. "The Grand Hive Mind" 1977: https://www.youtube.com/watch?v=nO62scTZ7Qk
+Cool dude! Styx, a great band from Chicago. OPERA_A "The Grand Hive Mind" 1977: https://www.youtube.com/watch?v=nO62scTZ7Qk
