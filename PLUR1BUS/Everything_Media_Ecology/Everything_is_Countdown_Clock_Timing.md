@@ -20,7 +20,5 @@ Minute 22 is when walter toys with water on fire contemplating. And picks up, me
 
 Symbolism of fishing, casting matches of flame, fire and brimstone. Hell casting. Matthew 4:19 fishing for greed motivations and defeating The Law, defeating goodness with fire-casting into the lake of fire.
 
-OPERA_A All the way to Fire Lake, who wants to break the cancer at age 50 cake cutting / threshold crossing. That Walt's run off to Fire Lake.  https://www.youtube.com/watch?v=wisED81Wbog Walt wants to play those 8's and aces... long-shot gamble. He's made the free will choice to head out to Fire Lake. The Call to Adventure of Finnegans Anti-Wake, the leadership of bad breaking the audience / RFK Jr set into motion as virus outbreak leader by "bad guys are cook, fire is cool" (Stephen King The Stand, New Mexico Manhattan Project "big fire" is cool!)
-
-
+OPERA_A All the way to Fire Lake, who wants to break the cancer news (ecology of spreading information, bad news) at age 50 cake cutting / threshold crossing. That Walt's run off to Fire Lake.  https://www.youtube.com/watch?v=wisED81Wbog Walt wants to play those 8's and aces... long-shot gamble. He's made the free will choice to head out to Fire Lake. The Call to Adventure of Finnegans Anti-Wake, the leadership of bad breaking the audience / RFK Jr set into motion as virus outbreak leader by "bad guys are cook, fire is cool" (Stephen King The Stand, New Mexico Manhattan Project "big fire" is cool!)
 
