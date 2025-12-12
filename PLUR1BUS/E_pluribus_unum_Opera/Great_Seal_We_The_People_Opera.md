@@ -75,3 +75,8 @@ Christmas Day Eve the show season ends, Episode 13 (Great Seal USA number, Pluri
 
 https://youtu.be/XO9FKQAxWZc?t=569   
 86,857 views October 21, 2015    
+
+CLIP on YouTube:    
+https://youtube.com/clip/Ugkx31Sqw9BwEVCEgniRIeujnAWvSyko0_Ho      
+86,857 views October 21, 2015    
+
