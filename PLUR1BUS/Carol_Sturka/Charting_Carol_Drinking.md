@@ -11,6 +11,8 @@ I noticed this at the end of s01e07, I don't noramlly mind it, but I reazlied
 Gin up Carol. Producers who gin up their character.         
 https://en.wiktionary.org/wiki/gin_up      
 Ginny Jenny Carol Carroll     
+https://www.themoviedb.org/person/2430272-jenn-carroll?language=en-US
+
 
 In the cntext of Minute 22 Episode One Public House, James Joyce authoring drunk... It's wild. And the words having overloaded meaning / a name with description - is very much Joycean Finnegans Wake writing.
 
