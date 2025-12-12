@@ -1,6 +1,13 @@
 # S01E07 MythNotes
 
-09:30     
+## ??:??    
+Driving and Carol's singing to herself (is it on radio too?)     
+
+R.E.M. song "end of the world", Rapid Eye Movement, dream state. CONTEXT ASSERTION: Minute 22 of Episode One, the post-doctorate book thesis of Helen, James Joyce's Finnegans Wake. Rapid Eye Movement is what Wake / Woke / 1923 Finn's Hotel book is about.
+
+&nbsp;
+
+## 09:30     
 road sign: "Jemez Springs 15"      
 
 <img width="1438" height="918" alt="Screenshot from 2025-12-12 03-21-22" src="https://github.com/user-attachments/assets/de17ddd8-064c-4617-927b-e11eb578e7fe" />
