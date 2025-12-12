@@ -91,3 +91,14 @@ In USA culture society, we used to say things like "Far-Out, Man!" But today peo
 Citizen Steely Dan       
 https://www.youtube.com/watch?v=OlixjoBwIAk
 
+&nbsp;
+
+Carol and the fireworks. https://youtu.be/cfm4L0TGDrw?t=302 Enter Shikari and set our MINDS alight.
+
+Carol and the fireworks: https://www.youtube.com/watch?v=QGJuMBdaqIw Katy Perry (6 feet under, helen dead, Walter White gravesite Minute 22 Episode One funeral Wake)
+
+Katy perry and being "woke WOMAN like Carol" (Minute 22 of Eiipside One, Finn's Hotel 23 post-doc thesis from helen): Wide Woke / Wide Awake New Mexico Ladies: https://www.youtube.com/watch?v=k0BWlvnBmIE Joyce Woke / Post-doctorate +++ Joyce +++ Great Seal Metaphors. Jean "Coach With the Six Insides" woke ladies.
+
+
+
+
