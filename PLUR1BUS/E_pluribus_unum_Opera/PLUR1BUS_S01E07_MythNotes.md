@@ -41,6 +41,13 @@ OPERA_A The Dreamer's hotel is in very bad shape these days. https://www.youtube
 
 President of the United States Of America, Pluribus. John Adams year 1814: "shortest road to men's hearts is down their throats".
 
+# 16:20 Health Care
+
+It's great to see the show emphasizing the Wikipedia free health care information. Now all medical knowledge is sorted out and clinical trials and self-diagnostic skills for everyone. Symptoms are no longer unknown to people. The technical discussion of water being the cause of headaches, etc.
+
+... Almost a Steely Dan Do It Again replay here, man who gifted water ;)
+
+
 
 &nbsp;
 
