@@ -44,3 +44,15 @@ October 21, 2015
 One Woman standing up to the music programmed into her head. One woman, Nina Paley, standing up to the hive mind in America.
 
 I see Episode Seven making parallels to Elvis music drawing / attracting (with hot women) a person to Vegas / West Gate hotel suite. The hive mind programming of Carol and Koumba Diabaté. Pied piper song metaphors. Themes of Elvis and Carol with the police car, jail-breaking an Apple iPhone / jailbreaking the hive mind. https://www.youtube.com/watch?v=gj0Rz-uP4Mk
+
+&nbsp;
+
+## Television Programming 
+
+I'ts called programming, hive mind programming.
+
+New York Music Industry Howard Bloom: Billy Joel, Michael Jackson, Styx, Prince. He wrote an entire book about the Pluribus "Hive Mind" in August 2000 - more than 25 years ago.  https://www.goodreads.com/work/quotes/23539-global-brain-the-evolution-of-mass-mind-from-the-big-bang-to-the-21st-c
+
+* "Howard Bloom (born June 25, 1943) is an American author. He was a music publicist in the 1970s and 1980s for singers and bands such as Prince, Billy Joel, and Styx. He has published a book on Islam, The Muhammad Code, an autobiography, How I Accidentally Started The Sixties, and three books on human evolution and group behavior: The Genius of the Beast, Global Brain, and The Lucifer Principle."
+
+Cool dude! Styx, a great band from Chicago. "The Grand Hive Mind" 1977: https://www.youtube.com/watch?v=nO62scTZ7Qk
