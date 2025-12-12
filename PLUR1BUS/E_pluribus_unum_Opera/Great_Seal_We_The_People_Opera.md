@@ -115,3 +115,11 @@ Am I getting the gist? Getting warm on Carol's ICE bed?
 
 Is Carol lost, outside the norm, the new normal? https://youtu.be/1oqOrI8yK-4?t=81
 
+* "It was in 1776 that the thirteen states declared independence. The number thirteen is the number of transformation and rebirth. At the Last Supper there were twelve apostles and one Christ, who was going to die and be reborn. Thirteen is the number of getting out of the field of the bounds of twelve into the transcendent. You have the twelve signs of the zodiac and the sun." - summer of 1986, Luke Skywalker Ranch
+
+I can tell by the dopler-shift that you are starting to lag. While you are here, take my Great Seal United States of America Eagle Eye step 13 up the pyramid.... advice....  https://youtu.be/1oqOrI8yK-4?t=179
+
+OPERA_A You Lucky One: Finn Cycle, Quad 4, Track 5 Track 6 https://www.youtube.com/watch?v=I0fGxujeJbY Your Axe belongs to a nation in death. 82,742 views October 23, 2008 (pre Arab Spring 2009 formation, I shared in 2010 to Africa folks) - We The People tried to speak between lines of Oration! Finn's Hotel 1923, trying to find the feelers... You Lucky ONE. While Workin for Paul Allen Group, "Experience Music Project", in Bellevue - for my October 7 birthday (Hello Putin, Hello Palestine) - my girlfriend Tristan took me to the Quad concert http://www.thewholive.net/concert/index.php?id=851
+
+
+
