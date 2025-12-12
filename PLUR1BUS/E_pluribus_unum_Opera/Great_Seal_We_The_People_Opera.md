@@ -45,4 +45,6 @@ Earth, humanity, created Eden and John One One. Just as teams of writers and res
 
 &nbsp;
 
-https://youtu.be/XO9FKQAxWZc?t=525
+https://youtu.be/XO9FKQAxWZc?t=525      
+86,857 views October 21, 2015    
+
