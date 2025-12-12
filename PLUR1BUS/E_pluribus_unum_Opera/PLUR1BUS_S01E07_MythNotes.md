@@ -75,6 +75,15 @@ Carol's police car and the incming immigrant both have car and petrol scenes. Co
 
 He also puts media into the machine for recorded playback. Media ecology again asserted like post-doctorate assertion by Helen at Minute 22 of Episode One.
 
+&nbsp;
+
+# 23:03 Throw Back The Little Ones
+
+https://www.youtube.com/watch?v=39BQ0siH1VQ
+
+The song is about abusing Epstein style. Men. And dressing like a native / fitting in, and he is learning English to fit in. 
+
+Also invoking Matthew 4:19 hive mind fishing for lost souls, the 13.
 
 &nbsp;
 
