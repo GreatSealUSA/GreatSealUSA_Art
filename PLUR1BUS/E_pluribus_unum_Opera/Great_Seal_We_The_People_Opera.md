@@ -63,3 +63,15 @@ https://youtu.be/XO9FKQAxWZc?t=328
 
 She is doing a Ted Talk about a global brain of media ecology. Books, songs. James Joyce's year 1923 "Finn's Hotel" media ecology, Finnegans Wake, and all and eveyrhting University of Tronto's Marshall McLuhan had to say about James Joyce.
 
+&nbsp;
+
+## December 25, 2025 Christmas USA Pluribus
+
+Christmas Day Eve the show season ends, Episode 13 (Great Seal USA number, Pluribus number)    
+
+<img width="1968" height="1678" alt="image" src="https://github.com/user-attachments/assets/036125e8-83d9-4c8d-9ee3-c9228661e1e7" />
+
+&nbsp;
+
+https://youtu.be/XO9FKQAxWZc?t=569   
+86,857 views October 21, 2015    
