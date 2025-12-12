@@ -87,6 +87,41 @@ Also invoking Matthew 4:19 hive mind fishing for lost souls, the 13.
 
 &nbsp;
 
+
+&nbsp;
+
+# 27:20 Burn Down Mine
+
+Again with the Walter White behviaor of burning down so others can't have your empire / property / storage unit.
+
+"We must be willing to get rid of    
+​the life we've planned, so as to have    
+​the life that is waiting for us.    
+​
+​The old skin has to be shed    
+​before the new one can come.    
+​
+​If we fix on the old, we get stuck.  (Carol's Name)     
+​When we hang onto any form,   
+​we are in danger of putrefaction.   
+​
+​Hell is life drying up.   (Emhasis on hydration)     
+​
+​The Hoarder,   
+​the one in us that wants to keep,    
+​to hold on, must be killed.    
+​
+​If we are hanging onto the form now,    
+​we’re not going to have the form next.    
+​
+​You can’t make an omelet    
+​without breaking eggs.   
+​
+​Destruction before creation."   
+​- Joseph Campbell
+​
+​From A Joseph Campbell Companion: Reflections on the Art of Living
+
 &nbsp;
 
 
