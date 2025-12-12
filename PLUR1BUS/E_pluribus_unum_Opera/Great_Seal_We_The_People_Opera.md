@@ -119,7 +119,26 @@ Is Carol lost, outside the norm, the new normal? https://youtu.be/1oqOrI8yK-4?t=
 
 I can tell by the dopler-shift that you are starting to lag. While you are here, take my Great Seal United States of America Eagle Eye step 13 up the pyramid.... advice....  https://youtu.be/1oqOrI8yK-4?t=179
 
-OPERA_A You Lucky One: Finn Cycle, Quad 4, Track 5 Track 6 https://www.youtube.com/watch?v=I0fGxujeJbY Your Axe belongs to a nation in death. 82,742 views October 23, 2008 (pre Arab Spring 2009 formation, I shared in 2010 to Africa folks) - We The People tried to speak between lines of Oration! Finn's Hotel 1923, trying to find the feelers... You Lucky ONE. While Workin for Paul Allen Group, "Experience Music Project", in Bellevue - for my October 7 birthday (Hello Putin, Hello Palestine) - my girlfriend Tristan took me to the Quad concert http://www.thewholive.net/concert/index.php?id=851
+OPERA_A You Lucky One: Finn Cycle, Quad 4, Track 5 Track 6 https://www.youtube.com/watch?v=I0fGxujeJbY Your Axe belongs to a nation in death. 82,742 views October 23, 2008 (pre Arab Spring 2009 formation, I shared in 2010 to Africa folks) - We The People tried to speak between lines of Oration! Finn's Hotel 1923, trying to find the feelers... You Lucky ONE. While Workin for Paul Allen Group, "Experience Music Project", in Bellevue - for my October 7 birthday (Hello Putin, Hello Palestine, Hello Fox News media ecology) - my tnen-girlfriend Tristan (Y2K Vegas wife, Mary's knock-up day in March) took me to the Quad concert http://www.thewholive.net/concert/index.php?id=851 October 14, 1996 - Track 6 - You Lucky One, Pete! Let's see, Andy, ask Pete Townshend- is this a Git Hub truck stop or Saint Peter Townshend's fan club? ;) 
+
+OPERA_A Who's Next? Quad dreams. https://www.youtube.com/watch?v=dLxpNiF0YKs
 
 
+&nbsp;
 
+Eagle Bird flying around the planet.
+
+&nbsp;
+
+<img width="749" height="459" alt="image" src="https://github.com/user-attachments/assets/91d724eb-c55f-4e01-8a71-5185d1769669" />
+
+&nbsp;
+
+https://medium.com/@andrewmcluhan/our-cause-is-effect-practical-mcluhan-97dd51cac329
+
+Text of a speech delivered on the occasion of the opening of the Media Art Centre for Research and Methodology: **Moscow**, Director Natalia Fuchs     
+November 17 2020
+
+Circle Bird 12, Eagle has Landed and Taken off again, Finn Cycles. https://en.wikipedia.org/wiki/Fenian_Cycle 1923 Finn's Hotel. Minute 22 of Episode One of Pluribus. 
+
+* “When Joyce quipped to a critic, “Some of my puns are trivial and some are quadrivial,” he was being, as always, precise. When my critics imagine I am being vaguely metaphorical, I, too, am trying to be literal and precise.” OPERA_A https://www.youtube.com/watch?v=KutWuAggUzQ 257,405 views February 11, 2009
