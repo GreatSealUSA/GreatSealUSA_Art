@@ -43,4 +43,4 @@ October 21, 2015
 
 One Woman standing up to the music programmed into her head. One woman, Nina Paley, standing up to the hive mind in America.
 
-I see Episode Seven making parallels to Elvis music drawing / attracting (with hot women) a person to Vegas / West Gate hotel suite. The hive mind programming of Carol and is Koumba Diabaté. Pied piper song metaphors. Themes of Elvis and Carol with the police car, jail-breaking an Apple iPhone / jailbreaking the hive mind. https://www.youtube.com/watch?v=gj0Rz-uP4Mk
+I see Episode Seven making parallels to Elvis music drawing / attracting (with hot women) a person to Vegas / West Gate hotel suite. The hive mind programming of Carol and Koumba Diabaté. Pied piper song metaphors. Themes of Elvis and Carol with the police car, jail-breaking an Apple iPhone / jailbreaking the hive mind. https://www.youtube.com/watch?v=gj0Rz-uP4Mk
