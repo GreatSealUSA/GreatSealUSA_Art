@@ -78,7 +78,7 @@ The hive mind is programming her / puppeting her brain with media content. Influ
 
 &nbsp;
 
-&nbspl
+&nbsp;
 
 # Songs?
 
