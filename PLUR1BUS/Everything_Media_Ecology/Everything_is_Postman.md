@@ -16,3 +16,28 @@ https://www.youtube.com/watch?v=V43K5yFn5GM
 5. Our future vision, the Great Seal United States of America eyeglasses vision of { Neil Postman, Joseph Campbell, Bill Moyers }
 
 
+
+&nbsp;
+
+&nbsp;
+
+# Evrything is October 7, 1996
+
+Neil Postman's media ecology book o telvision shows, Pluribus television shows, was published in **November 25, 1985** or so. School season, Thanksgiving 2025 time it seems.
+
+* “Parents embraced “Sesame Street” for several reasons, among them that it assuaged their guilt over the fact that they could not or would not restrict their children’s access to television. “Sesame Street” appeared to justify allowing a four- or five-year-old to sit transfixed in front of a television screen for unnatural periods of time. Parents were eager to hope that television could teach their children something other than which breakfast cereal has the most crackle. At the same time, “Sesame Street” relieved them of the responsibility of teaching their pre-school children how to read—no small matter in a culture where children are apt to be considered a nuisance.... We now know that “Sesame Street” encourages children to love school only if school is like “Sesame Street.” Which is to say, we now know that “Sesame Street” undermines what the traditional idea of schooling represents.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. November 25, 1985
+
+.
+
+* "As I write, the **President of the United States is a former Hollywood movie actor**. One of his principal challengers in 1984 was once a featured player **on television**’s most glamorous show of the 1960’s, that is to say, an astronaut. Naturally, a movie has been made about his extraterrestrial adventure. Former nominee George McGovern has hosted the popular television show “Saturday Night Live.” So has a candidate of more recent vintage, the Reverend Jesse Jackson." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Chapter 1: The Medium is The Metaphor. Page 26 of 291 pages (modern edition with context intro). November 25, 1985
+
+&nbsp;
+
+Then came Fox News: October 7, 1996 - a decade after Postman's book.
+
+Walter White Science Teacher fandom. What Vicne Gilligan is calling out in early 2025 at the WGA with his publich speech / lecture / thesis of media ecology about sexy Walter White and Saul Bad-Man popularity and media ecology of audience aspirations. Febraury 15, 2025 - https://deadline.com/2025/02/vince-gilligan-wga-award-speech-1236291243/
+
+People not grasping the USA Founding Fathers Great Seal metaphors of Pluribus We The People Pale Blue Dot science, are not grasping Fox News HDTV hive mind audience and Elon Musk Twitter TCP/IP audience that Neil Postman was describing November 25, 1985.
+
+Everything is Media Ecology ::: Everything is Neil Postman's book of November 25, 1985.
