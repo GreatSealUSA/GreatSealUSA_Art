@@ -25,7 +25,7 @@ Year 200 USA 1976 spirital reworking. Woodstock 1969 metaphors and monomyths.
 "Dreams I'll Never See" is a cover of the Allman Brothers Band 1969 track "Dreams"    
 https://www.youtube.com/watch?v=2EH_KNfRWSs 
 
-Molly Hatchet has the more progressive drum marching, progressive callings for whiteboards dreamstorming reworkings.
+Molly Hatchet has the more progressive drum marching, progressive callings for whiteboards dreamstorming reworkings. Singsong Finn's Hotel 1923 wake woking.    
 
 https://en.wikipedia.org/wiki/Dreams_(The_Allman_Brothers_Band_album)     
 379,303 views October 29, 2018       
