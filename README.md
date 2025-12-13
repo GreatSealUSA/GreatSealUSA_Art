@@ -11,5 +11,4 @@ Chery-Pick goodness and prize values from any religion or spirtual system in the
 
 &nbsp;
 
-https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Media/Veterans_Day_Memorial_Great_Seal.webp
-![Eagle side of the Gret Seal of the United States of America aligned with the sun above Earth, Pale Blue Dot's light source](/GreatSealUSA_Art/blob/main/Media/Veterans_Day_Memorial_Great_Seal.webp)
+![Eagle side of the Gret Seal of the United States of America aligned with the sun above Earth, Pale Blue Dot's light source](/Media/Veterans_Day_Memorial_Great_Seal.webp)
