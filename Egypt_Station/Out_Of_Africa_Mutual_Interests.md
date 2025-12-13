@@ -21,7 +21,7 @@ ToDo: Insert MLK February 28, 1954 equations about hate. Breaking the chain of H
 
 Paul bearing Africa pyramid messages. Experience with We The People audiences behaviors, Mass Man experience of Paul Bearing the Public Popularity and the Public Dreams and Mass Mind experiences across the global music influences.  
 
-OPERA_A Paul Mc Egypt Station pyarmid Eagle Eye off-axis Liverpooling nonstationary perspectives. Repeated Warnings https://www.youtube.com/watch?v=5vDVZNOFMEM
+OPERA_A Paul Mc Egypt Station pyramid Eagle Eye off-axis Liverpooling nonstationary perspectives. Repeated Warnings https://www.youtube.com/watch?v=5vDVZNOFMEM
 
 OPERA_A Out of Africa, time to dump all on the floor from step 13 back to step 0, assembly around the pyramid and figure out what we can do. Paul Bear rituals to Wake Funeral for the Finnegans ships. Fron Those Who Ought to Aught Y2K 00 to Know - those who SHOUT THE LOUDEST... before the Fall from step 13 to step 0. Library of Alexandria ships are sailing now, around the world.  https://www.youtube.com/watch?v=wTkLLQjgoEU
 
