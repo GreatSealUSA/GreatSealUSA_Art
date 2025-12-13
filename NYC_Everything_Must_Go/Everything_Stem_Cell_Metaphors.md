@@ -9,7 +9,10 @@ Godwhacker Steely Dan precision rewriting.
 
 ## גֹּלֶם
 
-Psalm 139:16
+Psalm 139:16    
+Genesis 2:7 stem cells and food - metaphors for clay to make any shape cell.   
+
+cell of a hive, cell of a body. גֹּלֶם
 
 We the People of the world. We claim the origins of John 1:1 
 
