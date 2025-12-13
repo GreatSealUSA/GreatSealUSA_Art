@@ -1,6 +1,6 @@
-# Everythig Stem Cells Metaphors
+# Everything Stem Cells Metaphors
 
-NOTE: like so much... what a mess, Move this to Pluribus, and I just tossed in some notes while half-asleep at 25 or 6 to 4am from thoughts and an accidental typo in search engine insperation.
+NOTE: like so much... what a mess, Move this to Pluribus, and I just tossed in some notes while half-asleep at 25 or 6 to 04:00 A.M. from thoughts and an accidental typo in search engine inspiration.
 
 
 Pluribus and Rock Opera together. Levant Monomyth.
@@ -16,11 +16,12 @@ cell of a hive, cell of a body. גֹּלֶם
 
 We the People of the world. We claim the origins of John 1:1 
 
-The hive mind is called גֹּלֶם by Carol that they ahve taken Helen.
+The hive mind is called גֹּלֶם by Carol that they have taken Helen.
 
 That biological matter of the hive mind. Unformed.
 
 Carol's unformed choices of motherhood and pregnancy. Stem cells being flexible / dynamic / capable of producing many kinds of cells, morphing - like the hive mind with multiple cells / faces.
+
 
 OPERA_A The Who Face Dances. 
 
