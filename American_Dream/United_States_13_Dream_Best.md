@@ -1,10 +1,13 @@
-# United states 13 Dream Best
+# United States 13 Dream Best
 
 Graet Seal of the United States of America - The Dreawm Machine
 The Blueprints for Progressive Iteration of 13 steps   
 Supporting both Recursive Iterations and While Goodness Progressive Looping   
 The NEW WORLD ORDER post OLD WORLD ORDER: year 635 generation 3 Levant fixted Constittuion and Laws, Fixed Holy Lands geography.    
 The New WORLD ORDER geography is Pale Blue Dot and Cosmos    
+
+States of the Unions       
+Checkpoint States of Progress in Goodness     
 
 &nbsp;
 
