@@ -41,4 +41,26 @@ https://en.wikipedia.org/wiki/Dreams_(The_Allman_Brothers_Band_album)
 379,303 views October 29, 2018       
 https://www.youtube.com/watch?v=oJF5ql7hS8I
 
-1969 All Man Brothers and Sisters - We The People USA We The People Pale Blue Dot    
+Year 1969 All Man Brothers and Sisters - We The People USA We The People Pale Blue Dot    
+
+&nbsp;
+
+https://www.youtube.com/watch?v=okaMU9yL0m4     
+Coldplay    
+302,490 views November 8, 2014     
+
+It is the time of your lives... break down, step down from step 13 backk to the ground, spread love All Around the Pale Blue Dot world. It is the time of your lives to "back to the dreaming board" - and brainstorm together, dreamstorms, and rework our systems and recast our langauges and arts.     
+
+&nbsp;
+
+## Time to Compare Notes Together  
+
+Please Come With We, Touch The Stars above the Great Seal of the United States of America symboism. Can you See?
+
+Time to "Compare Notes"    
+As we all try to "Get By"     
+Ordinary Girls and Boys, Eclipse is Coming     
+Like a Shoorting Star, Take My Hand, Live while You Can - we need to write the dreams - in the palm of your hands, We The People - New Public Dream times, New Public Mythology Creations, New Creative Mythology learning. Merge Sorting Togethers, For All Of Time - Take We All Together, Take Our Hands....   
+
+19,116,418 views June 16, 2009     
+https://www.youtube.com/watch?v=zdmbjaReGmY
