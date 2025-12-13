@@ -9,6 +9,16 @@ The New WORLD ORDER geography is Pale Blue Dot and Cosmos
 States of the Unions       
 Checkpoint States of Progress in Goodness     
 
+The Public Dream Machine / Devices of Public Dreams.    
+Metaphorical Literary Devices and Art Lerning Devices.     
+
+* Skywalker Ranch educational lessons for modern mythology, published year 1988. BILL MOYERS: Why is a myth different from a dream? JOSEPH CAMPBELL: Oh, because a dream is a personal experience of that deep, dark ground that is the support of our conscious lives, and a **myth is the society’s dream**. The myth is **the public dream** and the dream is the private myth. If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an adventure in the dark forest ahead of you. MOYERS: So if my private dreams are in accord with the public mythology, I’m more likely to live healthily in that society. But if my private dreams are **out of step with the public** — CAMPBELL: — you’ll be in trouble. If you’re forced to live **in that system**, you’ll be a neurotic.
+
+## Best of We    
+
+Dreams got the best of We.    
+We The People, the Dreams won over us in some undesired non-goodness way.     
+
 &nbsp;
 
 # Pull Myself Together, Union
