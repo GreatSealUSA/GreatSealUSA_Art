@@ -6,6 +6,8 @@ Supporting both Recursive Iterations and While Goodness Progressive Looping
 The NEW WORLD ORDER post OLD WORLD ORDER: year 635 generation 3 Levant fixted Constittuion and Laws, Fixed Holy Lands geography.    
 The New WORLD ORDER geography is Pale Blue Dot and Cosmos    
 
+&nbsp;
+
 # Pull Myself Together, Union
 
 Progressive. Climb Down from the pyramid top 13, back to the drawing boards, back to the ground level step 0.
@@ -24,3 +26,5 @@ Molly Hatchet has the more progressive drum marching, progressive callings for w
 
 https://en.wikipedia.org/wiki/Dreams_(The_Allman_Brothers_Band_album)     
 https://www.youtube.com/watch?v=oJF5ql7hS8I
+
+1969 All Man Brothers and Sisters - We The People USA We The People Pale Blue Dot    
