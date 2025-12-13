@@ -7,9 +7,9 @@
 Banking hate, factors of factories of hate.    
 Figuring out post World War Two, after 2 World Wars.   
 ++ Post September 11, 2001     
-++ In perspective of September 11, 2001... [The Cruisades](https://en.wikipedia.org/wiki/Crusades) were the "First World War" from Europe to Levant?    
+++ In perspective of September 11, 2001... [The Crusades](https://en.wikipedia.org/wiki/Crusades) were the "First World War" from Europe to Levant?    
 ++ Finn's Hotel from James Joyce 1923 onward, Canadian Marshall McLuhan validated equations     
-++ Founding Fathers Out of Africa: Encoding of [Ubuntu philosopy](https://en.wikipedia.org/wiki/Ubuntu_philosophy) into Pluribus      
+++ Founding Fathers Out of Africa: Encoding of [Ubuntu philosophy](https://en.wikipedia.org/wiki/Ubuntu_philosophy) into Pluribus      
 
 The 1954 American equation
 
@@ -23,6 +23,6 @@ Paul bearing Africa pyramid messages. Experience with We The People audiences be
 
 OPERA_A Paul Mc Egypt Station pyramid Eagle Eye off-axis Liverpooling nonstationary perspectives. Repeated Warnings https://www.youtube.com/watch?v=5vDVZNOFMEM
 
-OPERA_A Out of Africa, time to dump all on the floor from step 13 back to step 0, assembly around the pyramid and figure out what we can do. Paul Bear rituals to Wake Funeral for the Finnegans ships. Fron Those Who Ought to Aught Y2K 00 to Know - those who SHOUT THE LOUDEST... before the Fall from step 13 to step 0. Library of Alexandria ships are sailing now, around the world.  https://www.youtube.com/watch?v=wTkLLQjgoEU
+OPERA_A Out of Africa, time to dump all on the floor from step 13 back to step 0, assembly around the pyramid and figure out what we can do. Paul Bear rituals to Wake Funeral for the Finnegans ships. From Those Who Ought to Aught year Y2K 00 to Know - those who SHOUT THE LOUDEST... before the Fall from step 13 to step 0. Library of Alexandria ships are sailing now, around the world.  https://www.youtube.com/watch?v=wTkLLQjgoEU
 
 Funeral Wake Rituals to sideline anti-goodness anti-progress World War Waves that have been like ocean wake waves upon all humanity. We The People / Peoples need to Funeral Wake Rituals to sideline anti-goodness anti-progress World War Waves that have been like ocean wake waves upon all humanity. We The People / Peoples need to Paul Bear the shuffles and remix and get the entire planet thinking like Woodstock 1969 metaphors and monomyths.
