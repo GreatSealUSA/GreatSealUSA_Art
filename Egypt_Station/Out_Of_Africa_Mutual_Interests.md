@@ -25,5 +25,4 @@ OPERA_A Paul Mc Egypt Station pyrmid perspectives. Repeated Warnings https://www
 
 OPERA_A Out of Africa, time to dump all on the floor from step 13 back to step 0, assembly around the pyramid and figure out what we can do. Paul Bear rituals to Wake Funeral for the Finnegans ships. Fron Those Who Ought to Aught Y2K 00 to Know - those who SHOUT THE LOUDEST... before the Fall from step 13 to step 0. Library of Alexandria ships are sailing now, around the world.  https://www.youtube.com/watch?v=wTkLLQjgoEU
 
-Funeral Wake Rituals to sideline anti-goodness anti-progress World War Waves that have been like ocean wake waves upon all humanity.
-
+Funeral Wake Rituals to sideline anti-goodness anti-progress World War Waves that have been like ocean wake waves upon all humanity. We The People / Peoples need to Pual Bear the shuffles and remix and get the entire planet thinking like Woodstock 1969 metaphors and monomyths.
