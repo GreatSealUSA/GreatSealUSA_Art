@@ -8,3 +8,8 @@ World Mythology Cherry-Picking Tool of the Founding Fathers
 Out of Africa Pyrmid Ideals    
 Homage to the great [Library of Alexandria](https://en.wikipedia.org/wiki/Library_of_Alexandria)     
 Chery-Pick goodness and prize values from any religion or spirtual system in the cosmos    
+
+&nbsp;
+
+https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Media/Veterans_Day_Memorial_Great_Seal.webp
+![Eagle side of the Gret Seal of the United States of America aligned with the sun above Earth, Pale Blue Dot's light source](/GreatSealUSA_Art/blob/main/Media/Veterans_Day_Memorial_Great_Seal.webp)
