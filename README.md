@@ -2,6 +2,7 @@
 
 Year 1776 mythos of the American Dream      
 Metaphors of Pale Blue Dot     
+/!\ https://www.GreatSealUSA.com /!\
 
 World Mythology Cherry-Picking Tool of the Founding Fathers      
 13 Steps up a Pyrmid of Global Discourse, Metaphor to Metaphor Translations    
