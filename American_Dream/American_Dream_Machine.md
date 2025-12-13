@@ -8,7 +8,7 @@ Machine for Cherry Picking and Importing Dreams
 Machine for Context Changing mythology public dream systems.   
 
 
-Best understood through the lense of James Joyce's Finnegans Wake     
+Best understood through the lenses of James Joyce's Finnegans Wake     
 A "new world order" of John 1:1 Bible verse, the origin of public dreams.    
 We The People are the creator of Public Dreams.    
 
