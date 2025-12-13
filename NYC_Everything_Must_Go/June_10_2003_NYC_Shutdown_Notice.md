@@ -6,13 +6,13 @@ A New York City response to September 11, 2001
 
 ## We The People Pluribus 
 
-This was a call for free-thinking "We The People" to analyze and respond wtih the pasth foward after the Saudi Arabian September 11, 2001 attacks on New York City / United States of America.
+This was a call for free-thinking "We The People" to analyze and respond with the paths forward after the Saudi Arabian September 11, 2001 attacks on New York City / United States of America.
 
 ## Godwhackers
 
 "Godwhacker" developed from a lyric Donald Fagen wrote a few days after his mother died of Alzheimer's. "It's about an **elite squad of assassins whose sole assignment is to find a way into heaven and take out God"**, he later explained. "If the deity actually existed, what sane person wouldn't consider this to be justifiable homicide?"
 
-To take out Allah / Jesus / Yahweh - Levant moonomty society dependence.
+To take out Allah / Jesus / Yahweh - Levant moonomtys society dependence.
 
 "In the Beginning" lyrics Bible verse John One One, The Tower of Babel / The Twin Towers of NYC.
 
