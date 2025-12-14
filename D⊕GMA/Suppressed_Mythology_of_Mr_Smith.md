@@ -13,6 +13,14 @@ Reformation suppressed. 1987 "Disqualified from the future" Skywalker Ranch stat
 
 * "The profundity and **sublime majesty of the suppressed mythology** can be appreciated best by way of two apparently unrelated clocks, one, the ultimate clock of outer space, and the other of inner space-respectively, the astronomical precession of the equinoxes and the physiological beat of the human heart." -- The Inner Reaches of Outer Space, 1986, page 12
 
+* A Film from 1999 about a countdown to a Church event, a road race to a church entrance.
+
+*nbsp;
+
+### Skywalking Kevin Smith
+
+&nbsp;
+
 
 BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that **television has made a global village** of the world — but he didn’t know the global village would be Beirut. What does that say to you?
 
