@@ -22,3 +22,18 @@ the murder-suicide loaded bomb drunk bombing at Carol's house was repeated now i
 
 Dreams of Finengans Wake - **Minute 22 of Episode One in the Public House**. Dreams in which dying / death. Tim Finnegan is **Helen's post-doctorate thesis** at the Zero Hour.
 
+People run in circles. The Great Seal USA circles abound, the outer-space, inner-reaches of the sphere metaphors.
+
+
+The American Carol jihad bomb of an Africa immigrant, both under Levant religions.
+
+* "There you have the three great Western religions, Judaism, Christianity, and Islam—and because the three of them have three different names for the same biblical god, they can’t get on together. They are stuck with **their metaphor and don’t realize its reference**. They haven’t allowed **the circle that surrounds them to open**."
+
+Carol outdoors launching rockets against the aliens. Impotence. Howls at the moons like a mad dog, drinking and booing into a mental state of dream associations. Like Tim Finnegan drinking, Earwicker's Public House metaphors. The circeling moon / outer space circles in the sky, planets and stars and our moon and sun and our own Earth circles.
+
+* "just as the **moon sheds its shadow**. The serpent sheds its skin to be born again, as the moon its shadow to be born again. They are equivalent symbols. Sometimes the serpent is represented as a **circle eating** its own tail."
+
+Carol's house is on a circle.
+
+* "Just before going out into the garden at the end of the Last Supper, Jesus says to the company, “Let us dance!” And they all **hold hands in a circle, and as they circle** around Him" - 12 + 1 = 13, Great Seal Thirteen, Pluribus
+
