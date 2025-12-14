@@ -20,6 +20,10 @@ Tears **For Fears** - Mad World (Official Music Video)
 40,666,014 views August 9, 2013    
 https://www.youtube.com/watch?v=u1ZvPSpLxCg
 
+Lyrics: "All around me are familar faces" - but they aren't behaving the same, but they are familar like the mayor of ABQ.
+
+Lyrics: Carol finds it hard to tell / communicate with the others because she can't take it.
+
 the murder-suicide loaded bomb drunk bombing at Carol's house was repeated now in Episode Seven alone as a solo suicide. the rocket aimed right at her head against setting her driveway on fire in echos ("Caution! Echoland!") of the explosion from the immigrant murder-suicide Jihadi post September 11, 2001 metaphors.
 
 Dreams of Finengans Wake - **Minute 22 of Episode One in the Public House**. Dreams in which dying / death. Tim Finnegan is **Helen's post-doctorate thesis** at the Zero Hour.
