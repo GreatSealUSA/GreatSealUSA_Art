@@ -46,9 +46,19 @@ Public Dreams
 
 &nbsp;
 
-# Look Both Ways
+# Look Both Ways SingSongs
+
+Age 13 Puberty crossings   
 
 Before crossing the streets.
+
+God is at step 13, and you can climb. God loves All The People, We The People, if we work together. Pluribus unity compassion Pale Blue Dot, We All Together.    
+
+Knock Three Times      
+23,395,806 views September 14, 2015      
+https://www.youtube.com/watch?v=nt5uNQ3FXRI     
+
+Lyrics: "Don't even know me" - knowledge of global compassion metaphors and Buddha and Hindu teachings merged all together with Levant and Navajo and really - any metaphors of transcendence cherry-picking and studies. Tree of Knowledge sharing and Wikipedia concerns and contributions.
 
 &nbsp;
 
