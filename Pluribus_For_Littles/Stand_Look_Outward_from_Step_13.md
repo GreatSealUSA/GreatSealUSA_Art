@@ -21,6 +21,8 @@ Lyrics: "Developing words that linger. Through **fields of green, through open e
 
 * "this **new world** has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about. If you look behind that pyramid, you see a desert. **If you look before it, you see plants** growing." - Summer of 1986 lessons for Luke Skywalker audiences in California
 
+* Development of Words (John 1:1) that linger, the Tower of Babel metaphors abound. The Constitution, Deceleration of Independence, developing the Bill of Rights. ... "This is a triangle composed of ten points, one point in the middle and four points to each side, adding up to nine: one, two, three, four/five, **six, seven**/eight, nine. This is the primary symbol of Pythagorean philosophy, susceptible of a number of **interrelated** mythological, cosmological, psychological, and sociological interpretations, one of which is the dot at the apex as **representing the creative center out of which the universe and all things** have come." - Summer of 1985 Skywalking Lessons for Star Wars fandom in California for Hollywood audiences and creators.
+
 &nbsp;
 
 # R.E.M. Rapid Eye Movement
