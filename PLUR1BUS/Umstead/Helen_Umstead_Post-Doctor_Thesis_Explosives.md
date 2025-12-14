@@ -22,6 +22,6 @@ Joyce Wordplays Wake / Woke Carol / Screenplays
 
 # Helen Saw! Sorry To Say!
 
-Finnegans Wake Minute 22 of Episode One, The Smile on Helen's Face with the black eyes of skull crack like Tim Finnegan Ladder Fall. Helen's Fall, she smiles, Sorry She Saw! Page 581 of Finnegans Wake, THE BIG SEE THE BIG SAW! SAW TOO MUCH, HELEN DID, Bible verse "1 John 4:20" saw
+Finnegans Wake Minute 22 of Episode One, The [Smile on Helen's Face](https://www.youtube.com/watch?v=QpKnfhO2A-E) after her post-doc thesis sharing with Carol over Walter Whites gravesite... Helen smiles with the black eyes of skull crack like Tim Finnegan Ladder Fall. Helen's Fall, she smiles, Sorry She Saw! Page 581 of Finnegans Wake, THE BIG SEE THE BIG SAW! SAW TOO MUCH, HELEN DID, Bible verse "1 John 4:20" saw
 
 OPERA_A As Helen saw on the Smartphone the touchy topics of touchy media readership... we will ship the message Helen was downloading, already coming in, from Kepler 22B RNA - and we iterates this track as the Wake Iterates. Sun rises, sun sets, Tim falls, Joyce's book riverruns. ALP Hell, you see or saw? Somewhere this is downloading from New Mexico array in the Vertical direction, already coming in. Helen is earwicking https://www.youtube.com/watch?v=rZoD8JEFjAE
