@@ -6,7 +6,7 @@ Age 7 and above Great Seal Dollar Bill Primer
 
 SingSongs for Littles ("Songs for Littles" Ms. Rachel; Joyce merged)   
 
-"Pluribus for Dummies" 1990's no    
+"Pluribus for Dummies" 1990's no https://en.wikipedia.org/wiki/For_Dummies     
 
 &nbsp;
 
