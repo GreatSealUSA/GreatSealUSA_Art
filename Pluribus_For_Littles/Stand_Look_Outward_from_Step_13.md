@@ -64,6 +64,23 @@ Lyrics: "Don't even know me" - knowledge of global compassion metaphors and Budd
 
 &nbsp;
 
+# King George and Others Bow
+
+Elvis too ;) Public Dreams, Stars Above
+
+Green Grass & High Tides    
+22,542,222 views  November 6, 2014      
+From: Saint Augustine, Florida      
+From 1976, 1776 200 years USA, 1975 pre-gaming warm-upward climbing practices     
+Provided to YouTube by **Buddha Records**       
+https://www.youtube.com/watch?v=cz2CAtExXgQ
+
+Cover art work: age 13 children knowledge outside the door of the education center / Church / John 1:1 comparative learning, Tower of Babel middle steps to age 21.   
+
+&nbsp;
+
+&nbsp;
+
 # ToDo: Ms. Rachel
 
 Send to Ms. Rachel this page as introduction to project Age 7 and above eyesight, look up above, look down, look age 7 and above.
