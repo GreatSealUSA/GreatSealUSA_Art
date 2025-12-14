@@ -1,6 +1,9 @@
 # D⊕GMA : Suppressed Mythology of Mr. Smith
 
 Mr. Kevin Smith    
+Mr. Jefferson Smith      
+Mr. Smith Goes to Washington D.C. and finds no pyramid monument. Just dollar bills of suppression.    
+Mr. Smith, Our John Doe, our Mr. Nobody, Speaks Up on the Elephants In the Room.     
 
 Harvey Suppressed it.
 
