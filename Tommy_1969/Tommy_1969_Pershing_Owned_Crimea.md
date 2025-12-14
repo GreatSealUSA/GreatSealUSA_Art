@@ -47,7 +47,8 @@ Lyrics: Ten Years Old, Thoughts as Bold as Thoughts Can Be, The Great Seal inter
 
 Lyrics "Down to the Ground" https://youtu.be/F9Ik-9CrXgE?t=105   
 
-* "When you're **down on the lower levels of this pyramid**, you will be either on one side or on the other. But when you get up to the top" - Skywalker Ranch lessons for Star Wars Fans, Summer of 1986, California (1:42 "silver glittering cloud and the golden" 1:45 "falls down to the ground")
+* "When you're **down on the lower levels of this pyramid**, you will be either on one side or on the other. But when you get up to the top" - Skywalker Ranch lessons for Star Wars Fans, Summer of 1986, California (1:42 "silver glittering cloud and the golden" 1:45 "falls down to the ground") <img width="1122" height="964" alt="image" src="https://github.com/user-attachments/assets/0c7539f4-b6c7-401f-af12-038b942b32fa" />
+
 
 ToDo: Golden top was originally on Egypt pyramids? electrum? (Electronic Daft Punk / The Who Punk metaphors ToDo too)  Are these original lyrics by USA military adaptation? "He's dressed in a silver-sparked
 Glittering gown And his golden beard flows Nearly down to the ground" - in the USA military I hear "falls" (Fall of Mankind, Eden) more than "flows) and YouTube Transcript agrees. I don't hear the word "nearly" in USA military?
