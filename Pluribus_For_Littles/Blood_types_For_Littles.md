@@ -8,7 +8,7 @@ Types of Nightmare of History (Joyce) for Littles / playgrounds of children / tu
 
 Malala made a book for children: https://multiculturalkidblogs.com/2020/03/06/five-great-childrens-books-malala/
 
-&nbps;
+&nbsp;
 
 # Give Love 
 
