@@ -12,7 +12,7 @@ Finn's Hotel, Umstead, is Helen's post-doc thesis to Carol about Carol's 4.5 yea
 
 Joyce Wordplays Wake / Woke Carol / Screenplays
 
-1. "Instead" sounds like Umstead, "um um um um um... Instead of..."
+1. "Instead" sounds like Umstead, "um um um um um... Instead of..." OPERA_A https://www.youtube.com/watch?v=g02WmLzozs8 1,259,157 views March 1, 2010 - "Makes no sense" (Joyce's Writings) Um Um Um Um Um Um "And he just go:" on Github... if this Github writing makes no sense to you... Um Um Um Um Um Um
 
 2. "Undead" Tim Finnegan again, Helen falls like Tim, undead virus zombies, Umstead (BONUS Ireland Bible interpretation conflicts of Catholic vs. Protestant Joyce era: Zombie virus hive mind. OPERA_A https://www.youtube.com/watch?v=6Ejga4kJUts - child slowly taken - eggs of Carol taken by society vs. family - they are fighting in your hive mind )
 
