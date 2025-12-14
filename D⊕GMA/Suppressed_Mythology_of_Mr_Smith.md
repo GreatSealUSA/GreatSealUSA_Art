@@ -28,5 +28,22 @@ JOSEPH CAMPBELL: That’s what the **Great Seal** is all about.
 
 &nbsp;
 
-# D⊕GMA
+# D⊕GMA Resurrected 
 
+ToDo: contact Kevin Smith's film company and link him to this GitHub page. 
+
+https://bsky.app/profile/elmntsofmadness.bsky.social/post/3m7o4byu4a22j    
+
+&nbsp;
+
+<img width="1540" height="386" alt="image" src="https://github.com/user-attachments/assets/43f732f8-0eff-4c2e-8cec-670b77861313" />
+
+&nbsp;
+
+Great Seal of the United States Project 2026 Resurrection 
+
+&nbsp;
+
+<img width="521" height="521" alt="GreatSeal_pyramid_no_eye_upside_down" src="https://github.com/user-attachments/assets/9199f02a-8353-45a6-98ed-79e9c0dd2191" />
+
+&nbsp;
