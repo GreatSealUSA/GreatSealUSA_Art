@@ -30,6 +30,9 @@ Lyrics: "Developing words that linger. Through **fields of green, through open e
 The Eye of Step 13.     
 Stand on Step 13 (Cloud 9 or so)    
 
+"Warner Records Vault"     
+2,267,476 views October 26, 2009    
+R.E.M. - Stand (Video)      
 https://www.youtube.com/watch?v=bLaSXpqp__E
 
 &nbsp;
