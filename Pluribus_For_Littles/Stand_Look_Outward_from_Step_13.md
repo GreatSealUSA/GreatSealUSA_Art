@@ -35,7 +35,9 @@ Stand on Step 13 (Cloud 9 or so)
 R.E.M. - Stand (Video)      
 https://www.youtube.com/watch?v=bLaSXpqp__E   
 
-Lyrics: "Trees would be Falling" - Trees of Knowledge and Lynching / Hanging Trees in Eden of the Roman police and Roman blasphemy free speech laws. "That was out entirely. And that's why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people." -  Summer of 1987 lessons for Luke Skywalking audiences with California Gauchos OPERA_A https://youtu.be/bLaSXpqp__E?t=70
+Lyrics: "Trees would be Falling" - Trees of Knowledge and Lynching / Hanging Trees in Eden of the Roman police and Roman blasphemy free speech laws. ... "That was out entirely. And that's why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people." -  Summer of 1987 lessons for Luke Skywalking audiences with California Gauchos OPERA_A https://youtu.be/bLaSXpqp__E?t=70
+
+* Lyrics: "Think about direction, wonder why you haven't before" https://youtu.be/bLaSXpqp__E?t=84 ... "Here is the statement of the ideals that brought about the formation of the United States. Look at this dollar bill. Now here is the Great Seal of the United States. Look at the pyramid on the left. A pyramid has four sides. These are the four **points of the compass. There is somebody at this point**, there's somebody at that point, and there's somebody at this point." - Luke Skywalker Ranch, California. Education for Gauchos and Star Wars audiences filmed by George Lucas in the middle 1980's
 
 &nbsp;
 
