@@ -12,3 +12,13 @@ The man on his departure from the storage unit won't take not bread or help, won
 
 PARALLEL_ARRAY_CONNECTIONS: Carl Sagan's book and film Contact... uses the same New Mexico Array to receive a short message from deep space. The Contact story opens with a ham radio like our storage unit Radio Shack ham radio. OPERA_A https://www.youtube.com/watch?v=Y2_KMVBmEgc  21,427 views October 23, 2019 (GFO in call sign (license ID) of Elie = get the fuck out ;) CQ W9GFO Small Moves for Contact
 
+&nbsp;
+
+# Carol's dreams of Death
+
+https://www.youtube.com/watch?v=u1ZvPSpLxCg
+
+the murder-suicide loaded bomb drunk bombing at Carol's house was repeated now in Episode Seven alone as a solo suicide. the rocket aimed right at her head against setting her driveway on fire in echos ("Caution! Echoland!") of the explosion from the immigrant murder-suicide Jihadi post September 11, 2001 metaphors.
+
+Dreams of Finengans Wake - **Minute 22 of Episode One in the Public House**. Dreams in which dying / death. Tim Finnegan is **Helen's post-doctorate thesis** at the Zero Hour.
+
