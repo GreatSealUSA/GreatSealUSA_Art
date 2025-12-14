@@ -16,6 +16,8 @@ PARALLEL_ARRAY_CONNECTIONS: Carl Sagan's book and film Contact... uses the same 
 
 # Carol's dreams of Death
 
+Tears **For Fears** - Mad World (Official Music Video)      
+40,666,014 views August 9, 2013    
 https://www.youtube.com/watch?v=u1ZvPSpLxCg
 
 the murder-suicide loaded bomb drunk bombing at Carol's house was repeated now in Episode Seven alone as a solo suicide. the rocket aimed right at her head against setting her driveway on fire in echos ("Caution! Echoland!") of the explosion from the immigrant murder-suicide Jihadi post September 11, 2001 metaphors.
@@ -23,7 +25,6 @@ the murder-suicide loaded bomb drunk bombing at Carol's house was repeated now i
 Dreams of Finengans Wake - **Minute 22 of Episode One in the Public House**. Dreams in which dying / death. Tim Finnegan is **Helen's post-doctorate thesis** at the Zero Hour.
 
 People run in circles. The Great Seal USA circles abound, the outer-space, inner-reaches of the sphere metaphors.
-
 
 The American Carol jihad bomb of an Africa immigrant, both under Levant religions.
 
