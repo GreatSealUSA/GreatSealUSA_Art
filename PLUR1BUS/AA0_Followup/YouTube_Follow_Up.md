@@ -75,6 +75,15 @@ I wonder if Zosia knows English. Her multi-lingual at the airport with Air Force
 
 &nbsp;
 
+After Episode Seven https://www.youtube.com/watch?v=LcIj6TnjQGs "Just Married", "ACEBABY", eggs / ice / immigrants. https://youtu.be/LcIj6TnjQGs?t=102 "from your body" https://youtu.be/LcIj6TnjQGs?t=161 "Carol's Eggs are Fallen Apples"
+
+
+me: Christmas Day Eve ending, immaculate conception, Vince Gilligan doesn't do accidents in scheduling. WGA writing / authoring put on notice year begin lecture / speech about sexy bad guys.RNA from outer space Eden to impregnate a virgin (lesbian) woman. For rebirth of society. An alien / illegal alien / kepler-22b alien pregnancy of 1 of the 13 free thinkers / free will. Her husbandry partner traveling to help like Joseph the non-sex virgin fathering? Metaphors of storytelling surrogate womb / I.C.E. immigrants (show title = April 2021 President Bush book title). uterus of a gestational carrier, message carrier. 
+
+me: "Carol's Eggs are Fallen Apples" is a great sentence and metaphors. Eve fallen from Eden, apple being the humanity fruit (Torah doesn't say, Apple specific, confirm?) - Apple computers mythology knowledge falling from the tree of James Joyce's Finnegans Wake (Helen's post-doctorate thesis: Minute 22 Episode One) metaphors reformations. The Fall of Helen cracks her skull dead / nondead Helen knowledge tree. **Science knowledge** of humanity, the origins of John 1:1 authoring of our stories (including Pluribus Foudning Fathers authoring of Great Seal science path to egg freezing technology). the Founding Fathers reject the fall of mankind and pluck eggs from the body if free will / consent / and desires of the woman. Cosmic egg metaphors abound. OPERA_A The Egg https://www.youtube.com/watch?v=h6fcK_fRYaI
+
+&nbsp;
+
 ## Industry shows
 
 https://www.youtube.com/watch?v=kFrffEktluo
