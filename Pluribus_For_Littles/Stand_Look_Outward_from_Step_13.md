@@ -77,7 +77,7 @@ https://www.youtube.com/watch?v=cz2CAtExXgQ
 
 Cover art work: age 13 children knowledge outside the door of the education center / Church / John 1:1 comparative learning, Tower of Babel middle steps to age 21.   
 
-Good tidings abound.    
+Good tidings abound. Pluribus, We The People, working together. Rising tides lift all boats. Higher well all climb to 13.      
 
 Green grass. "this **new world** has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about. If you look behind that pyramid, you see a desert. **If you look before it, you see plants** growing." - Summer of 1986 lessons for Luke Skywalker audiences in California
 
