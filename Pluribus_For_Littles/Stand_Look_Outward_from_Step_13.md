@@ -14,7 +14,12 @@ https://www.youtube.com/watch?v=OeVgcIFEh3I
 Yes - It Can Happen (Official Music Video)      
 2,705,509 views December 24, 2013 (Christmas Eve)     
 
-Lyrics: "It can happen to *everyone* eventually" - We The People Pluribus.
+Lyrics: "It can happen to *everyone* eventually" - We The People Pluribus.      
+Lyrics: "Developing words that linger. Through **fields of green, through open eyes**. This for us to see." - On the Nile river on the front-facing side of the pyramid. OPERA_A https://youtu.be/OeVgcIFEh3I?t=145    
+
+&nbsp;
+
+* "this **new world** has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about. If you look behind that pyramid, you see a desert. **If you look before it, you see plants** growing." - Summer of 1986 lessons for Luke Skywalker audiences in California
 
 &nbsp;
 
