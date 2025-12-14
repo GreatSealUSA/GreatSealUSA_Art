@@ -75,6 +75,8 @@ I wonder if Zosia knows English. Her multi-lingual at the airport with Air Force
 
 &nbsp;
 
+### Episode 7, Lucky 7 step to 13 Lucky
+
 After Episode Seven https://www.youtube.com/watch?v=LcIj6TnjQGs "Just Married", "ACEBABY", eggs / ice / immigrants. https://youtu.be/LcIj6TnjQGs?t=102 "from your body" https://youtu.be/LcIj6TnjQGs?t=161 "Carol's Eggs are Fallen Apples" https://youtu.be/LcIj6TnjQGs?t=192 excellent "data protection" metaphors - digital footprint / writing book footprint - given how Carol has been a "Wall Facer" with paper notes. https://youtu.be/LcIj6TnjQGs?t=207 you can harvest stem cells in lab after 4 to 7 days. https://youtu.be/LcIj6TnjQGs?t=253 language of film visual storytelling. Approaching like down a wedding in a church in slow hesitance showing off / pregnancy reveal. (Also like a wounded animal who was at the scene of a murder-suicide Jihadi Carol attempt). https://youtu.be/LcIj6TnjQGs?t=266 40 day story bump, baby bump. (another at-home bomb delivery by hive mind to Carol's house, hive mind priority to birth new children, Carol's DNA or otherwise). 
 
 
@@ -88,7 +90,11 @@ ASSERT_BIG_PICTURE: Are we breeding a founding MOTHERS mythology for the Great S
 
 &nbsp;
 
-## Industry shows
+&nbsp;
+
+&nbsp;
+
+# Industry shows / Cast Interviews
 
 https://www.youtube.com/watch?v=kFrffEktluo
 
