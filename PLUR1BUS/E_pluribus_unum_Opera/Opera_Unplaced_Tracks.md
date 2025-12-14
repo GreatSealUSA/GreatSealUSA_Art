@@ -19,3 +19,18 @@ Match up attitudes / rules of the Hive Mind to classic relation texts { Torah, B
 See if there is any pattern of the 13 and their { age / orgin / name / gender / family / occupation / etc. }.
 
 Metaphors of { supercompter cluster, networking TCP/IP v6, CPU microcode updates, CPU OpCodes, forbidden OpCodes / Undocumented OpCodes, competing instruction sets (AMD vs. Intel compatibility on advanced instructions), firmware updates, operating system updates, application updates, operating system API, application API, JSON interchange, Wiki documentation vs. reality of exploration coding, userland vs. God escelations, Great Seal of the United States of America metaphors of cross-mythology Out of Africa OpCodes of symbolism ideals blueprints (Public Dream vs. Private Dream, MLK Jr Dreams) }
+
+&nbsp;
+
+# Audiences watching Happy Days / Saul
+
+Bad guys admiration audiences who won't sustain focus and repeating and repeating Washington "The Capital" - about RFK Jr and the kind of pro-cancer nonsense that Walter White praises pro-poison of the mind drug dealiing blue meth metaphors.
+
+Scientists in love with lawyers, military base killers in love. 
+
+https://www.youtube.com/watch?v=xtIobGdKR5U
+
+1. Alien invasion
+
+2. Anti-openess, red tape, legal jargon to keep Pluribus "We The People" at each other's throats like Walter White and Lawyer Saul bad-man
+
