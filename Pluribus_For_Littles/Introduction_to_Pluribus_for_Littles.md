@@ -14,7 +14,7 @@ Climbing into adulthood. Seeing the stages ahead, using *the eye* of [step 13](h
 
 &nbsp;
 
-## Founding Fathers Blueprints for Pluribus      
+## Founding Fathers [Blue](https://www.youtube.com/watch?v=wupToqz1e2g)prints for Pluribus      
 
 Revivals for Littles and We The People All.
 
