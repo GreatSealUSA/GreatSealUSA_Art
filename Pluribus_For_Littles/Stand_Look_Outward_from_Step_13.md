@@ -35,7 +35,7 @@ Stand on Step 13 (Cloud 9 or so)
 R.E.M. - Stand (Video)      
 https://www.youtube.com/watch?v=bLaSXpqp__E   
 
-Lyrics: "Trees would be Falling" - Trees of Knowledge and Trees in Eden. "That was out entirely. And that's why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people." -  Summer of 1987 lessons for Luke Skywalking audiences with California Gauchos OPERA_A https://youtu.be/bLaSXpqp__E?t=70
+Lyrics: "Trees would be Falling" - Trees of Knowledge and Lynching / Hanging Trees in Eden of the Roman police and Roman blasphemy free speech laws. "That was out entirely. And that's why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people." -  Summer of 1987 lessons for Luke Skywalking audiences with California Gauchos OPERA_A https://youtu.be/bLaSXpqp__E?t=70
 
 &nbsp;
 
