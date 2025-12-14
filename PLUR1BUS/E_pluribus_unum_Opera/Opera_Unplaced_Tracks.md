@@ -10,6 +10,24 @@ White Hhuse / Man of the House / Only USA native New Mexico Pollen Path inherita
 
 &nbsp;
 
+## Track: Audiences watching Happy Days / Saul
+
+Bad guys admiration audiences who won't sustain focus and repeating and repeating Washington "The Capital" - about RFK Jr and the kind of pro-cancer nonsense that Walter White praises pro-poison of the mind drug dealiing blue meth metaphors.
+
+Scientists in love with lawyers, military base killers in love. 
+
+https://www.youtube.com/watch?v=xtIobGdKR5U
+
+1. Alien invasion
+
+2. Anti-openess, red tape, legal jargon to keep Pluribus "We The People" at each other's throats like Walter White and Lawyer Saul bad-man
+
+3. Walter White scientists in love with military secret lab scientists. Power of knowledge and technique over others to cause harm via harmful toxic substances that make people even more aggressive and cut-throat (blue meth). Blue not being relaxing, but hyper-greed and anti-life drug.
+
+&nbsp;
+
+&nbsp;
+
 # Big Ideas
 
 13 free thinking OpCodes against the MonoMyth hive minds.
@@ -22,15 +40,4 @@ Metaphors of { supercompter cluster, networking TCP/IP v6, CPU microcode updates
 
 &nbsp;
 
-# Audiences watching Happy Days / Saul
-
-Bad guys admiration audiences who won't sustain focus and repeating and repeating Washington "The Capital" - about RFK Jr and the kind of pro-cancer nonsense that Walter White praises pro-poison of the mind drug dealiing blue meth metaphors.
-
-Scientists in love with lawyers, military base killers in love. 
-
-https://www.youtube.com/watch?v=xtIobGdKR5U
-
-1. Alien invasion
-
-2. Anti-openess, red tape, legal jargon to keep Pluribus "We The People" at each other's throats like Walter White and Lawyer Saul bad-man
 
