@@ -56,6 +56,6 @@ Lyrics: "Savior of mankind" Christmas Eve Day appraoches.
 
 Lyrics: "She is looking on over me" - Helen / Pirate Lady. Carol's message to the sky from her circle in front of her homestead.
 
-Lyrics; "From decimated dreams" (Finn's Hotel year 1923)
+Lyrics: "From decimated dreams" (Finn's Hotel year 1923)
 
 CONTEXT ASSERTION: Minute Twenty Two of Episode One. Helen gives her post-doctorate thesis to Carol in a Public House: Home is Finn's Hotel 1923, follow Joyce's art metaphors "Portrait of an Art" meaning book onward journey.
