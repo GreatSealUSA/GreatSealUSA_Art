@@ -60,4 +60,4 @@ Great Seal of the United States Project 2026 Resurrection
 
 # ToDo Molly Hatchet up the place
 
-![Uploading image.png…]()
+<img width="521" height="521" alt="GreatSeal_pyramid_no_eye_upside_down" src="https://github.com/user-attachments/assets/b6954f9a-1db5-44da-8bc4-834028b7a7f1" />
