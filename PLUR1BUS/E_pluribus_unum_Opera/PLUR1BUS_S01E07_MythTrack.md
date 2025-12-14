@@ -44,11 +44,12 @@ Carol's house is on a circle.
 
 &nbsp;
 
-# Birthing Eggs on Ice / Pregnancy Revealing 
+### Track: Birthing Eggs on Ice / Pregnancy Revealing 
 
-Visuals This is a man in a hospital bed giving birth
+Visuals This is a man in a hospital bed giving birth. Inverted gender of Pirate Mankind / Pirate *Lady* bits.
 
 (Repeating Track, specific time index of 12 to 13 second index, Great Seal 13 Pluribus Mason symbols)     
+(Repeating Track, once you check into Hotel Finn's Hotel, The Funeral Wake iterates, the last page rivverun to the first page, repeating tracks)    
 https://youtu.be/RRKJiM9Njr8?t=12
 
 Lyrics: "Savior of mankind" Christmas Eve Day appraoches. 
