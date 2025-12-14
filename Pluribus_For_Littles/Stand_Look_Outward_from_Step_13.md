@@ -66,7 +66,7 @@ Lyrics: "Don't even know me" - knowledge of global compassion metaphors and Budd
 
 # King George and Others Bow
 
-Elvis too ;) Public Dreams, Stars Above
+Elvis too ;) Public Dreams, Stars Above. Kings and Queens bow, indicating mutual understandings.   
 
 Green Grass & High Tides    
 22,542,222 views  November 6, 2014      
@@ -76,6 +76,10 @@ Provided to YouTube by **Buddha Records**
 https://www.youtube.com/watch?v=cz2CAtExXgQ
 
 Cover art work: age 13 children knowledge outside the door of the education center / Church / John 1:1 comparative learning, Tower of Babel middle steps to age 21.   
+
+Good tidings abound.    
+
+Green grass. "this **new world** has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about. If you look behind that pyramid, you see a desert. **If you look before it, you see plants** growing." - Summer of 1986 lessons for Luke Skywalker audiences in California
 
 &nbsp;
 
