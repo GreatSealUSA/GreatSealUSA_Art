@@ -43,4 +43,6 @@ The Who (2 of 10) "Amazing Journey", "Sparks", The U.S. Army Band "Pershing's Ow
 
 * Amazing Journey 1969 Lyrics: **"EACH NOTE MAKES"** .... ["a key to understanding numbers, music (ratios 1:1, 2:1, 3:2, 4:3), and the cosmos (Musica Universalis), embodying the divine unfolding from Unity (1) to the whole (10)."](/%CF%84%CE%B5%CF%84%CF%81%CE%B1%CE%BA%CF%84%CF%8D%CF%82/Monument_Of_Africa_USA_Ubuntu.md)
 
-Ten Years Old, Thoughts as Bold as Thoughts Can Be, The Great Seal interpretations at Age 10, Dollar Bill!
+Lyrics: Ten Years Old, Thoughts as Bold as Thoughts Can Be, The Great Seal interpretations at Age 10, Dollar Bill! "the divine unfolding from Unity (1) to the whole (10)" triangles, angels of Trinity.
+
+
