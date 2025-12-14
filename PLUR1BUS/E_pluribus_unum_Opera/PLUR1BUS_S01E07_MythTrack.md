@@ -42,3 +42,19 @@ Carol's house is on a circle.
 
 * "Just before going out into the garden at the end of the Last Supper, Jesus says to the company, “Let us dance!” And they all **hold hands in a circle, and as they circle** around Him" - 12 + 1 = 13, Great Seal Thirteen, Pluribus
 
+&nbsp;
+
+# Birthing Eggs on Ice / Pregnancy Revealing 
+
+Visuals This is a man in a hospital bed giving birth
+
+(Repeating Track, specific time index of 12 to 13 second index, Great Seal 13 Pluribus Mason symbols)     
+https://youtu.be/RRKJiM9Njr8?t=12
+
+Lyrics: "Savior of mankind" Christmas Eve Day appraoches. 
+
+Lyrics: "She is looking on over me" - Helen / Pirate Lady. Carol's message to the sky from her circle in front of her homestead.
+
+Lyrics; "From decimated dreams" (Finn's Hotel year 1923)
+
+CONTEXT ASSERTION: Minute Twenty Two of Episode One. Helen gives her post-doctorate thesis to Carol in a Public House: Home is Finn's Hotel 1923, follow Joyce's art metaphors "Portrait of an Art" meaning book onward journey.
