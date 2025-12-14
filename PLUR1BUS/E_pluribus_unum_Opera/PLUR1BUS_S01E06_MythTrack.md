@@ -26,6 +26,17 @@ NOTEZ: age 16, Carol's interment camp. French langauge lines of Frechman in West
 
 ToDo: Mauritania language French. https://www.saigatours.com/details/north-africa/mauritania/language/ North Africa colony influence. (I've lived in Algeria, I should know to assert this more). "Islamic Republic of Mauritania", Northwest Africa on The Atlantic ocean. Metaphors of The Altantic over-consuption of Elvis Vegas. https://od.reddit.com/r/pluribustv/comments/1p80qwy/koumba_diabates_surname_reveals_his_character_arc/ ... "riverrun, past Eve and Adam's, from swerve of shore to bend of bay, brings us by a commodius vicus of recirculation back to Howth Castle and Environs. **Sir Tristram, violer d'amores, fr'over the short sea, had passen-core rearrived from North Armorica** on this side the scraggy isthmus"
 
+
+&nbsp;
+
+# Track: Western Digestive Tracks
+
+Carol is tracking down milk cartons and food supplies.
+
+Why Didn't Ancient Philosophers Eat Meat?       
+307,625 views  September 14, 2024      
+https://youtu.be/yBM2_-o7Ci8     
+
 &nbsp;
 
 # Track: The West Is The Best 
