@@ -9,7 +9,7 @@
 &nbsp;
 
 Istvan Hoeller    
-November 27, 1931 (age 93)    
-Budapest, Hungary    
+Born on November 27, 1931 (age 93)    
+Born in Budapest, Hungary    
 
 https://en.wikipedia.org/wiki/Stephan_A._Hoeller
