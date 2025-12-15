@@ -20,6 +20,8 @@ Episode 6: https://youtu.be/kfWduhytIUs?t=223 the words parts of humanity and sa
 
 &nbsp;
 
+After episode 7: https://www.youtube.com/watch?v=vtMu-EUU_8o Carol is lie, surrender, sneaky. The fireworks before the hug. Intent. Like the jihad murder-suicide bombing.
+
 
 ## Channel 1
 
