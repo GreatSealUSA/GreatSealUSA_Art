@@ -17,3 +17,10 @@ United States of America Dollar Bill currency symbolism and metaphor learning. I
 &nbsp;
 
 OPERA_A Slang of Ages https://www.youtube.com/watch?v=Qq9svJV271Y
+
+&nbsp;
+
+# Into Adulthood
+
+Pluribus Learning for Ages, For The Ages - Pluribus Studies for age 7 and older children... into adulthood
+
