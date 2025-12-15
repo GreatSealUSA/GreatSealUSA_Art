@@ -29,7 +29,7 @@ What it was:"
 Celebration of Ignorance    
 
 Please review: it is import to understand. The anti-intellectual cult problems.   
-[Year 1987 review of the situation of education on the Great Seal of the United States of America](https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/TwoAndOnlyTw0/Utterly_Deplorable_and_Regrettable_and_Terrible.md)
+[Year 1987 review of the situation of education on the Great Seal of the United States of America](/TwoAndOnlyTw0/Utterly_Deplorable_and_Regrettable_and_Terrible.md)
 
 * “There is a cult of ignorance in the United States, and there has always been. The strain of anti-intellectualism has been a constant thread winding its way through our political and cultural life, nurtured by the false notion that democracy means that 'my ignorance is just as good as your knowledge.”
 ― Isaac Asimov, year 1980. 
