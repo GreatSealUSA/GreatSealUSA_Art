@@ -41,7 +41,7 @@ Please review: it is import to understand. The anti-intellectual cult problems.
 
 # Most printed paper $1
 
-How many paper ships have been traded with this pyramid and eagle on them, yet ignorance abounds. There are copies of these symbols all over in wallets, purses, pockets, cash registers, stapled or framed on walls of taverns, bars, and other public houses.
+How many paper slips have been traded with this pyramid and eagle on them, yet ignorance abounds. There are copies of these symbols all over in wallets, purses, pockets, cash registers, stapled or framed on walls of taverns, bars, and other public houses.
 
 What kind of national pride and 
 
