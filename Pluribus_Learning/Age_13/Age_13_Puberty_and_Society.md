@@ -3,7 +3,8 @@
 Learning the word "Puberty"    
 How to interact with society and changing bodies.
 
-Not so long ago:
+Not so long ago:        
+https://en.wikipedia.org/wiki/Peter_Mayle#Bibliography       
 
 * Where Did I Come From? (uk) The Facts of Life Without Any Nonsense and with Illustrations, illustrated by Arthur Robins and Paul Walter, Carol Publishing Group (Secaucus, NJ), 1973.
 
