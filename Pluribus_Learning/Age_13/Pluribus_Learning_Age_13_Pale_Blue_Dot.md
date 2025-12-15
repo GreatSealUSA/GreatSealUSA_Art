@@ -1,6 +1,6 @@
 # Pluribus Learning Age 13 Pale Blue Dot
 
-Carl Sagan, teach / science educator.
+Carl Sagan, teacher / science educator.
 
 &nbsp;
 
