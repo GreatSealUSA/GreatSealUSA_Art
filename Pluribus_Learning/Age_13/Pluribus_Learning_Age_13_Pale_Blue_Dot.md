@@ -22,3 +22,12 @@ https://en.wikipedia.org/wiki/Pale_Blue_Dot#Reflections
 
 2,442,484 views September 9, 2015     
 https://www.youtube.com/watch?v=GO5FwsblpT8
+
+&nbsp;
+
+# Year 1995 Postman
+
+Media educator Neil Postman. Teacher of Teachers.  
+
+* “Educators may bring upon themselves unnecessary travail by taking a tactless and unjustifiable position about the relation between scientific and religious narratives. We see this, of course, in the conflict concerning creation science. Some educators representing, as they think, the conscience of science act much like those legislators who in 1925 prohibited by law the teaching of evolution in Tennessee. In that case, anti-evolutionists were fearful that a scientific idea would undermine religious belief. Today, pro-evolutionists are fearful that a religious idea will undermine scientific belief. The former had insufficient confidence in religion; the latter insufficient confidence in science. The point is that profound but contradictory ideas may exist side by side, if they are constructed from different materials and methods and have different purposes. Each tells us something important about where we stand in the universe, and it is foolish to insist that they must despise each other.” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995
+
