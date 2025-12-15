@@ -8,7 +8,7 @@ Marriage and child custody after divorce
 Marriage of Eternal, "A Forever Home", "A Forever Marriage"    
 
 Peering ahead to the future in marriage.   
-At age 21, what will be the best movie of the year when you are age 51? What kind of music will be 30 years in the future? Which nations will be at war in 30 years, when you are age 51? What will video games and transportation be like in 30 years, age 51? How can you know what your spouse will be in 30 years, age 51?  
+At age 21, what will be the best movie of the year when you are age 51? What kind of music will be 30 years in the future? Which nations will be at war in 30 years, when you are age 51? What will video games and transportation be like in 30 years, age 51? How can you know what your spouse will be in 30 years, age 51? What will medical be in 30 years, at age 51 - will cosmetic surgery and technology implants in the body be common?  
 
 OPERA_A Honesty in intimate relationships billy joel
 
