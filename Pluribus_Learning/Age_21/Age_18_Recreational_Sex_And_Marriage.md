@@ -5,7 +5,7 @@ Understanding and learning
 Marriage with freedom to divorce     
 Marriage with children, planning parenting    
 Marriage and child custody after divorce    
-Marriage of Internal, "A Forever Home", "A Forever Marriage"    
+Marriage of Eternal, "A Forever Home", "A Forever Marriage"    
 
 Peering ahead to the future in marriage.   
 
