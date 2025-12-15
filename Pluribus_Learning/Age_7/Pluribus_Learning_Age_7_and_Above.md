@@ -1,7 +1,8 @@
 # Pluribus Learning Age 7 and Above
 
-Failure to educate the population on the meaning of symbolism has been a national tragedy.
+Failure to educate the population on the meaning of symbolism and the practice of art interpretation has been a national tragedy.
 
+&nbsp;
 
 #  The Belluminati year 2017
 
