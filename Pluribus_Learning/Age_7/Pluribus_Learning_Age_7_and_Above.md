@@ -43,9 +43,9 @@ Please review: it is import to understand. The anti-intellectual cult problems.
 
 How many paper slips have been traded with this pyramid and eagle on them, yet ignorance abounds. There are copies of these symbols all over in wallets, purses, pockets, cash registers, stapled or framed on walls of taverns, bars, and other public houses.
 
-What kind of national pride and 
+What kind of national pride and heritage are we honoring?
 
-The VERY BEST of the Founding Fathers.
+We The People are avoiding the **VERY BEST of the Founding Fathers**.
 
 We can face the horrific reality of slavery being in The Bible imported from the Levant, we can face the reality of adult women not being give the right to vote.
 
