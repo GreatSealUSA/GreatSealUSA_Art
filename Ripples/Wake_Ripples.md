@@ -13,7 +13,7 @@ Adam and Eve's disobedience in eating the forbidden fruit from the Tree of Knowl
 
 &nbsp;
 
-* "that is not the god of the Bible. These men did not believe in a Fall. They did not think the mind of man was cut off from God. The mind of man, cleansed of secondary and merely temporal concerns, beholds with the radiance of a cleansed mirror a reflection of the rational mind of God. Reason puts you in touch with God. Consequently, for these men, there is no special revelation anywhere" - The Power of Myth, published year 1988
+* On the Great Seal of the United States of America: "that is not the god of the Bible. These men did not believe in a Fall. They did not think the mind of man was cut off from God. The mind of man, cleansed of secondary and merely temporal concerns, beholds with the radiance of a cleansed mirror a reflection of the rational mind of God. Reason puts you in touch with God. Consequently, for these men, there is no special revelation anywhere" - The Power of Myth, published year 1988
 
 &nbsp;
 
