@@ -46,5 +46,5 @@ We can face the horrific reality of slavery being in The Bible imported from the
 
 But we can not face the very best goodness of the founding fathers? What kind of patriotism and pride in humanity is that? That we can't be proud of a teaching and spiritual system that promotes world peace and mutual understanding, democracy?
 
-We have a diamond covered in badness. How native Amricans / first peoples / native peoples were treated. How slavery was carried into the nation from The Bible of 1,700 years earlier. How women were not allowed to vote. But we avoid the best part, a "We is All of Us" Pluribus system that is printed on every slip of paper we carry?
+We have a diamond covered in badness. How native Americans / first peoples / native peoples were treated. How slavery was carried into the nation from The Bible of 1,700 years earlier. How women were not allowed to vote. But we avoid the best part, a "We is All of Us" Pluribus system that is printed on slips of paper we carry all over?
 
