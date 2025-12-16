@@ -26,9 +26,11 @@ https://youtu.be/ve7API5VWEk?t=286
 "Mojito pouch"  
 Tim Finnegan's Mixers of Water of Life.
 
-1. Muddle the leaves of Eden. Applied technique / technology to the leaves of fruits. Middle the mint. Muddle the MonoMyth tales. There's a twist in your Joycean tale. https://youtu.be/1oqOrI8yK-4?t=125 "you're lying on [the corner of Merchant's Quay](https://fwannotated.blogspot.com/2014/09/eve-and-adam-in-fw.html)... Telling the World how it's meant to be"
+1. Muddle the knowledge tree leaves of Eden. Applied technique / technology to the leaves of fruits. Middle the mint. Muddle the MonoMyth tales. There's a twist in your Joycean tale. https://youtu.be/1oqOrI8yK-4?t=125 "you're lying on [the corner of Merchant's Quay](https://fwannotated.blogspot.com/2014/09/eve-and-adam-in-fw.html)... Telling the World how it's meant to be"
 
 2. "Zafiro Añejo tequila for big moments, but fans also associate cocktails with the show, sometimes referencing popular drinks like the Moscow Mule Kim orders, or even the vibe of a "**Morning Mojito"** as a nod to the show's New Mexico setting and characters like Nacho Varga (Mijo)." (Jeremiah Bitsui) - Google Search summary 2025-12-16 morning USA
+
+3. "Another theory is that the name Mojito is simply a derivative of mojadito (Spanish for "lightly wet"), the diminutive of mojado ("wet")" - Google Search summary 2025-12-16 morning USA. ["And to help him on with his work each day He'd a drop of the craythur every morn" ... ... ... metaphors of "creature comforts" historical "water of life" (uisge beatha) concepts... "craythur" a playful term for potent drinks. Fast-breaking morning, rituals of fasting, rituals of Funeral Wake mourners (oral meaning / acoustic space overload language) - the independent free thinkers mourners loss of The Enlightenment thinking to the hive mind. Walter White's grave yard, Helen's Fall, Minute Twenty Two and all of Episode One. OPERA_A In the Morning he goes gunning for the men who stole Tim's water, My Civic Ditty to link https://www.youtube.com/watch?v=Qb1wNA5PnKQ crossing the borders south to north.
 
 &nbsp;
 
