@@ -37,3 +37,17 @@ Where Would { You We The People, Us } be now?
 
 &nbsp;
 
+# Gospel Church, Gospel Bible Poetry
+
+One Book Venue: Church   
+
+Skywalker Ranch lessons for Skywalking { Poets, Singers, Rewriting, Snake Skin Shedding metaphors }
+
+JOSEPH CAMPBELL: Well, you find an awful lot of laws in the Old Testament.
+
+BILL MOYERS: But that’s the transformation of religion to theology. Religion begins with the sense of wonder and awe and the attempt to tell stories that will connect us to God. Then it becomes a set of theological works in which everything is reduced to a code, to a creed.
+
+CAMPBELL: That’s the reduction of mythology to theology. Mythology is very fluid. Most of the myths are self-contradictory. You may even find four or five myths in a given culture, all giving different versions of **the same mystery**. Then theology comes along and says it has got to be just this way. **Mythology is poetry, and the poetic language is very flexible**.
+
+Religion turns poetry into prose. God is literally up there, and this is literally what he thinks, and this is the way you’ve got to behave to get into proper relationship with that god up there.
+
