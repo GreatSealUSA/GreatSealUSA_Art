@@ -16,7 +16,7 @@ writers. I have a proposal.
 
 # I have a Dream, A Public Dream
 
-I'm here to help Vince! Augment the story with { James Joyce, Don McLuhan, Jean E. } - Do you Believe in Rock And Roll, Can Music Save Your Mortal Soul?
+I'm here to help Vince! Augment the story with { James Joyce, Don McLuhan, Jean Erdman } - ["Do you Believe in Rock And Roll? Can Music Save Your Mortal Soul?"](/Did_You_Write_The_Book_Of_Love/Origin_of_John_One_One_Metaphors.md)?
 
 * "I bet it would have something to do with climbing up out of the cesspool that is social media and actually
 listening to each other" - Vince Gilligan. February 15, 2025 afternoon USA
