@@ -24,3 +24,8 @@ Art to Art Great Seal Metaphors of Artistic Translations:
 
 3. Falling from Step 13 of Great Seal of the United States of America pyramid to Step 0 / ground and slightly below ground. Founding Fathers metaphors of Tim Finnegan's ladder. (Finnegan's Wake song was originated in USA printing; American Experiences)
 
+&nbsp;
+
+https://youtu.be/IPitD1eYLiM?t=440    
+Experience Pluribus: On paper, running out of printer ink, [Gutenberg Galaxy](https://en.wikipedia.org/wiki/The_Gutenberg_Galaxy) metaphors.   
+"We did it to ourselves"        
