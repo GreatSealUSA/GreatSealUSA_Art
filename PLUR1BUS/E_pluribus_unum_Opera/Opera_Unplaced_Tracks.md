@@ -79,4 +79,14 @@ I am the eggman, they are the eggmen
 I am the walrus, goo-goo g'joob, g'goo goo g'joob    
 Goo goo g'joob, g'goo goo g'joob, g'goo...    
    
+Metaphors: Previous generations had this defense, the opening Pluribus self-awareness and the RNA jamming poetry and Finnegans Wake (Finn's Hotel 1923) Minute 22 of Episode One of Helen's far-back post-doc thesis.
 
+&nbsp;
+
+# Finnegans Wake Page 145 
+
+Pluribus #Archetype Carol  
+
+Pirate Lady Author /\ Fishwife Carol 
+
+"Some wives and daughters of fishermen were notoriously loud and foul-mouthed, as noted in the expression to swear like a fishwife"
