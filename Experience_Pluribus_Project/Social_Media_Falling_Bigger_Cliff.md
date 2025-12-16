@@ -202,6 +202,31 @@ https://youtu.be/IPitD1eYLiM?t=2176
 Rich Evans describes January 1944 "Second Bill of Rights" without knowing name      
 https://youtu.be/IPitD1eYLiM?t=2280     
 
+1. Ready Player One December 2025 kick-off, Columbus Ohio year 2045...
+
+&nbsp;
+
+Mike invokes Star Trek fiction monomyth storytelling example       
+https://youtu.be/IPitD1eYLiM?t=2309        
+
+1. Computer programmed in Steely Donald Fegan's I.G.Y. song of nonfiction science blueprint OPERA_A https://www.youtube.com/watch?v=Ueivjr3f8xg 15,195,771 views November 6, 2014
+
+&nbsp;
+
+Mike argues the goodness of mankind is 5% learners and 95% scammers / bamboozle / fight / "gather in groups" with each other    
+https://youtu.be/IPitD1eYLiM?t=2467
+
+1. Carl Sagan quote on bamboozle
+
+2. Rich Evans: give them games. Ready Player One year 2045 answer?
+
+&nbsp;
+
+Jay: spend your day doing work you don't like to have time outside work     
+https://youtu.be/IPitD1eYLiM?t=2611      
+
+1. Rick Roderick 1993 "n the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
 &nbsp;
 
 &nbsp;
