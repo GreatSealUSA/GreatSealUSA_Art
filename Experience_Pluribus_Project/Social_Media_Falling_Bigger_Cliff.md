@@ -238,6 +238,27 @@ https://youtu.be/IPitD1eYLiM?t=2687
 
 &nbsp;
 
+Elder abuse concerns      
+https://youtu.be/IPitD1eYLiM?t=2734     
+
+1. Age 79 Donald Trump blazing the A.I. video trails. October 20, 2025 https://www.theguardian.com/us-news/2025/oct/20/trump-ai-video-no-kings
+
+&nbsp;
+
+Jay goes on about "lazy", very much Marshall McLuhan concern     
+https://youtu.be/IPitD1eYLiM?t=2815     
+
+1. "LSD is the Lazy Man's Finnegans Wake" book (1923 Finn's Hotel to Star Wars May Force Day 1939) by Joyce. University of Toronto's on drug use LSD lazy vs. reading a book with "The Force" language. https://youtube.com/watch?v=-f2F02gsYsk
+
+&nbsp;
+
+War of All against All: War against Reality tricking     
+https://youtu.be/IPitD1eYLiM?t=2986      
+
+1. Peer to peer war, peer to peer terror / terrorism. https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV" ... ... ... source for video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ Video was published December 5, 2014
+
+&nbsp;
+
 
 
 &nbsp;
