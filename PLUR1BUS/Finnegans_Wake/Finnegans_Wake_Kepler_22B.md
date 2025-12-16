@@ -120,4 +120,26 @@ A bar? A bookstore?
 
 "The Bar: Later that same night, Carol and her manager/partner Helen (Miriam Shor) go to a local Albuquerque bar to decompress. It is in this bar setting that the "page 218" whisper occurs. After a fan recognizes her and asks for a spoiler about Raban’s return, Carol leans in and whispers "page 218" as a way to get rid of them—a moment fans later linked to the James Joyce transition in Finnegans Wake."
 
-Is this real? I didn't catch this, back to Episode One bar scene.
+Is this real? I didn't catch this, back to Episode One bar scene. Minute 20 is when the bar scene starts.
+
+* "It's a ship that sails on… on sand? Purple sand?" - this article title says what I'm doing here. ToDo: this article title https://www.salon.com/2025/11/26/pluribus-is-a-fascinating-rorschach-test/
+
+Oh, Reddit itself is the "page 218" reference source?  https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/
+
+&nbsp;
+
+<img width="1760" height="1298" alt="image" src="https://github.com/user-attachments/assets/3c203c62-d584-4bbc-970c-e9bccaa3a637" />
+
+&nbsp;
+
+Once you start digging in the midden, the Wake appears everywhere in this show.
+
+For example, when one of Carol’s fans asks when Raban “returns”, she whispers “page 218”. This is the page between Book 1 and Book 2 of the Wake.
+
+There are almost too many things in Book 2 to list but here’s a couple to get you going:
+
+* pub scene
+
+* the character of Taff/Davis Taffler
+
+* the 6th thunder word, associated with Radio, which is the source of the code.
