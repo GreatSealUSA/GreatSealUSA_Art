@@ -36,7 +36,6 @@ Tim Finnegan's Mixers of Water of Life.
 
 1. Metaphors of Eden and not eating the fruit of total knowledge of humanity, the hive mind.
 
-2. Steely Dan King of The World { Darien Gap, Panama Canal, to Rio Grande River Last man Standing, Santa Fe New Mexico car tour ruins, New Mexico atomic bomb origins / Carol atomic bomb processing, Plains of Saint Augustine New Mexico Array 78-second signal, "Countdown to" on-screen beat counting album title } https://www.youtube.com/watch?v=XOGWbaOOeCM
+2. Steely Dan King of The World { Darien Gap, Panama Canal, to Rio Grande River Last man Standing, Santa Fe New Mexico car tour ruins, New Mexico atomic bomb origins / Carol atomic bomb processing, Plains of Saint Augustine New Mexico Array 78-second signal, "Countdown to" on-screen beat counting album title, Poison Wine drinking mixing metaphor cocktails, Carol's virgin lungs and Cobalt-60 fallout (smoking mother nature, plants, rolling papers / Joyce 1924 (streaming book) [rolling release](http://www.steelydan.nl/concerts.jsp?SearchTour=2007) "countdown to" ) } https://www.youtube.com/watch?v=XOGWbaOOeCM
 
- 
 
