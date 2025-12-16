@@ -143,3 +143,7 @@ There are almost too many things in Book 2 to list but here’s a couple to get 
 * the character of Taff/Davis Taffler
 
 * the 6th thunder word, associated with Radio, which is the source of the code.
+
+&nbsp;
+
+These November 9, 2025 comments are like... a kind like a show insider?
