@@ -31,5 +31,5 @@ Experience Pluribus: On paper, running out of printer ink, [Gutenberg Galaxy](ht
 "We did it to ourselves"        
 
 "Also Nightmare Future"       
-https://youtu.be/IPitD1eYLiM?t=571      
+https://youtu.be/IPitD1eYLiM?t=559      
 
