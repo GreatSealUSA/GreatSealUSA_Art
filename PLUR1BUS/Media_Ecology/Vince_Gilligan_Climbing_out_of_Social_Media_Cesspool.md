@@ -24,3 +24,18 @@ listening to each other" - Vince Gilligan. February 15, 2025 afternoon USA
 &nbsp;
 
 "So what I suddenly realized when I recognized that in the Great Seal of the United States there were two of these symbolic triangles interlocked was that we now had thirteen points, for our thirteen original states, and that there were now, furthermore, no less than six apexes, one above, one below, and four (so to say) to the four quarters. The sense of this, it seemed to me, might be that from above or below, or from any point of the compass, the creative Word might be heard, which is the great thesis of democracy. Democracy assumes that anybody from any quarter can speak, and speak truth, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak." - Skywalker Ranch California lessons for Skywalkers. Published 1988.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# The Fall of Social Mankind, Unicode Babel
+
+"with climbing up out of the cesspool that is social media and actually listening to each other"
+
+* "Eternal September or the September that never ended was a cultural phenomenon during a period beginning around late 1993 and early 1994, when Internet service providers began offering Usenet access to many new users" https://en.wikipedia.org/wiki/Eternal_September
+
+Usenet is Social Media.
+
