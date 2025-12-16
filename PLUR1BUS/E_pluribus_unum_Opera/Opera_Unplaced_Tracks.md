@@ -92,3 +92,5 @@ Pirate Lady Author /\ Fishwife Carol
 "Some wives and daughters of fishermen were notoriously loud and foul-mouthed, as noted in the expression to swear like a fishwife"
 
 when Carol exploits herself with truth drug belief.
+
+https://bsky.app/profile/greatsealusa.bsky.social/post/3ma2vk5rsnc25
