@@ -57,7 +57,7 @@ Religion turns poetry into prose. God is literally up there, and this is literal
 
 After World War Two, we The People were more flexible and poetic with all the religions of the worlds.
 
-The poetic players try to overtae the field, but the poets and songwriters and creators were handed the drawning boards. And Then We The People Were All in One Place.
+The poetic { old game player / old world order } players try to overtake the field, but the poets and songwriters and creators were handed the drawing boards. And Then We The People Were All in One Place.
 
 No Time To Start Again, We have only Days to be Reborn Again in Seeking World Peace and Harmony. 
 
