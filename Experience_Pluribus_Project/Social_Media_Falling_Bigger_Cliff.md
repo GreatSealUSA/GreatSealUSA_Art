@@ -178,3 +178,19 @@ https://youtu.be/IPitD1eYLiM?t=1958
 Rick Evens: You are going to have to get used to it, or never enjoy...        
 https://youtu.be/IPitD1eYLiM?t=2051   
 
+&nbsp;
+
+&nbsp;
+
+# Within Hours
+
+Within hours of the Red Letter Media video release....
+
+Front page of Reddit social media:   
+
+https://old.reddit.com/r/technology/comments/1po7zx8/actor_joseph_gordonlevitt_wonders_why_ai/
+
+A high successful Hollywood actor / star: Why do billionaires using artificial intelligence get to break laws.
+
+ToDo: find the video quote from The Medium is The MassAge McLuhan March 1967 about "The New Media" wrecking minds that people on old media don't see. Generative A.I. being the new media.
+
