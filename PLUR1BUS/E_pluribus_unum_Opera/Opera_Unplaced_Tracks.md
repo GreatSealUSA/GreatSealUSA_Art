@@ -94,3 +94,12 @@ Pirate Lady Author /\ Fishwife Carol
 when Carol exploits herself with truth drug belief.
 
 https://bsky.app/profile/greatsealusa.bsky.social/post/3ma2vk5rsnc25
+
+&nbsp;
+
+# Free 13 Lock-picking
+
+Awakening the Dead-Locked Holiday of Eternal September     
+https://www.youtube.com/watch?v=fUNTk5xsxk4
+
+Carol looking for RNA Lock-picking teams.    
