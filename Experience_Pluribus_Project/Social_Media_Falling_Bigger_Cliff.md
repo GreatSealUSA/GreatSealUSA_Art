@@ -33,3 +33,4 @@ Experience Pluribus: On paper, running out of printer ink, [Gutenberg Galaxy](ht
 "Also Nightmare Future"       
 https://youtu.be/IPitD1eYLiM?t=569            
 
+1. See: "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - [Vince Gilligan. **February 15, 2025** afternoon USA](/PLUR1BUS/Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
