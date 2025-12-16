@@ -234,7 +234,7 @@ https://youtu.be/IPitD1eYLiM?t=2687
 
 1. Where to begin on the McLuhan media ecology coffin teachings of Joyce. OPERA_A A.I. killed the YouTube star https://www.youtube.com/watch?v=zx5tSmOY_iM 1,980,170 views June 23, 2010 (Lyrics highly recommended about not being able to rewind media ecology and drum machines not having "spirit", and [Sister Disco]()https://www.youtube.com/watch?v=pTTY6Z51mO0 from The Who)
 
-2. Puppeting Barking Bob antics metaphors abound.
+2. Puppeting Barking Bob antics metaphors abound. OPERA_A https://www.youtube.com/watch?v=7km4EHgkQiw Sting, it hurts. 1993 Rick Roderick lectures... same year as song. "You could say I'd lost my belief in our politicians... They all seemed like **game show hosts** to me! If I ever lose my faith in you: There'd be nothing left for me to do" - some would say I was a lost man on GitHub
 
 &nbsp;
 
