@@ -276,10 +276,16 @@ https://youtu.be/IPitD1eYLiM?t=3049
 
 &nbsp;
 
+### RLM 3334 
+
 Conclusion: Predictions     
 https://youtu.be/IPitD1eYLiM?t=3334      
 
+Mike's final words: The Tricking is where it will go bad.
+
 1. The very Red Letter media being discussed had A.I. clips from other creators in it, like the Bob Barker. So their watermark idea would cover the entire video. DVD and other formats already have chapters, it needs to be down to page or chapter level - or frame marker / word marker like Bible verse sentence markers (Finnegans Wake readers use page and within page markers). GitHub word of each commit proving source material.
+
+2. Tricking a nation of suckers with billionaires from anywhere on World Wide Web having technology systems behind closed datacenter doors that the public can't tell if real or hand-tweaked. ... ... ... "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
 
 &nbsp;
 
