@@ -5,8 +5,7 @@ February 2025
 https://youtu.be/TkteSxVIM1A?t=648   
 
 10:48    
-there's no simple answer for how *we* might change that. Though if there were... I bet it would have something to do with climbing up out of the cesspool that is social media and actually
-listening to each other
+there's no simple answer for how *we* might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other
 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse as
