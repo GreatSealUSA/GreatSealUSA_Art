@@ -46,6 +46,14 @@ Escape velocity is a common planetary term, travel concern. Metaphor sauce of Ke
 
 &nbsp;
 
+# Latin Ahoy, Pirate Lady
+
+In Finnegans Wake, "F.E.R.T." is an acronym and pun, likely standing for **"Fulgitudes ejist rowdownan tonuout"** (Latin for "Lightning flashes are downpour thunder")
+
+John One One, Page 3 thunders, abound, Tower of Babel thunders and the authorship of Carol's "Bitter Wake" *work in progress* unpublished / unpolished Minute 22 of Episode One post-doctorate thesis by Helen!
+
+&nbsp;
+
 
 ===========================================
 
