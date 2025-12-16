@@ -108,3 +108,4 @@ John One One Whackers { James Joyce, The Simpsons Whacking Day, Vince Gilligan, 
 
 Now how do We The People get this into the public domain? Copyrights and controls of these art works? For the Greater Good of Mankind? Franklin's Public Library ideals of Philadelphia?
 
+We don't need sponsorships, we need to dig deeper, { Unrestricted, Uncut, Public Domain licensing gems }
