@@ -175,8 +175,32 @@ https://youtu.be/IPitD1eYLiM?t=1958
 
 &nbsp;
 
-Rick Evens: You are going to have to get used to it, or never enjoy...        
+Rich Evans: You are going to have to get used to it, or never enjoy...        
 https://youtu.be/IPitD1eYLiM?t=2051   
+
+&nbsp;
+
+Mike has faith in We The People intelligence       
+https://youtu.be/IPitD1eYLiM?t=2070     
+
+Rich Evans: Millions of people being born indoctrinated into the fiction storytelling. Machine generated media.
+
+&nbsp;
+
+Jay: Great Seal USA ideals of democracy, can create art with power tools     
+https://youtu.be/IPitD1eYLiM?t=2137
+
+&nbsp;
+
+Rich Evans: landmark court case, Supreme Court    
+https://youtu.be/IPitD1eYLiM?t=2176
+
+1. A nation of 0.34 billion out of a world population of over 8 billion. Supreme Court rules to put USA Hollywood California behind Bollywood India and China and Japan creativity?
+
+&nbsp;
+
+Rich Evans describes January 1944 "Second Bill of Rights" without knowing name      
+https://youtu.be/IPitD1eYLiM?t=2280     
 
 &nbsp;
 
