@@ -40,4 +40,43 @@ Metaphors of { supercompter cluster, networking TCP/IP v6, CPU microcode updates
 
 &nbsp;
 
+Media ecology: show could never afford this track financially 
+
+https://www.youtube.com/watch?v=Ws5klxbI87I   
+
+Year 1967 Pluribus themes   
+
+One, two, three
+I am he as you are he, as you are me and we are all together   (Pluribus)       
+See how they run like pigs from a gun, see how they fly    
+I'm crying    
+Sitting on a cornflake, waiting for the van to come     
+Corporation tee-shirt, stupid bloody Tuesday    
+Man, you been a naughty boy, you let your face grow long   
+I am the eggman, they are the eggmen    
+I am the walrus, goo-goo g'joob   
+Mister City policeman sitting pretty little policemen in a row   
+See how they fly like Lucy in the Sky, see how they run    
+I'm crying, I'm crying    
+I'm crying, I'm crying     
+Yellow matter custard, dripping from a dead dog's eye       
+Crabalocker fishwife, pornographic priestess   (Pirate Lady Carol's truth drug exploitation)      
+Boy, you been a naughty girl you let your knickers down     
+I am the eggman, they are the eggmen    
+I am the walrus, goo-goo g'joob    
+Sitting in an English garden waiting for the sun     
+If the sun don't come, you get a tan from standing in the english rain      
+I am the eggman, they are the eggmen    
+I am the walrus, goo-goo g'joob, g'goo goo g'joob    
+Expert textpert choking smokers    
+Don't you think the joker laughs at you?    
+See how they smile like pigs in a sty, see how they snied     
+I'm crying    
+Semolina pilchard, climbing up the Eiffel Tower    
+Elementary penguin singing Hari Krishna     
+Man, you should have seen them kicking Edgar-Allan-Poe    
+I am the eggman, they are the eggmen    
+I am the walrus, goo-goo g'joob, g'goo goo g'joob    
+Goo goo g'joob, g'goo goo g'joob, g'goo...    
+   
 
