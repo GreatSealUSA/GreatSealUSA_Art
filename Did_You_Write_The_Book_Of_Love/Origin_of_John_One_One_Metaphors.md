@@ -41,7 +41,7 @@ Where Would { You We The People, Us } be now?
 
 One Book Venue: Church   
 
-Skywalker Ranch lessons for Skywalking { Poets, Singers, Rewriting, Snake Skin Shedding metaphors }
+Skywalker Ranch lessons for Skywalking 13 Stars Above The Eagle { Poets, Singers, Rewriting, Snake Skin Shedding metaphors }
 
 JOSEPH CAMPBELL: Well, you find an awful lot of laws in the Old Testament.
 
