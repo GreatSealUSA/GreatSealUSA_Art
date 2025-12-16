@@ -158,6 +158,8 @@ https://youtu.be/IPitD1eYLiM?t=1924
 
 &nbsp;
 
+### RLM 1945
+
 Red Letter Media to Audience: Pledge of Digital Creation     
 https://youtu.be/IPitD1eYLiM?t=1945     
 
@@ -213,6 +215,8 @@ https://youtu.be/IPitD1eYLiM?t=2309
 
 &nbsp;
 
+### RLM 2467
+
 Mike argues the goodness of mankind is 5% learners and 95% scammers / bamboozle / fight / "gather in groups" with each other    
 https://youtu.be/IPitD1eYLiM?t=2467
 
@@ -251,6 +255,8 @@ https://youtu.be/IPitD1eYLiM?t=2815
 1. "LSD is the Lazy Man's Finnegans Wake" book (1923 Finn's Hotel to Star Wars May Force Day 1939) by Joyce. University of Toronto's on drug use LSD lazy vs. reading a book with "The Force" language. https://youtube.com/watch?v=-f2F02gsYsk
 
 &nbsp;
+
+### RLM 2986
 
 War of All against All: War against Reality tricking     
 https://youtu.be/IPitD1eYLiM?t=2986      
