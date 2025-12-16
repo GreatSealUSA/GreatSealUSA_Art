@@ -85,7 +85,7 @@ Metaphors: Previous generations had this defense, the opening Pluribus self-awar
 
 # Finnegans Wake Page 145 
 
-Pluribus #Archetype Carol  
+Pluribus Archetype Carol  
 
 Pirate Lady Author /\ Fishwife Carol 
 
