@@ -18,6 +18,8 @@ https://youtu.be/ve7API5VWEk?t=249
 
 1. Emphasis on water / hydration of He / Him. And Episode Two with Carol digging grave water hydration. "Water Of Life" Finnegans Wake (Minute Twenty Two (Kepler 22B) of Episode One Helen's post-doc thesis: James Joyce summary of Portrait of an Art itself): "This Is Water" [April 14, 2009](https://en.wikipedia.org/wiki/This_Is_Water) - an answer to standing still waters [the 1968 Media Ecology challenge presented by Marshall McLuhan / University of Toronto about Finnegans Wake self-awareness](https://www.goodreads.com/quotes/187497-one-thing-about-which-fish-know-exactly-nothing-is-water). ... ... ... "This Is Water" April 14, 2009 David Foster Wallace "basic **self-centredness** because it’s so socially repulsive. But it’s pretty much the same for all of us. **It is our default setting**, hard-wired into our boards at birth."
 
+2. Story Settings, Default Settings, Spanish language is from Spain, after year 1492 in The Americas. Just as Carol's "English First" Language is not Americas. [Global Village Dublin Metaphors Abound](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) - his learning English on his travels is the traps of Joyce's book. Re-asserting the traps of Kepler-22B - Minute Twenty Two of Episode One and Helen's post-doctorate Pluribus thesis of Finn's Hotel year 1923 over Walter White's grave Wake Funeral.
+
 &nbsp;
 
 # Mixers of Water of Life
