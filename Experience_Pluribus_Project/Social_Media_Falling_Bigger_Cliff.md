@@ -100,3 +100,9 @@ https://youtu.be/IPitD1eYLiM?t=1254
 
 2. Neil Postman (in Manhattan shadow of Statue of Liberty, Carol Lady Liberty Torches of Freedom Minute 22 Exit from the Public House to smoke metaphors), 1992: “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and **takes its orders from technology**.” ― Neil Postman, Technopoly: The **Surrender of Culture** to Technology - to A.I. shit floating.
 
+&nbsp;
+
+John Lennon, NYC immigrant, Finnegans Wake Language expansions    
+John Lennon's lyrical hat of Joyce appending suffix prefix metaphor fixes     
+https://youtu.be/IPitD1eYLiM?t=1275   
+
