@@ -46,3 +46,14 @@ Tim Finnegan's Mixers of Water of Life.
 3. Ship Piracy of Earth for Oil. Joyce Language Babel Asserts in The Wake. The Gas Station Christmas season Carol - the gas can drinking from cars, refilling and language recirculations. Jungle greens to underground concentrates. ReCycle and eating. https://old.reddit.com/r/MapPorn/comments/1po3bgc/whats_gasoline_called_in_each_european_country/ - gasoline in mouth, fire water metaphors of Carol's boozing and Tim's ladder fall abound.
 
 4. "Eating your own dog food" from the storage units. Metaphors for language learning. John 1:1 origins, mankind creating the oral tradition and the paper book John 1:1 is printed on (McLuhan ecology). He is eating humankind's own lording over animals with canning factory input and what we feed our animal nature neighbors. The Apple //+ world metaphors (your writer here on GitHub worked in Bellevue Washington, in the Bellevue Riot House Jimi Hendrix Rock Opera Museum development.. of Popularity Culture days) of medium ecology. "The phrase "eating your own dog food" (or "dogfooding") means using your own company's products to test them, originating from pet food ads (Lorne Greene for Alpo) and possibly a Kal Kan president eating his own product, but **[popularized in tech](https://www.mopop.org/exhibitions/jimi-hendrix) by Microsoft's Paul** Maritz in 1988 to push internal use, solidifying it as using what you sell for authenticity and quality." - Google Search summary 2025-12-16 morning. Hendrix And all that Jazz of Bellevue Almost Famous metaphors.
+
+&nbsp;
+
+&nbsp;
+
+## End of Finnegans Wake, Final page, Notes
+
+<img width="1370" height="1424" alt="image" src="https://github.com/user-attachments/assets/eda5a5c6-9c00-499a-84d8-d9ac86fdbb42" />
+2025-12-16 Google Search USA morning     
+
+The 1988 "Power of Myth" Skywalking lessons from Skywalker Ranch, California publication year. My high school graduation year. The days I was alpha and beta testing Microsoft and IBM products, the OS/2 Ambassador Creative Mythology climbing to Bellevue, Washington years. The pre-commercial Internet years. Before Eternal September to come.
