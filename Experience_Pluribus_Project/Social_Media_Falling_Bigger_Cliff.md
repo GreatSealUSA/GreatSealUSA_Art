@@ -272,7 +272,7 @@ https://youtu.be/IPitD1eYLiM?t=3049
 
 2. I think mockery-quotations, where people are projecting words into a situation, need new Unicode quotation marks. I also think a filename character Unicode marker of fiction vs. nonfiction. These are all the concerns of 1923 Finn's Hotel.
 
-3. Regarding The Great Seal of the United States / Constitution. Separation of fiction from nonfiction. Church monomyth science fiction storytelling vs. factual source validated information. King James Bible vs *supernatural removed* Thomas Jefferson Bible year 1820. Surkov governing is fiction-based leadership. A marker of all media having fiction vs. nonfiction marker. The Fox News "entertainment" and Saturday Night Live "Weekend Update" comedy fiction of Surkov techniques. **September 9, 2014 - the war underway already began being described**. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+3. Regarding The Great Seal of the United States / Constitution. Separation of fiction from nonfiction. Church monomyth science fiction storytelling vs. factual source validated information. King James Bible vs *supernatural removed* [Thomas Jefferson Bible year 1820](https://en.wikipedia.org/wiki/Jefferson_Bible) Deism edited. Surkov governing is fiction-based leadership. A marker of all media having fiction vs. nonfiction marker. The Fox News "entertainment" and Saturday Night Live "Weekend Update" comedy fiction of Surkov techniques. **September 9, 2014 - the war underway already began being described**. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 &nbsp;
 
