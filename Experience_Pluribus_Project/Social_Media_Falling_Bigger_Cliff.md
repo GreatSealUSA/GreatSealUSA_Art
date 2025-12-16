@@ -49,4 +49,28 @@ https://youtu.be/IPitD1eYLiM?t=773
 "Disney", "You Know What"          
 https://youtu.be/IPitD1eYLiM?t=858      
 
-"What We All Need To Do! Every Single One Of Us" (Pluribus)   
+Rich Evans: "What We All Need To Do! Every Single One Of Us" (Pluribus)   
+
+&nbsp;
+
+Even when labeled... Nobody reads, attraction to images exceeds literacy     
+https://youtu.be/IPitD1eYLiM?t=1075    
+
+1. Neil Postman on drowning in information / nobody reading. "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+
+&nbsp;
+
+The Titanic One, ass-backwards     
+https://youtu.be/IPitD1eYLiM?t=1083      
+
+1. Bit-flipping metaphors, ass-backwards Titanic problems of literacy / teaching / education / training students.
+
+2. MonoMyth mythological storytelling opcode inversions
+
+3. Large Language Models / Generative Artificial Intelligence has the same problem Joseph Campbell (Experience Mythology educator from Sarah Lawrence College) describes of Levant monomyth modern adaptations / readings. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+4. Odd Funny Amusing mind exploit, the out-group mocking of Levant John One One generative science fiction trilogy fandom warfare, The Crusades of of inverted storytelling ( Romans 11:32 being the largest inversion of all identified by James Joyce / Levant 13 origins 2,000 years ago. "1 John 4:20" a close second on fiction character vs. nonfiction hate of living persons )
+
+&nbsp;
+
