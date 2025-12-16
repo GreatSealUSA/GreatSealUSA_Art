@@ -8,13 +8,15 @@ Assertions
 
 1. King George Origins of { Church, Bible } Special Revelations
 
-2. We The People started to Free Will Singing
+2. We The People started to Free Will Singing / SingSong
 
 3. This Will Be The Day I Die: Back to Step Zero, Drawing Board, Planning Boards, of the Pyramid
 
 4. Bye Bye American Pie: I met a Girl who Sang the Blues, The Man Said the Music Would No Longer Play
 
 5. The Poets Dreamed: New American Dreams From Among { We Us All }
+
+&nbsp;
 
 # This Will Be: They Were Singing
 
