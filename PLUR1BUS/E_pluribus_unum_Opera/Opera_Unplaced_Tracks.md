@@ -90,3 +90,5 @@ Pluribus Archetype Carol
 Pirate Lady Author /\ Fishwife Carol 
 
 "Some wives and daughters of fishermen were notoriously loud and foul-mouthed, as noted in the expression to swear like a fishwife"
+
+when Carol exploits herself with truth drug belief.
