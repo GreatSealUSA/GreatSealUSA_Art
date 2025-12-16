@@ -1,5 +1,7 @@
 # Origin of John One One Metaphors
 
+Don McLean - American Pie (Lyric Video)     
+62,881,606 views since November 10, 2021    
 https://youtu.be/PRpiBpDy7MQ?t=81
 
 Assertions
