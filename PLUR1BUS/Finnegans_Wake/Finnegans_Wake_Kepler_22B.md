@@ -48,6 +48,10 @@ Escape velocity is a common planetary term, travel concern. Metaphor sauce of Ke
 
 # Latin Ahoy, Pirate Lady
 
+Page 127: "wrote F.E.R.T. on his buckler; is escapemaster-in-chief from all sorts of houdingplaces;"
+
+Pretty damn hard to ignore escape velocity, "buckler" as Kepler, Air Force One POTUS image of Carol standing next to the Seal of the POTUS Eagle.
+
 In Finnegans Wake, "F.E.R.T." is an acronym and pun, likely standing for **"Fulgitudes ejist rowdownan tonuout"** (Latin for "Lightning flashes are downpour thunder")
 
 John One One, Page 3 thunders, abound, Tower of Babel thunders and the authorship of Carol's "Bitter Wake" *work in progress* unpublished / unpolished Minute 22 of Episode One post-doctorate thesis by Helen!
