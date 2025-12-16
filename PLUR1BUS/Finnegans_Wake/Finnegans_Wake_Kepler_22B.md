@@ -36,6 +36,24 @@ You'll find references to Kepler's work within discussions of cosmic cycles, phy
 
 &nbsp;
 
+===========================================
+
+&nbsp;
+
+* "Escape Artist: "buckler; is escapemaster-in-chief from all sorts of houdingplaces" (3.14) links the word to Houdini, suggesting a master of evasion and escape, a key trait of the protagonist HCE." Page 127, an 7-bit ASCII language character seamline ;) https://www.finnegansweb.com/wiki/index.php/Page_127
+
+Escape velocity is a common planetary term, travel concern. Metaphor sauce of Kepler 22B. Escapemaster-in-chief Air Force One references of PLUR1BUS Episode Two escape from Helen's Fall into the We is Us.
+
+&nbsp;
+
 
 ===========================================
+
+# Deleteriousness
+
+Page 151 of Finnegans Wake    
+
+deleteriousness - this word fits with Vince Gilligan's WGA February 2025 announcement / lecture about sexy bad guys { Walter White, Saul Goodman, Carol's actor in Better Call Saul, Darth Vader } https://deadline.com/2025/02/vince-gilligan-wga-award-speech-1236291243/
+
+* Deleteriousness is the noun form of the adjective "deleterious," meaning the quality of being harmful, damaging, or injurious. It describes something that causes harm, often in a subtle or **unexpected way**, and can refer to physical, **mental, or other types of negative** effects.
 
