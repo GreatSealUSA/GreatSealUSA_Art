@@ -225,7 +225,22 @@ https://youtu.be/IPitD1eYLiM?t=2467
 Jay: spend your day doing work you don't like to have time outside work     
 https://youtu.be/IPitD1eYLiM?t=2611      
 
-1. Rick Roderick 1993 "n the other hand, I don’t want it to not be funny, because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+1. Rick Roderick 1993 "On the other hand, I don’t want it to not be funny, because part of the **postmodern trajectory itself is a rather humorous joke on the human race** which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of **vengeful act against us absorbing our leisure time**, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+Mike's Favorite: Tim Finnegan year 1923 Funeral Wake ritual metaphors      
+https://youtu.be/IPitD1eYLiM?t=2687      
+
+1. Where to begin on the McLuhan media ecology coffin teachings of Joyce. OPERA_A A.I. killed the YouTube star https://www.youtube.com/watch?v=zx5tSmOY_iM 1,980,170 views June 23, 2010 (Lyrics highly recommended about not being able to rewind media ecology and drum machines not having "spirit", and [Sister Disco]()https://www.youtube.com/watch?v=pTTY6Z51mO0 from The Who)
+
+2. Puppeting Barking Bob antics metaphors abound.
+
+&nbsp;
+
+
+
+&nbsp;
 
 &nbsp;
 
