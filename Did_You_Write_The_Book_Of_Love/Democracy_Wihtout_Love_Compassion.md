@@ -43,7 +43,7 @@ From The New Testament, James Joyce took over and developed, progress, progressi
 
 So too at Step 0 ground level of Great Seal of the United States of America pyramid, let the poets and compassion expansion developers use our drawing boards and love appreciations.
 
-# James Joyce Means Nothing To YOu
+# James Joyce Means Nothing To { You, We }
 
 James Joyce Meaning Nothing To You... And You Don't Know Why.
 
@@ -67,7 +67,9 @@ https://www.youtube.com/watch?v=rZoD8JEFjAE
 "Hush! Caution! Echoland!"     
 https://youtu.be/WoiJVkdDbOo?t=291
 
-Adults in the Rave Spoken at the WGA February 2025. Vince Gilligan and his Pirate Ship crews.
+Adults in the *Have Spoken* at [the Writers Guild of America ... February 2025](https://www.youtube.com/watch?v=TkteSxVIM1A). Vince Gilligan and his Pirate Ship crews.
+
+* "Better Call Saul's Rhea Seehorn presents the 2025 Paddy Chayefsky Laurel Award to Vince Gilligan" https://youtu.be/TkteSxVIM1A?t=516
 
 "You howl and listen, listen and wait for the: Echoes of angels who won't return"
 
@@ -109,3 +111,5 @@ John One One Whackers { James Joyce, The Simpsons Whacking Day, Vince Gilligan, 
 Now how do We The People get this into the public domain? Copyrights and controls of these art works? For the Greater Good of Mankind? Franklin's Public Library ideals of Philadelphia?
 
 We don't need sponsorships, we need to dig deeper, { Unrestricted, Uncut, Public Domain licensing gems }
+
+"Who give more than they take" - Vince Gilligan, February 2025
