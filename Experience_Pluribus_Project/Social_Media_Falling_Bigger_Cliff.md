@@ -173,3 +173,8 @@ https://youtu.be/IPitD1eYLiM?t=1958
 
 3. NO, no no no no no. Suppressed Mythology education! "The **economic interpretation of history is for the birds. Economics is itself a function of aspiration**. It's what people aspire to that creates the field in which economics works. And people who don't have any aspirations—you know, the problem of a businessman who can't get people to want anything. It's the want; it's the aspiration. And what is wanted is not simply one, two or three meals a day and a bed—that's not enough. It's got to be much more than that to make a life." - Cooper Union. March 1, 1967. Joseph Campbell
 
+&nbsp;
+
+Rick Evens: You are going to have to get used to it, or never enjoy...        
+https://youtu.be/IPitD1eYLiM?t=2051   
+
