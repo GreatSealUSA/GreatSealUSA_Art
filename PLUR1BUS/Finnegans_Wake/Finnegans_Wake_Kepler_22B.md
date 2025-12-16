@@ -69,3 +69,16 @@ deleteriousness - this word fits with Vince Gilligan's WGA February 2025 announc
 
 * Deleteriousness is the noun form of the adjective "deleterious," meaning the quality of being harmful, damaging, or injurious. It describes something that causes harm, often in a subtle or **unexpected way**, and can refer to physical, **mental, or other types of negative** effects.
 
+&nbsp;
+
+=========================================
+
+&nbsp;
+
+* "Kepler's Third Law: Joyce mentions Kepler's law relating orbital periods (time) and distances in the "Ithaca" episode of Ulysses, using it in a question-and-answer format that contrasts scientific precision with human experience."
+
+* "In essence, Joyce uses Kepler not just as a scientific mention, but as a key to unlock deeper philosophical and structural complexities within his modernist texts."
+
+&nbsp;
+
+Some of us, We is Us, have had to do the hand associations for decades through tools of Marshall McLuhan University of Toronto, Joseph Campbell and his wife Sarah Lawrence College. It's hard to ignore how Google Search + LLM can respond in December 2025 when fed sophisticated keywords as input.
