@@ -84,6 +84,14 @@ Episode Seven Minute Five of Pluribus fiction TV show. "You howl and listen, lis
 "Past the places you used to learn... You howl and listen, listen and wait for the: Echoes of angels who won't return"     
 https://youtu.be/rZoD8JEFjAE?t=30    
 
+"Hush! Caution! Echoland!"     
+https://youtu.be/WoiJVkdDbOo?t=291
+
+"Be very very quiet! **Clock everything you see**! [Little things might matter](/Pluribus_for_Littles/) later... At the start of the end of history"       
+https://youtu.be/M1pmEy6oNvc?t=82
+
+John One One Whackers { James Joyce, The Simpsons Whacking Day, Vince Gilligan, Don McLean, Vertical Horizon, The Coach With The Sign Insides, We The People yield to Artists }
+
 &nbsp;
 
 # Uncut Gems
