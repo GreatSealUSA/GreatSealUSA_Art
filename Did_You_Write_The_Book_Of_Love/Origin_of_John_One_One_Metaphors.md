@@ -71,6 +71,6 @@ Skywalking Lessons from Skywalker Ranch California:
 
 BILL MOYERS: That is why there is so much pain associated with the true religious transformation or conversion. **It is not easy to lose yourself**.
 
-JOSEPH CAMPBELL: The New Testament teaches dying to one’s self, literally suffering the pain of death to the world and its values. This is the **vocabulary of the mystics. Now, suicide is also a symbolic act. It casts off the psychological posture that you happen to be in at the time, so that you may come into a better one. You die to your current life in order to come to another of some kind. But, as Jung says, you’d better not get caught in a symbolic situation. You don’t have to die, really, physically**. All you have to do is die spiritually and be reborn to a larger way of living.
+JOSEPH CAMPBELL: The New Testament (Levant Bible) teaches dying to one’s self, literally suffering the pain of death to the world and its values. This is the **vocabulary of the mystics. Now, suicide is also a symbolic act. It casts off the psychological posture that you happen to be in at the time, so that you may come into a better one. You die to your current life in order to come to another of some kind. But, as Jung says, you’d better not get caught in a symbolic situation. You don’t have to die, really, physically**. All you have to do is die spiritually and be reborn to a larger way of living.
 
 MOYERS: But it seems so foreign to our experience today. Religion is easy. You put it on as if you are putting on a coat and going out to the movies.
