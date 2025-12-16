@@ -106,3 +106,52 @@ John Lennon, NYC immigrant, Finnegans Wake Language expansions
 John Lennon's lyrical hat of Joyce appending suffix prefix metaphor fixes     
 https://youtu.be/IPitD1eYLiM?t=1275   
 
+&nbsp;
+
+Jay on "Don't Write A Script", money income streaming       
+https://youtu.be/IPitD1eYLiM?t=1335   
+
+&nbsp;
+
+Trend Chasing off a Cliff, The Fall of Man for Egoism trending     
+"Top 10 product selling" off Amazon media empire, Amazon Streaming     
+https://youtu.be/IPitD1eYLiM?t=1407
+
+&nbsp;
+
+Rich Evans: The sea of A.I. Shit. Real humans watching drowning.     
+Feedback looping. The Almighty Dollar (With Pluribus printed on it)    
+https://youtu.be/IPitD1eYLiM?t=1438
+
+&nbsp;
+
+Reality disappearing breaking news report     
+https://youtu.be/IPitD1eYLiM?t=1604
+
+1. Fake insertion into Hamlet's tennis event, David Foster Wallace and metaphors of Tennis in Infinite Joke Land.
+
+&nbsp;
+
+Glitches are Funny, Surkovian media glitch leadership       
+https://youtu.be/IPitD1eYLiM?t=1679     
+
+1. Glitches attract amused joke audience. Attraction to glitch mockery.
+
+2. Neil Postman 1985... again and again... iterations
+
+3. Surkov governing based on glitching politicians and glitching RT media empire. Butterfly glitching metaphors. "I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites" - year 2014
+
+4. "Fake News" Finn Cycle. pre World War One build-up. Year 1848 Germany breeding https://en.wikipedia.org/wiki/Lying_press
+
+5. Glitching Out, far-out mind exploits. Deep inceptions. The stars above the eagle's head on the Great Seal of the USA runaway monomyth science fiction, dark art defenses.
+
+6. Glitch art. Pete Townshend [smashing[(https://youtu.be/H_r_dWenKhk?t=175) guitar / distortion. [Jimi Hendrix distortion](https://old.reddit.com/r/Guitar/comments/1wh2jm/can_somebody_please_explain_to_me_what_makes_jimi/) (**Experience** Music Project (EMP) Bellevue, Washington - glitch-out Windows 95 intentions for customer service / consumer engagement)
+
+&nbsp;
+
+Mike: Loss of Trust. Upsetting society trust.        
+https://youtu.be/IPitD1eYLiM?t=1924     
+
+1. Rick Roderick 1993 "Ground beneath" quote
+
+2. Upsetting the Adam Eve Apple Cart, MonoMyth exploitation by intelligent machines against humanity / humanism.
