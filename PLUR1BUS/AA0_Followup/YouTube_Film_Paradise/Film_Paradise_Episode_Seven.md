@@ -1,5 +1,6 @@
 # Film Paradise Episode Seven
 
+Pluribus Episode Seven checkpoint, countdown to 9.    
 My Interpretation Context Assertion: 
 
 "Manousos' Chunga Palm Injury Was Planned By The Hive, & The Plane Poves It!"    
