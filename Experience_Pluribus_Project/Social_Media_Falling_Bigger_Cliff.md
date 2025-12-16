@@ -29,3 +29,7 @@ Art to Art Great Seal Metaphors of Artistic Translations:
 https://youtu.be/IPitD1eYLiM?t=440    
 Experience Pluribus: On paper, running out of printer ink, [Gutenberg Galaxy](https://en.wikipedia.org/wiki/The_Gutenberg_Galaxy) metaphors.   
 "We did it to ourselves"        
+
+"Also Nightmare Future"       
+https://youtu.be/IPitD1eYLiM?t=571      
+
