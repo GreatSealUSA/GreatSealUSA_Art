@@ -53,7 +53,7 @@ Religion turns poetry into prose. God is literally up there, and this is literal
 
 &nbsp;
 
-# 🎼 "That's Not How *It Used To Be* Renewal
+# 🎼 "That's Not How *It Used To Be*" Renewal
 
 After World War Two, we The People were more flexible and poetic with all the religions of the worlds.
 
