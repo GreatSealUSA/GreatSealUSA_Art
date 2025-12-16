@@ -84,8 +84,18 @@ Episode Seven Minute Five of Pluribus fiction TV show. "You howl and listen, lis
 "Past the places you used to learn... You howl and listen, listen and wait for the: Echoes of angels who won't return"     
 https://youtu.be/rZoD8JEFjAE?t=30    
 
+&nbsp;
+
+### Clock Everything You See
+
 "Hush! Caution! Echoland!"     
 https://youtu.be/WoiJVkdDbOo?t=291
+
+&nbsp;
+
+<img width="2631" height="908" alt="image" src="https://github.com/user-attachments/assets/8f26c118-dc45-4079-b549-f0dea919c582" />
+
+&nbsp;
 
 "Be very very quiet! **Clock everything you see**! [Little things might matter](/Pluribus_for_Littles/) later... At the start of the end of history"       
 https://youtu.be/M1pmEy6oNvc?t=82
