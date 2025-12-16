@@ -155,3 +155,21 @@ https://youtu.be/IPitD1eYLiM?t=1924
 1. Rick Roderick 1993 "Ground beneath" quote
 
 2. Upsetting the Adam Eve Apple Cart, MonoMyth exploitation by intelligent machines against humanity / humanism.
+
+&nbsp;
+
+Red Letter Media to Audience: Pledge of Digital Creation     
+https://youtu.be/IPitD1eYLiM?t=1945     
+
+
+&nbsp;
+
+Heart of the Matter: Economics    
+https://youtu.be/IPitD1eYLiM?t=1958    
+
+1. NO, no no no no no no. This is "Follow the Money" logic All The President's Men 1976 (USA 200) https://www.youtube.com/watch?v=QodGxD19_as that GOT US HERE in 2025.
+
+2. NO, no no no no no no. This is "Show me the Money" logic that got us here. Jerry Mc Programming of the mass man to bow to the sports team owners (Bellevue, Washington NFL purchase team I was upon) https://www.youtube.com/watch?v=IpwSXWq1wwU
+
+3. NO, no no no no no. Suppressed Mythology education! "The **economic interpretation of history is for the birds. Economics is itself a function of aspiration**. It's what people aspire to that creates the field in which economics works. And people who don't have any aspirations—you know, the problem of a businessman who can't get people to want anything. It's the want; it's the aspiration. And what is wanted is not simply one, two or three meals a day and a bed—that's not enough. It's got to be much more than that to make a life." - Cooper Union. March 1, 1967. Joseph Campbell
+
