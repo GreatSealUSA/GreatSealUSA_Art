@@ -124,6 +124,25 @@ Again with the Walter White behviaor of burning down so others can't have your e
 
 &nbsp;
 
+&nbsp;
+
+# 13:00 Dome Ecology Metaphors 
+
+Magic 13 metaphors abound.
+
+Throughout the first seven episodes, a repeat assertion in Episode Two and again Episode Seven is the butler theme of delivering cover food and lifting the veil.
+
+1. Covering the food is a way to deal with the not killing insects / not attracting insects to the food supply.
+
+2. Attracting birds to birdseed is emphasized when Carol follows the milk carton breadcrumb trails (Internet "cookies" tracks) to the room with the bagged - with a window wide open by human intention breadcrumb. A sister of the Great Seal eagle is the notifier of the message delivery birds. Message delivery ecology. ToDo: Episode with milk carton storage room - Campbell quote on "feeding a mere bird" by human father.
+
+3. Ecological heat capturing on Earth / having a dome of our atmosphere is the Northern Lights are radiation being shielded - converted into lights in the sky when Helen and Carol visit the egg ice sex bed.
+
+4. Friday cage metaphors of electromagnetic shielding of Radio Shack signals / storage unit / captured message metaphors. Protecting rust-based magnetic storage devices.
+
+&nbsp;
+
+
 # European Ideals
 
 Hacking through the forest thresholds.
