@@ -82,3 +82,42 @@ deleteriousness - this word fits with Vince Gilligan's WGA February 2025 announc
 &nbsp;
 
 Some of us, We is Us, have had to do the hand associations for decades through tools of Marshall McLuhan University of Toronto, Joseph Campbell and his wife Sarah Lawrence College. It's hard to ignore how Google Search + LLM can respond in December 2025 when fed sophisticated keywords as input.
+
+Fiction to fiction, monomyth to monomyth, metaphor to metaphor, system to system:
+
+* "Raised by Wolves: This series prominently features Kepler-22b as the site of a human colony. Some critics analyze its complex, recursive storytelling through the lens of Joycean modernism, particularly its use of "fractal iterative storytelling"."
+
+* "Raised by Wolves: This series prominently features Kepler-22b as the site of a human colony. Some critics analyze its complex, recursive storytelling through the lens of Joycean modernism, particularly its use of "fractal iterative storytelling"."
+
+
+&nbsp;
+
+Just capturing, I haven't looked into at all
+
+* "The "Page 218" Reference: In one episode, the protagonist Carol (played by Rhea Seehorn) responds to a question about when a character "returns" by whispering "page 218." Fans have identified this as a reference to the page in Finnegans Wake that serves as the transition between Book 1 and Book 2."
+
+* The Midden-Heap Imagery: Viewers have noted that once you "dig in the midden"—a reference to the "midden-heap" in Finnegans Wake—allusions to Joyce appear throughout the show's set design and dialogue."
+
+* "Paralysis and Modernism: Critics have compared the show's world—where a virus makes everyone relentlessly happy—to Joyce's theme of "paralysis" in Dubliners, where characters are trapped by societal or psychological forces they cannot escape."
+
+New World Order of Great Seal, Kepler-22B is a literal interpretation of "New World" ++
+
+&nbsp;
+
+Again, no way have I looked into this:
+
+In the 2025 Apple TV+ series Pluribus, "page 218" is a subtle but significant literary Easter egg referenced in the series premiere, "We Is Us". 
+
+The In-Show Reference: During a scene at a bar, the protagonist Carol Sturka (Rhea Seehorn) is approached by a fan who asks when her character Raban will "return". Carol, a novelist who privately dislikes her own speculative historical romance fiction, whispers "page 218" in response.
+
+The Joycean Connection: Literary fans have identified this as a direct nod to James Joyce's Finnegans Wake. In the standard Faber & Faber and Viking Press editions, page 218 marks the exact transition between Book I and Book II.
+
+Narrative Symbolism: In the show, this reference acts as a meta-commentary on the narrative shift. Just as page 218 in Joyce’s work signifies a transition into a more complex, night-themed section of the story, Carol’s reference occurs just as her world transitions from normal life to a surreal, hive-minded dystopia after the "Joining" begins. 
+
+...
+
+A bar? A bookstore?
+
+"The Bar: Later that same night, Carol and her manager/partner Helen (Miriam Shor) go to a local Albuquerque bar to decompress. It is in this bar setting that the "page 218" whisper occurs. After a fan recognizes her and asks for a spoiler about Raban’s return, Carol leans in and whispers "page 218" as a way to get rid of them—a moment fans later linked to the James Joyce transition in Finnegans Wake."
+
+Is this real? I didn't catch this, back to Episode One bar scene.
