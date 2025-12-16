@@ -22,3 +22,5 @@ Art to Art Great Seal Metaphors of Artistic Translations:
 
 2. The Simpsons Y2K overflow of 1999.999999999 to 2000.0000000000000 rollover video game high score machine crashes.
 
+3. Falling from Step 13 of Great Seal of the United States of America pyramid to Step 0 / ground and slightly below ground. Founding Fathers metaphors of Tim Finnegan's ladder. (Finnegan's Wake song was originated in USA printing; American Experiences)
+
