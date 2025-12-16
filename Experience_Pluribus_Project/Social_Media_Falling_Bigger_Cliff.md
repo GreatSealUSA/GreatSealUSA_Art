@@ -139,7 +139,7 @@ https://youtu.be/IPitD1eYLiM?t=1679
 
 2. Neil Postman 1985... again and again... iterations
 
-3. Surkov governing based on glitching politicians and glitching RT media empire. Butterfly glitching metaphors. "I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites" - year 2014
+3. Surkov governing based on glitching politicians and [glitching RT media empire](https://en.wikipedia.org/wiki/Surkov_leaks). Butterfly glitching metaphors. "I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites" - year 2014
 
 4. "Fake News" Finn Cycle. pre World War One build-up. Year 1848 Germany breeding https://en.wikipedia.org/wiki/Lying_press
 
@@ -169,7 +169,7 @@ https://youtu.be/IPitD1eYLiM?t=1958
 
 1. NO, no no no no no no. This is "Follow the Money" logic All The President's Men 1976 (USA 200) https://www.youtube.com/watch?v=QodGxD19_as that GOT US HERE in 2025.
 
-2. NO, no no no no no no. This is "Show me the Money" logic that got us here. Jerry Mc Programming of the mass man to bow to the sports team owners (Bellevue, Washington NFL purchase team I was upon) https://www.youtube.com/watch?v=IpwSXWq1wwU
+2. NO, no no no no no no. This is "Show me the Money" logic that got us here. Jerry Mc Programming of the mass man to bow to the sports team owners (Bellevue, Washington NFL purchase team I was upon) https://www.youtube.com/watch?v=IpwSXWq1wwU that got We The People (Pluribus Us) here with shallow admiration of Walter White fiction characters.
 
 3. NO, no no no no no. Suppressed Mythology education! "The **economic interpretation of history is for the birds. Economics is itself a function of aspiration**. It's what people aspire to that creates the field in which economics works. And people who don't have any aspirations—you know, the problem of a businessman who can't get people to want anything. It's the want; it's the aspiration. And what is wanted is not simply one, two or three meals a day and a bed—that's not enough. It's got to be much more than that to make a life." - Cooper Union. March 1, 1967. Joseph Campbell
 
