@@ -265,7 +265,21 @@ https://youtu.be/IPitD1eYLiM?t=2986
 
 &nbsp;
 
+Jay's assertion of real vs. unreal      
+https://youtu.be/IPitD1eYLiM?t=3049
 
+1. Rick Roderick 1993 "The **war zone**, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal**." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+2. I think mockery-quotations, where people are projecting words into a situation, need new Unicode quotation marks. I also think a filename character Unicode marker of fiction vs. nonfiction. These are all the concerns of 1923 Finn's Hotel.
+
+3. Regarding The Great Seal of the United States / Constitution. Separation of fiction from nonfiction. Church monomyth science fiction storytelling vs. factual source validated information. King James Bible vs *supernatural removed* Thomas Jefferson Bible year 1820. Surkov governing is fiction-based leadership. A marker of all media having fiction vs. nonfiction marker. The Fox News "entertainment" and Saturday Night Live "Weekend Update" comedy fiction of Surkov techniques. **September 9, 2014 - the war underway already began being described**. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+Conclusion: Predictions     
+https://youtu.be/IPitD1eYLiM?t=3334      
+
+1. The very Red Letter media being discussed had A.I. clips from other creators in it, like the Bob Barker. So their watermark idea would cover the entire video. DVD and other formats already have chapters, it needs to be down to page or chapter level - or frame marker / word marker like Bible verse sentence markers (Finnegans Wake readers use page and within page markers). GitHub word of each commit proving source material.
 
 &nbsp;
 
