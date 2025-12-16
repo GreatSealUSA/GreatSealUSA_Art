@@ -132,6 +132,8 @@ Oh, Reddit itself is the "page 218" reference source?  https://old.reddit.com/r/
 
 &nbsp;
 
+https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnza41u/
+
 Once you start digging in the midden, the Wake appears everywhere in this show.
 
 For example, when one of Carol’s fans asks when Raban “returns”, she whispers “page 218”. This is the page between Book 1 and Book 2 of the Wake.
