@@ -42,5 +42,6 @@ Tim Finnegan's Mixers of Water of Life.
 
 2. Steely Dan King of The World { Darien Gap, Panama Canal, to Rio Grande River Last man Standing, Santa Fe New Mexico car tour ruins, New Mexico atomic bomb origins / Carol atomic bomb processing, Plains of Saint Augustine New Mexico Array 78-second signal, "Countdown to" on-screen beat counting album title, Poison Wine drinking mixing metaphor cocktails, Carol's virgin lungs and Cobalt-60 fallout (smoking mother nature, plants, rolling papers / Joyce 1924 (streaming book) [rolling release](http://www.steelydan.nl/concerts.jsp?SearchTour=2007) "countdown to" ) } https://www.youtube.com/watch?v=XOGWbaOOeCM
 
-3. Ship Piracy of Earth for Oil. Joyce Language Babel Asserts in The Wake. The Gas Station Christmas season Carol - the gas can drinking from cars, refilling and language recirculations. Jungle greens to underground concentrates. ReCycle and eating. https://old.reddit.com/r/MapPorn/comments/1po3bgc/whats_gasoline_called_in_each_european_country/
+3. Ship Piracy of Earth for Oil. Joyce Language Babel Asserts in The Wake. The Gas Station Christmas season Carol - the gas can drinking from cars, refilling and language recirculations. Jungle greens to underground concentrates. ReCycle and eating. https://old.reddit.com/r/MapPorn/comments/1po3bgc/whats_gasoline_called_in_each_european_country/ - gasoline in mouth, fire water metaphors of Carol's boozing and Tim's ladder fall abound.
+
 
