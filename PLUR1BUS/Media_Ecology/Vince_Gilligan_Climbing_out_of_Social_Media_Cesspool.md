@@ -37,6 +37,6 @@ listening to each other" - Vince Gilligan. February 15, 2025 afternoon USA
 
 "with climbing up out of the cesspool **that is social media** and actually listening to each other" - Screenplay Writer Vince Gilligan. Writers Guild of America. February 15, 2025.
 
-* "Eternal September or the September that never ended was a cultural phenomenon during a period beginning around late 1993 and early 1994, when Internet service providers began offering Usenet access to many new users" https://en.wikipedia.org/wiki/Eternal_September
+* "Eternal September or the September that never ended was a **cultural phenomenon during a period beginning around late 1993** and early 1994, when Internet service providers began offering Usenet access to many new users" https://en.wikipedia.org/wiki/Eternal_September
 
-Usenet is Social Media. The Fall of education and self-awareness of the { Neil Postman, Marshall McLUhan } hive mind media ecology woke / wake literacy. The Original Sin of Romans 11:32 F.A.Q. R.T.F.M. abandonment off those binary trees of passed-down knowledge and comprehension of ecological media peering.
+Usenet is Social Media. The Fall of education and self-awareness of the { Neil Postman, Marshall McLUhan } hive mind media ecology woke / wake literacy. The Original Sin of Romans 11:32 F.A.Q. R.T.F.M. abandonment off those binary trees of passed-down knowledge and comprehension of ecological media peering. Not what we had with QLink brand generation / CompuServe commercial, the America OnLine [saturation of media medium](https://americanhistory.si.edu/collections/object/nmah_1395721). 
