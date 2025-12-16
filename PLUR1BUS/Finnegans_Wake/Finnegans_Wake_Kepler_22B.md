@@ -149,3 +149,7 @@ There are almost too many things in Book 2 to list but here’s a couple to get 
 &nbsp;
 
 These November 9, 2025 comments are like... a kind like a show insider?
+
+&nbsp;
+
+ToDo: minute 32 when Carol goes into the hospital, she the drunk writer (Joyce) says "Wake Up" to an immigrant? doctor. Joyce telling the eastern world to wake up to Western bullshit, 1923 Finn's Hotel of Full Disclosure of London / Washington mutual sleep-walking into massive misinterpretations of Romans 11:32 , ass-backwards "1 John 4:20" and "1 John 3:17" issues, ass-backwards reading of Levant? https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
