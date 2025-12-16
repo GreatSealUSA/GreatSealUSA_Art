@@ -42,3 +42,51 @@ CAMPBELL: In matters of this kind, yes. The majority’s function in relation to
 From The New Testament, James Joyce took over and developed, progress, progressive development
 
 So too at Step 0 ground level of Great Seal of the United States of America pyramid, let the poets and compassion expansion developers use our drawing boards and love appreciations.
+
+# James Joyce Means Nothing To YOu
+
+James Joyce Meaning Nothing To You... And You Don't Know Why.
+
+Why? The Tower of Babel, English to English, Speaking to Writing, Art Work to Languages
+
+"Vertical Horizon - Everything You Want (Official Video)"     
+https://www.youtube.com/watch?v=rZoD8JEFjAE
+
+1. "Past the Places You #Used To Learn*"
+
+2. But Joyce Means Nothing To You and You Don't Know Why.
+
+3. Waiting for Someone to Put { "We is Us", Pluribus, We The People, Together }
+
+4. "You howl and listen, listen and wait for the: Echoes of angels who won't return"
+
+&nbsp;
+
+# "You Howl And Listen"
+
+"Hush! Caution! Echoland!"     
+https://youtu.be/WoiJVkdDbOo?t=291
+
+Adults in the Rave Spoken at the WGA February 2025. Vince Gilligan and his Pirate Ship crews.
+
+"You howl and listen, listen and wait for the: Echoes of angels who won't return"
+
+I could never compose a strive towards more perfect than Minute Twenty Two of Episode One of Pluribus show.
+
+Episode Seven Minute Five of Pluribus fiction TV show. "You howl and listen, listen and wait for the: Echoes of angels who won't return"
+
+&nbsp;
+
+<img width="2631" height="908" alt="image" src="https://github.com/user-attachments/assets/8f26c118-dc45-4079-b549-f0dea919c582" />
+
+&nbsp;
+
+"Past the places you used to learn... You howl and listen, listen and wait for the: Echoes of angels who won't return"     
+https://youtu.be/rZoD8JEFjAE?t=30    
+
+&nbsp;
+
+# Uncut Gems
+
+Now how do We The People get this into the public domain? Copyrights and controls of these art works? For the Greater Good of Mankind? Franklin's Public Library ideals of Philadelphia?
+
