@@ -31,11 +31,14 @@ listening to each other" - Vince Gilligan. February 15, 2025 afternoon USA
 
 &nbsp;
 
+&nbsp;
+
 # The Fall of Social Mankind, Unicode Babel
 
-"with climbing up out of the cesspool that is social media and actually listening to each other"
+"with climbing up out of the cesspool that is social media and actually listening to each other" - Screenplay Writer Vince Gilligan. Writers Guild of America. February 15, 2025.
 
 * "Eternal September or the September that never ended was a cultural phenomenon during a period beginning around late 1993 and early 1994, when Internet service providers began offering Usenet access to many new users" https://en.wikipedia.org/wiki/Eternal_September
 
-Usenet is Social Media.
+Usenet is Social Media. The Fall of education and self-awareness of the { Neil Postman, Marshall McLUhan } hive mind media ecology woke / wake literacy.
+
 
