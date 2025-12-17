@@ -22,7 +22,7 @@ https://old.reddit.com/r/SteelyDan/comments/1hsywbr/songs_written_by_fagen_playl
 
 &nbsp;
 
-ToDo: "Jolly Roger" in Screen Shot, Dandom, Pluribus Pirate Lady ;)
+ToDo: "Jolly Roger" in Screen Shot, Dandom, Pluribus Pirate Lady ;) "My Rival" already in MythTrack for episodes (confirm?). https://www.youtube.com/watch?v=OgLaIB6JStg
 
 &nbsp;
 
