@@ -44,8 +44,8 @@ https://youtu.be/GqIMSKVOgq8?t=749
 
 Finnegans Wake iterates, forever. Joyce's book has no begin or end. Alpha and Omega operating system. Page 581 of Joyce's Wake! Sorry I saw!
 
-* OPERA_A Life on Kepler-22B? Album: *Hunky Dory* context. "But her mummy is yelling, "No!"
-And her daddy has told her to go (To Chritian Anti-Lesbian camp, freedom extermination camp),
+* OPERA_A Life on Kepler-22B? Album: *Hunky Dory* context.https://www.youtube.com/watch?v=ft3b1-Cm-0M  "But her mummy is yelling, "No!"
+And her daddy has told her to go (To Chritian Anti-Lesbian camp, freedom extermination camp),    
 But her friend is no where to be seen.
 Now she walks through her sunken dream (Sunken Pirate Ship Pirate Lady)
 To the seats with the clearest view (Hugging Pirate Lady / circle in front of Carol's house view)
