@@ -30,7 +30,7 @@ https://youtu.be/GqIMSKVOgq8?t=332
 
 Getting pissed at Minute 22 on Walter White's Grave / Finnegan Funeral Wake.   
 
-* "And how war yore maggies? Answer: They war loving, they love laughing, they laugh weeping, they weep smelling, they smell smiling, they smile hating, they hate"
+* "And how war yore maggies? Answer: They war loving, they love laughing, they laugh weeping, they weep smelling, they smell smiling, they smile hating, they hate" - page 142 https://www.finnegansweb.com/wiki/index.php/Page_142
 
   * "Gráinne O'Malley (Grace O'Malley)"
 
