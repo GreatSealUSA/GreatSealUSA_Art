@@ -150,7 +150,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 58. Dollar Drink Specials for Carol and pirate ship crew. Cheep boozing. Happy Hours. I love it. Dollar Bill has Pluribus on it. https://youtu.be/fUNTk5xsxk4?t=97 17,357,102 views September 20, 2016 - a brother from the copypasta social media gutter. 10cc substance abuse band name. 10cc concentrating on trucking right. Concentrating liquor. 50ml / 75ml 10cc shots metaphors. Rat shots, BINGO Rat Episode One.
 
-59. How clear it is what is going to happen in the story. "White spirits", 'clear spirits" distilled, everclear. Drunk Carol the Tim Finnegan brown whiskey wisdom. https://en.wikipedia.org/wiki/Everclear_(disambiguation) - Eternity forever metaphors of ladder climb and fall Finn cycle. Clear sailing, fog horns.
+59. How clear it is what is going to happen in the story. "White spirits", 'clear spirits" distilled, everclear. Drunk Carol the Tim Finnegan brown whiskey wisdom. https://en.wikipedia.org/wiki/Everclear_(disambiguation) - Eternity forever metaphors of ladder climb and fall Finn cycle. Clear sailing, fog horns. 1 day ago, Irish people trying Everclear, Tim's wake. https://www.youtube.com/watch?v=FH2SRZZacSs
 
 60. Fog Horn / Pirate Ships / without yet horns - having to hell. Grace O'Malley: "her "fog horn tech" was a combination of simple acoustic signals and expert, experience-based seamanship, not the mechanical devices that would emerge centuries later."
 
