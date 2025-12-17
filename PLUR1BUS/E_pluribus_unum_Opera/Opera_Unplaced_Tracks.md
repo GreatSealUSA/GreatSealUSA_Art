@@ -103,3 +103,10 @@ Awakening the Dead-Locked Holiday of Eternal September
 https://www.youtube.com/watch?v=fUNTk5xsxk4
 
 Carol looking for RNA Lock-picking teams.    
+
+&nbsp;
+
+# Fog of Pandemic
+
+Fog of war metaphors, fog of pandemic we all experienced December 2019 onward with COVID-19 information. Uncertainty. Can a cure be developed for COVID-19? That's what Carol is living under.
+
