@@ -305,3 +305,13 @@ A high successful Hollywood actor / star: Why do billionaires using artificial i
 
 ToDo: find the video quote from The Medium is The MassAge McLuhan March 1967 about "The New Media" wrecking minds that people on old media don't see. Generative A.I. being the new media.
 
+## Same Day Front Page News
+
+Within hours of the Red Letter media video release....  
+
+Front page of Reddit social media:
+
+https://old.reddit.com/r/europe/comments/1poa66k/mi6_chief_tech_giants_are_closer_to_running_the/
+
+Intelligence agency MI6 is reporting (disclosing) to We The People of democracy that technology giants are closing in on eclipsing the government. Technology like artificial intelligence. Fiction storytelling generative AI. Fiction outsells nonfiction.
+
