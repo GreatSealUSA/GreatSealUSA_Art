@@ -62,3 +62,11 @@ As they ask her to focus on" (Focus on the Hive Mind advantages)
 
 https://youtu.be/GqIMSKVOgq8?t=893
 
+&nbsp;
+
+# Camp Freedom Falls
+
+https://youtu.be/GqIMSKVOgq8?t=1138
+
+Tim Finnegan Falls, Freedom to drink and fall, Carol's drinking falls
+
