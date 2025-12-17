@@ -23,3 +23,16 @@ https://old.reddit.com/r/SteelyDan/comments/1hsywbr/songs_written_by_fagen_playl
 &nbsp;
 
 ToDo: "Jolly Roger" in Screen Shot, Dandom, Pluribus Pirate Lady ;)
+
+&nbsp;
+
+# Remeaning Words John One One Revivals
+
+Experience Pluribus Project is reviving the meanings of the science fiction in Bible verse John 1:1 and the Tower of Babel Genesis.
+
+Finn's Hotel year 1923 stories of Dublin to "There are days when I wake up"    
+In The Earwicker's Dreamer's Hotel, Earworm metaphors, Great Seal United States of America revived art interpretations on reviving meaning to metaphors.    
+https://www.youtube.com/watch?v=hJOiQo2ulyw    
+
+Remeaning, Remaining, Salvaging, Recoining, Intercourse Dialogs, Remastering.   
+https://www.youtube.com/watch?v=hJOiQo2ulyw    
