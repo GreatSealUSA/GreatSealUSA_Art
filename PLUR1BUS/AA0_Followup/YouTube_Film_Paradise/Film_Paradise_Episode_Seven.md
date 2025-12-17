@@ -57,3 +57,16 @@ Tim Finnegan's Mixers of Water of Life.
 2025-12-16 Google Search USA morning     
 
 The 1988 "Power of Myth" Skywalking lessons from Skywalker Ranch, California publication year. My high school graduation year. The days I was alpha and beta testing Microsoft and IBM products, the OS/2 Ambassador Creative Mythology climbing to Bellevue, Washington years. The pre-commercial Internet years. Before Eternal September to come.
+
+&nbsp;
+
+&nbsp;
+
+# Another video saying Carol is tricking
+
+YouTube channel HaxDogma      
+Carol tricking, manipulating the hive mind     
+Carol is a cunt    
+
+"Pluribus Episode 7 Explained (CAROL IS 100% ACTING)"     
+https://www.youtube.com/watch?v=egejBgG0DSg
