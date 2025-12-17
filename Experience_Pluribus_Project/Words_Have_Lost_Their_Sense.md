@@ -24,6 +24,10 @@ https://old.reddit.com/r/SteelyDan/comments/1hsywbr/songs_written_by_fagen_playl
 
 ToDo: "Jolly Roger" in Screen Shot, Dandom, Pluribus Pirate Lady ;) "My Rival" already in MythTrack for episodes (confirm?). https://www.youtube.com/watch?v=OgLaIB6JStg
 
+Words have lost their sense, society-wide mass man (Marshall McLuhan, University of Toronto) connections. Egoism and anti-Pluribus greed dragging down (Skywalking raches, "Power of Myth", 1988; "And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that's why we're on this side instead of the top of the pyramid.").
+
+* "You’re a corpse. And you prove that every day, with everything you do and everything you say. Wake up, ya dope! Outside” ― Donald Fagen, Eminent Hipsters, year 2013
+
 &nbsp;
 
 # Remeaning Words John One One Revivals
