@@ -36,3 +36,29 @@ Getting pissed at Minute 22 on Walter White's Grave / Finnegan Funeral Wake.
 
   * ToDo: title of a song by Little Sparta with Sally Timms and ASDA/Maharani, alluding to this complex, shifting meaning of "maggies" (possibly "maggots," "maidens," or "magic")
 
+&nbsp;
+
+# Same Story Over and Over 
+
+https://youtu.be/GqIMSKVOgq8?t=749
+
+Finnegans Wake iterates, forever. Joyce's book has no begin or end. Alpha and Omega operating system. Page 581 of Joyce's Wake! Sorry I saw!
+
+* OPERA_A Life on Kepler-22B? Album: *Hunky Dory* context. "But her mummy is yelling, "No!"
+And her daddy has told her to go (To Chritian Anti-Lesbian camp, freedom extermination camp),
+But her friend is no where to be seen.
+Now she walks through her sunken dream (Sunken Pirate Ship Pirate Lady)
+To the seats with the clearest view (Hugging Pirate Lady / circle in front of Carol's house view)
+And she's hooked to the silver screen, (TV audience metaphors)
+But the film is sadd'ning bore (Sad, Sad Carol bored)   
+For she's lived it ten times or more. (Repeated the monomyth Page 581 Finnegans Wake *seen sorry* 10 times or mor)     
+She could spit in the eyes of fools (Ship of fools, [We Built This City](https://youtu.be/K1b8AhIsSYQ?t=192))    
+As they ask her to focus on" (Focus on the Hive Mind advantages)
+
+&nbsp;
+
+
+# Star Trek: Borg
+
+https://youtu.be/GqIMSKVOgq8?t=893
+
