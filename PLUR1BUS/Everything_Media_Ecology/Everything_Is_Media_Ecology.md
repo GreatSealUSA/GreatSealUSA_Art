@@ -157,3 +157,18 @@ Organized crimes. Organized mob mentality. Organized mafia. Organized poltiical 
 
 Germany 1938 - Christians shunning out-group Jewish.
 
+&nbsp;
+
+&nbsp;
+
+## Apple Competitor Samsung Android
+
+https://bsky.app/profile/thedailytechfeed.com/post/3mabrmwac3b2y
+
+https://thedailytechfeed.com/pluribus-smart-fridge-ad-hoax-exposes-digital-misinformation-risks/
+
+Product placement / meme viral. Samsung makes Android cosmos phones, in competition with Apple //+ signaling. Apple's walled hardware garden operating systems.
+
+"The controversy began when a Reddit user shared an image of a smart fridge displaying the message: WE’RE SORRY WE UPSET YOU, CAROL. The user alleged that this personalized message triggered a severe mental health crisis, leading to hospitalization."
+
+Is this hoax story a hoax? prank, bro? Joycean media ecology, University of Toronto?
