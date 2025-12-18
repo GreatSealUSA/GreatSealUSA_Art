@@ -73,3 +73,7 @@ James Joyce
 
 5. "Stephen's fall at age 6 probably refers to his being pushed into the cesspool at Clongowes Wood College (Portrait). Bloom's fall at age 16 probably refers to a time when, in his father's words, he gets "drunk as dog" with some "running chaps" (Bloom says they are called "Harriers, father")," https://www.joyceproject.com/info/mE-kJZUBeQi-aLQfQLNv
 
+6. https://www.finnegansweb.com/wiki/index.php/Page_338 Page 338 Carol the "Citizen soldiers" (13). "TAFF (porumptly helping himself out by the cesspull with a yellup yurrup, puts up his furry furzed hare). Butly bitly! Humme to our mounthings."
+
+Social media ecology, draining the swamp / septic tanks.
+
