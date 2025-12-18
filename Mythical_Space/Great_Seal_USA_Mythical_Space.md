@@ -17,7 +17,7 @@ https://www.NBCnews.com/id/wbna23125663
 
 The Great Seal was printed everywhere. It is on the Dollar Bill currency. It isn't supposed to be a secret! It is difficult, complex, Bible verse Romans 11:33 complex.
 
-* [Bible verse Romans 11:33[(https://biblehub.com/romans/11-33.htm) challenge of the Eye above the Pyramid: "Oh, the depth of the riches of the wisdom and knowledge of God! How unsearchable his judgments, and his paths beyond tracing out!"
+* [Bible verse Romans 11:33](https://biblehub.com/romans/11-33.htm) challenge of the Eye above the Pyramid: "Oh, the depth of the riches of the wisdom and knowledge of God! How unsearchable his judgments, and his paths beyond tracing out!"
 
 &nbsp;
 
