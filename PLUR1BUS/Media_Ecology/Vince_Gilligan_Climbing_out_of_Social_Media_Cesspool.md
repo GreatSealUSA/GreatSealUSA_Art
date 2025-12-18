@@ -1,7 +1,7 @@
 # Vince Gilligan: Climbing out of Social Media Cesspool
 
 Writers Guild of America    
-February 2025     
+February 15, 2025     
 https://youtu.be/TkteSxVIM1A?t=648   
 
 10:48    
