@@ -19,3 +19,21 @@ https://www.youtube.com/watch?v=wuJIqmha2Hk
 &nbsp;
 
 * "[Countdown to](https://en.wikipedia.org/wiki/Countdown_to_Ecstasy)" Happy. BONUS_A TikTok count-up count-down pyramid steps of the 12 to 13 Great Seal United States of America, out of Africa metaphors...
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Long and nothing happens
+
+<img width="1788" height="546" alt="image" src="https://github.com/user-attachments/assets/ee800782-7977-468a-9c60-15ea9d78ade6" />
+
+After Episode Seven, day of Episode Eight. 2025-12-18  
+
+"Everyone's making a fuss about #Pluribus, but I have the same feeling I had when I watched Better Call Saul the first time: it's **long, and nothing happens**. Things will probably accelerate too by the end, and I may like it the second time I watch it... Who knows?"
+
+https://bsky.app/profile/peergum.com/post/3mabm6gwmrs2g
+
+Homework: Minute 22, reading Finnegans Wake, more is happening if you do the Pluribus homework reading assignments ;)
