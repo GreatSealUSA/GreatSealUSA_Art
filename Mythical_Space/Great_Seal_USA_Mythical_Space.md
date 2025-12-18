@@ -1,6 +1,6 @@
 # Great Seal USA Mythical Space 
 
-**The Stars Above The Eagle***     
+**The Stars Above The Eagle**     
 
 { The mythical space / outer space }     
 Carl Sagan's 1994 book "Pale Blue Dot" future blueprints.    
