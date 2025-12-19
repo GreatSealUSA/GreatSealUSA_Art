@@ -32,3 +32,21 @@ https://youtu.be/Zq7QPnqLoUk?t=374
 
 https://youtu.be/Zq7QPnqLoUk?t=395
 
+# Spoken Written Language 
+
+https://youtu.be/Zq7QPnqLoUk?t=524     
+
+James Joyce concerns, hive mind of langauges 
+
+# Frustration very stimulating
+
+Carol and the 12    
+
+Gap between mind and { speech, communications }    
+Lived in Boston    
+Lived in Arizona    
+
+https://youtu.be/Zq7QPnqLoUk?t=570
+
+Nomad, spiritual, stories / mythology / fiction politics. 
+
