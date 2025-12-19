@@ -1,3 +1,7 @@
+First time watching overvaluations, pausing and nothing. I'm watching alone.
+
+&nbsp;
+
 # 00:00 30 seconds
 
 Man programmed by society hive mind to not take medical care charity. Some callback to Walter White cancer and his wife in Episode 1 of Breaking Bad having credit cards only for emergency use and unforeseen expenses.
@@ -157,4 +161,12 @@ If you think the hug of a person, the smell of a person, the voice of a person, 
 Lick your touch device screen Apple //+ keyboard TV show when Pluribus depicts food. 
 
 * Wake Up Finnegans! "A metaphor is an image that suggests something else. For instance, if I say to a person, “You are a nut,” I’m not suggesting that I think the person is literally a nut. “Nut” is a metaphor. The reference of the metaphor in religious traditions is to something transcendent that is not literally any thing. If you think that the metaphor is itself the reference, it would be like going to a restaurant, asking for the menu, seeing beefsteak written there, and starting to eat the menu. For example, Jesus ascended to heaven. The denotation would seem to be that somebody ascended to the sky. That’s literally what is being said. But if that were really the meaning of the message, then we have to throw it away" - Easter Lessons from Skywalker Ranch, California in the middle 1980's
+
+&nbsp;
+
+# 00:10 30 seconds Big Tent 
+
+Native Americans tent metaphors? Tribal living. 
+
+I lived in Jordan for years during the Arab Spring and visited Petra for study: Indigenous Bedouins https://www.youtube.com/watch?v=j0sxnr45Gio
 
