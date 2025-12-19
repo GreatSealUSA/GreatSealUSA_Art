@@ -44,5 +44,18 @@ offwall entailed"
 
 &nbsp;
 
-The Great Seal Pluribus great fall to to Christian literal literacy, King James Bible fall, not the Jefferson year 1820 Bible. A similar King James fell upon Dublin's inner reaches.
+&nbsp;
 
+# .
+
+The Great Seal *Pluribus great fall* to to Christian literal literacy, King James Bible fall, not the Jefferson year 1820 Bible. A similar King James fell upon Dublin's inner reaches. *Eye, Eye* Captain, "Her Grace O'Malice", "The Great Fall of The" singsong Here Comes *Everybody* calling Pluribus to ride along... (4,730,289 views June 24, 2015) nobody came at all... The Fall of the Great Fall... too busy watching those "old world order" raindrops tears from the Eye fall... https://www.youtube.com/watch?v=vOKaSr3B_II
+
+On your mystery shipping, Mr. Joyce. Be amazed at the Pluribus We The People on your way to a New World Order... 
+
+&nbsp;
+
+* "The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. BILL MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past" - Skywalking Lessons from SKywalker Ranch, California where the voices landed from the shore. What are we gong to do today? https://www.youtube.com/watch?v=HqFFjoRnltg (1,182,407 views November 3, 2013)
+
+&nbsp;
+
+We The People are calling everyone to ride along... and be Sons and Daughters of FreeMason's once more!
