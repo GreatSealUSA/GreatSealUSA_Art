@@ -218,9 +218,9 @@ One-track mind still time to change the track you are on, maybe not [Two and Onl
 
 &nbsp;
 
-* Personal note about Arab Spring 2010... end of Ramadan 2010 ... Evening of Thursday, September 9, 2010 – Friday (Mosque prayer day), September 10, 2010 ... this song was released on YouTube September 5, 2010 and I was using track for personal teaching of comparative mythology / Africa Great Seal USA comprehension.
+* Personal *experience projects* notes about Arab Spring 2010... end of Ramadan 2010 ... عيد الفطر Evening of Thursday, September 9, 2010 – Friday (Mosque prayer day), September 10, 2010 ... this song was released on YouTube September 5, 2010 and I was using track for personal teaching of comparative mythology / Africa Great Seal USA comprehension.
 
-P.S. This whole Episode Eight is very intimate personal revelations and connections / traceroute between hivemind peering and out-mind peering and Keppler 22B peering in the sky and radio outbound signal peering to other intelligent life. Very emotional to me and lots of intimacy pouring out from me due to this science fiction artwork. Lots of December 16, 2009 "Wake Indra" Great Seal USA ideals of rebirth via Arab Spring and public encounters in Algiers associations with the USA Embassy in Algiers roundivious with hopes.
+P.S. This whole Episode Eight is very intimate personal revelations and connections / traceroute between hivemind peering and out-mind peering and Keppler 22B peering in the sky and radio outbound signal peering to other intelligent life. Very emotional to me and lots of intimacy pouring out from me due to this science fiction artwork. Lots of December 16, 2009 "Wake Indra" Great Seal USA ideals of rebirth via Arab Spring and public encounters in Algiers associations with the USA Embassy in Algiers rendezvous with hopes (Arthur C. Clarke).
 
 &nbsp;
 
