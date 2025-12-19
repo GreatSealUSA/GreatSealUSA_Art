@@ -32,7 +32,7 @@ Everybody has had to fight to be free.
 
 &nbsp;
 
-# Track: Pink Floyd API 
+## Track: Pink Floyd API 
 
 Mixed colors, melting pot Pyramid Eye metaphors of Floyd logo
 
@@ -54,7 +54,7 @@ Carol's worms in back yard of back of Carol's mind.
 
 &nbsp;
 
-# Track: Carol sleeps to Back  
+## Track: Carol sleeps to Back  
 
 (Check it out) got yourself a family     
 (Check it out) all utility bills have been paid     
@@ -70,7 +70,7 @@ forgot to say hello to my neighbors!
 
 &nbsp;
 
-# Track Domesticated Dog 
+## Track Domesticated Dog 
 
 Domesticated Dog bedding companion    
 
@@ -78,7 +78,7 @@ Domesticated Dog bedding companion
 
 &nbsp;
 
-# Pluribus Woodstock 1969 Metaphors
+## Track: Pluribus Woodstock 1969 Metaphors
 
 1969, Pluribus Metaphors abounded across to Europe and North America   
 
@@ -93,7 +93,7 @@ Pirate Lady thought she was a man.
 
 &nbsp;
 
-# Track: Without Love Pairings 
+## Track: Without Love Pairings 
 
 Repeating as Finnegans Wake page 3 ending begins iteration.
 
@@ -105,7 +105,7 @@ Is this train track elsewhere in this GitHub and has view count changed?
 &nbsp;
 
 
-# Pluribus: All Aboard
+## Track, Pluribus: All Aboard
 
 5,744,945 views February 12, 2021      
 Philadelphia International Records (Freedom Singsong Rings Worldwide)     
