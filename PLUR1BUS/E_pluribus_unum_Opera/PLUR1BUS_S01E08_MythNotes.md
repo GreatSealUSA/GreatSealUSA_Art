@@ -74,3 +74,11 @@ Native Americans are heavily influenced by ancestors. Trying to do the WWJD (Wha
 
 OPERA_A the entire film from Iran "A Separation" year 2012 and Roger Ebert's Chicago USA perspective. I saw the film in Austin, Texas cinema based on Ebert's review. https://www.rogerebert.com/reviews/a-separation-2012 It has a pretty big impact on my life with my personal Islam marriage and modern times of legal licensing and divorce and hive mind of the law / hive mind of the clergy / shared mindset of a marriage and families / hive mind of written and spoken languages within families.
 
+# 00:07 boredom games
+
+Board games / we don't have to talk / boredom games. Low technology / previous generation of technology media ecology (industrial revolution, mass produced interchangeable game parts). 
+
+All knowing hive-mind that produces and teaches these games. 
+
+Little misdirection details. how hard is it to grab a household object to replace the missing chess piece. OPERA_A I'm your queen, or are you working for the white queen? Starship Kepler-22B troopers. All good behaved Hive Mind People turning their heads towards the 13 free thinkers. The Hive Mind wants to make you wise. Killing time with games. https://www.youtube.com/watch?v=WfgPEh2J9aI
+
