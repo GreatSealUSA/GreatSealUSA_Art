@@ -99,5 +99,23 @@ MIXING_BOARD Joyce Finn's Hotel bedding themes: { Incest, kissing cousins, famil
 
 Returning to the card game themes of Veges "opening hands". OPERA_A Repeat until Bloomsday, then repeat even harder, and iterate always. Mankind vs. Mankind (eyeglasses Gaga wears: "POP CULTURE") bluffing with biological heart and muffin, getting each other *high*. https://www.youtube.com/watch?v=bESGLojNYSo Can't read Carol's *wall facer* mind of unpublished works.
 
+&nbsp;
 
+# 00:08 Christmas year 2005
+
+Show ends on Christmas day, themes building up. 2005 to 2025 echos. "Caution! Echoland!"
+
+Magical stem cell virgin Mary metaphors abound. Lesbians producing stem cells. RNA invasion from Eden metaphors abound.
+
+Cousin Henry. 
+
+* "Cousin Henry is an 1879 novel by Anthony Trollope about the inheritance of a Welsh estate, Llanfeare, and the moral dilemma of its indecisive owner, Indefer Jones, who wants to leave it to his niece Isabel but feels bound by tradition to name a male heir, his nephew Henry. The plot centers on the conflict between duty and desire, as the weak-willed Henry discovers a new will that names Isabel as heir, forcing him to choose between his own gain and her security. It is considered one of Trollope's more experimental and psychologically focused shorter novels, exploring themes of family, class, and personal integrity"
+
+Well strong-willed Carol and the protector of human inheritance being locked up from roaming animals.
+
+ASSERTION: Show opens with a book author married to a book publisher on a book tour at a book store. Who scheme to arrange books at the book store of an airport facing the public. Pirating books, mixing of languages, mixing of "plucking fruit" if starving Tree of Knowledge metaphors abound. 
+
+Plucking on the strings of Minute 22 Episode One post-doc thesis of Helen at the Zero HOur, Kepller 22 minutes into Episode One iterations and recursions. "Finnegans Wake Mash-up: Joyce created a "brilliant mash-up" by mixing real life with Trollope's fictional Barsetshire, blurring boundaries between his characters and Trollope's, notes The Trollope Jupiter, demonstrating Joyce's playful engagement with his literary predecessor." - https://thetrollopejupiter.wordpress.com/tag/anthony-trollope/
+
+Reminder:  "Caution! Echoland!"
 
