@@ -36,13 +36,21 @@ Everybody has had to fight to be free.
 
 Mixed colors, melting pot Pyramid Eye metaphors of Floyd logo
 
-ToDo: "Hey You" 
+Bobaflex - Hey You (Pink Floyd cover) - Official Music Video     
+https://www.youtube.com/watch?v=rm5eWLXW6l4      
+14,461,756 views **March 25**, 2017      
+
+"DO NOT GIVE UP!"... "WITHOUT A FIGHT"...        
+
+But that **does not mean never give up**. Working Together is part of the Great Seal Free Mason ideals. Democracy requires working together with understanding and comprehension at step 13, and integrity to climb back down from step 13 and be free once more. Ride captain ride, upon your mystery ship, be amazed at the friends you have on your trip down to ground level and drawing board back to step 13!
 
 Ends on "United we Fall" (United States), "Fall of Mankind" / Special Revelations. Great Seal USA Eye above.
 
 The Wall was too high, the wall of the pyramid to step 13.
 
 Carol's worms in back yard of back of Carol's mind.
+
+* March 25 - my Vegas wedding day. And the day Mary is impregnated with Jesus magically from outer-space Eden fertilization RNA / DNA / ??? genetic upgrades ... for the final day birth of Episode Nine of Pluribus December 25.
 
 &nbsp;
 
