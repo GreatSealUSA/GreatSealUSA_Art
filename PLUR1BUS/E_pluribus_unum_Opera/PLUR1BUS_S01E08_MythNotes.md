@@ -274,6 +274,21 @@ Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* met
 
 &nbsp;
 
+# 00:33:15 hive mind psychosis 
+
+MAGA ICE eggs metaphors abound. Hatching eggs with ICE around. Stem cells.
+
+ASSERTION: April 2021 book with the same title as the Pluribus TV show (about book tours, book authors, book writing, book arranging) by POTUS G W Bush. https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants
+
+Carol asserts loudly: Hive Mind Psychosis      
+
+https://www.youtube.com/watch?v=09maaUaRT4M&t=740s    
+"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"      
+
+"Smartphones and Social Media". [WGA February 15, 2025 lecture of our real cesspool from Vince Gilligan](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md). 
+
+&nbsp;
+
 &nbsp;
 
 # 32:00 "not any more" 
