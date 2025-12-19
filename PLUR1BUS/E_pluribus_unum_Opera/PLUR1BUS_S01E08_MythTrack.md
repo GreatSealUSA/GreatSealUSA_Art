@@ -148,7 +148,7 @@ I have heard this song [live performed in Austin](https://old.reddit.com/r/Austi
 
 &nbsp;
 
-## Track: Hive Mind tracking signaals
+## Track: Hive Mind tracking signals
 
 John 1:1 confrontation of who is authoring the Eden dictatorships { Torah, Bible, Quran, Book of Mormon, etc }    
 
