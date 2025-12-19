@@ -50,3 +50,11 @@ https://youtu.be/Zq7QPnqLoUk?t=570
 
 Nomad, spiritual, stories / mythology / fiction politics. 
 
+# Caution! EchoLand! American audiences / Book Tour Carol 
+
+https://youtu.be/Zq7QPnqLoUk?t=639 
+
+Echoland! Caution! James Joyce: "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. **The English reading public** explains the reason why.
+Letter to Fanny Guillermet (Zurich, 5 September 1918). Late 1918 as Joyce approached 1923 Finn's Hotel. Helen's post-doctorate masters thesis handed to Carol at the Zero Hour in a Public House on Walter White's ([fiction bad-ass admiration social media "The Media" audiences](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)) fandom *gravesite pissing* / pissed. Waxing poetically about touch social media device touching while [free women smoke[(https://en.wikipedia.org/wiki/Torches_of_Freedom) to the Bernays hivemind that Mr. White cultivates and stimulates blues. OPERA_A https://www.youtube.com/watch?v=33oAuvbRg-c Remastered 2010 year of the Ted Talk of Elif Shafak about her book tour of first English writing language immigrant.
+
+
