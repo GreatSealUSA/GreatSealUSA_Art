@@ -295,7 +295,6 @@ MAGA ICE eggs metaphors abound. Hatching eggs with ICE around. Stem cells.
 ASSERTION: April 2021 book with the same title as the Pluribus TV show (about book tours, book authors, book writing, book arranging) by POTUS G W Bush. https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants
 
 Carol asserts loudly: Hive Mind Psychosis      
-
 https://www.youtube.com/watch?v=09maaUaRT4M&t=740s    
 "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"      
 
