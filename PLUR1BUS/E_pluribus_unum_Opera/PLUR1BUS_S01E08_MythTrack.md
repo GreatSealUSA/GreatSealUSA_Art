@@ -89,5 +89,4 @@ https://www.youtube.com/watch?v=w1tpxdZa1R0
 Carol thought she was a loner.    
 Pirate Lady thought she was a man.    
 
-ToDo: MLK Jr. quotes about "go back" around 1969 left behind ideals and understandings of Pluribus.
-
+* American lecture about the entire planet. Sunday, February 28, 1954: "My friends, all I'm trying to say is that if **We are to go forward today**, We've got to go back and rediscover some mighty precious values that *We*'ve left behind. That's the only way that *We* would be able to make of our *world* a better world"!
