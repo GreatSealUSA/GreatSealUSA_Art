@@ -45,3 +45,19 @@ Of course, I can go look at previous episodes and I will.
 Return of the American buffalo on native lands.
 
 Carol really seems guilty she took the painting. The whole "it wasn't safe" seems really bullshit, even for Carol. She says she wants to return it, but that the hive mind can't keep historical human art safe? Does this go back to her using the golf club to break skyscraper windows - since the city was evacuated from toxic Carol? Is that building now open to the elements / contents damaged? 
+
+# 06:00 
+
+First date / second date / third date conversation vibes.
+
+Arranged marriage vibes (I have personal experience of a self-arranged marriage / self-arranged courtship from Africa to Americas like Carol, at middle age like Carol).  The rituals of the drink preparation and serving are very much like north Africa tea serving to me on my first visits to family home as part of self-arranged choice marriage / self-arranged courtship. The long-distance over-Internet metaphors of courtship and marriage in a modern Islamic nation. How consent and "private together" works when dating / engagement. The unspoken presence of classic religion practices and society hive mind / national hive mind / national laws / clergy laws (and state religion / state clergy / Iran and Afghanistan, and women. If this was a homosexual male couple, but even then a man AND woman is more regulated going into private together by clergy than two women - show is highligting a loophole)
+
+Islam is the newest of the classic religions. Year 635 - that is well known to the western world audience. Not counting Salt Lake City Mormons (Vegas), Scientology, etc. But the "classical" ones that empires used (Roman empire: Christianity, Ottoman Empire: Islam).
+
+* "The Ottoman Empire was an Islamic state, officially Sunni Muslim, where the Sultan held the title of Caliph, making him the spiritual and political leader of the Muslim world, controlling Islam's holiest cities (Mecca, Medina, Jerusalem) and integrating Islamic law (Sharia) with state administration, though it also governed diverse non-Muslim populations (Christians, Jews) under a system of religious tolerance (Dhimmi) that granted autonomy but mandated taxes (jizya) and imposed some restrictions, coexisting with secular law (Kanun)."
+
+I think the case could be made that Hollywood music / film / popular books / air traveling musicians (The Beatles, Elvis) could almost be a religion and influence system of say year 1850. And then the Internet + smartphone becoming a world religion-like influence of rituals and customs. Changing how marriages work, how rituals like going to concerts work (live-streaming). 
+
+Prior to air travel, something like a world traveling music band or Olympics competition gathering / FIFA World Cup was very different.
+
+ToDo: want to create a third category? { MythTrack, MythNotes, Inspired Observations ? for each episode }
