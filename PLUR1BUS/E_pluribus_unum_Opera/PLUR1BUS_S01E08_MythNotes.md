@@ -286,3 +286,35 @@ P.S. Enough GitHub checkins that the training wheels are off / [crying time (IT'
 
 <img width="2296" height="1224" alt="image" src="https://github.com/user-attachments/assets/cccdbb23-735e-4767-bb2c-e1c52c313a37" />
 
+&nbsp;
+
+&nbsp;
+
+# 36:00 Pirate Man trans-gender 
+
+Down the steps of the pyramid, a floor closer to the drawing board, Chapter One (Episode One) recirculations.
+
+The transition of gender was the Zero Hour USA *touch device touchy subject* of touching the third rail on media systems / book publishing / "The Media" book selling / audience in USA. Relation-shipping trans-gender characters and touch-device killing Helen at the Zero Hour. Media ecology metaphors of Finnegans Wake Minute 22 Kepler 22 social media audience abound. On the grave site of Walter White, toxic mind brain chemistry manipulator. At the Zero Hour, the touchy topic of social media: [Standing up on the cesspool of character Walter White and Saul Bad-man audience aspirations](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md) Public Relations / Relation-shipping in Public.
+
+&nbsp;
+
+# 37:30 jump
+
+on-screen clock countdown / countup jumps to + 60 days    
+
+F.M. radio signaling 
+
+The "Last Tour", "All of You".
+
+https://jazztimes.com/reviews/albums/the-miles-davis-quintet-featuring-john-coltrane-all-of-you-the-last-tour-1960/
+
+&nbsp;
+
+# 38:00 deep intimate *We / Us*
+
+Carol paired. Lovebirds and breaking eggs (Carol's eggs on ICE invocations, breaking and entering eggs). Breaking bread together, favorite foods.
+
+Prisoner's and their "Last Supper" request metaphors. 
+
+OPERA_A repeating tracks. Women in guided cages Will still be singing it on that day? https://www.youtube.com/watch?v=Y3Krg8Nc69Y
+
