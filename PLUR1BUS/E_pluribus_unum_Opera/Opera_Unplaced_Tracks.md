@@ -128,3 +128,4 @@ https://www.youtube.com/watch?v=_HDMCCLlGl4
 March 20 2010 Arab Spring 2010. March 20, 5 days before Eden signal joins with Mother Mary for Jesus birth on final episode season one day.     
 
 Million ways to laugh, every one is a path, happy happy hive mind.   
+Singer not the song, the individual voice, not the hive mind common only.    
