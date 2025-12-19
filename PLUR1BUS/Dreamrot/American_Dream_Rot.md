@@ -1,6 +1,6 @@
 # American Dream Rot
 
-*Dreamrot*, #Brainrot*   
+*Dreamrot*, *Brainrot*   
 
 &nbsp;
 
