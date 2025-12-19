@@ -50,7 +50,7 @@ The Wall was too high, the wall of the pyramid to step 13.
 
 Carol's worms in back yard of back of Carol's mind.
 
-* March 25 - my Vegas wedding day. And the day Mary is impregnated with Jesus magically from outer-space Eden fertilization RNA / DNA / ??? genetic upgrades ... for the final day birth of Episode Nine of Pluribus December 25.
+* March 25 - my Vegas wedding day. And the day Mary is impregnated with Jesus magically from outer-space Eden fertilization RNA / DNA / ??? genetic upgrades ... for the final day Solstice season birth of Episode Nine of PLUR1BUS December 25.
 
 &nbsp;
 
