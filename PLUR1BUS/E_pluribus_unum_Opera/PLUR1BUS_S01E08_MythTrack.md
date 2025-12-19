@@ -146,3 +146,21 @@ Christmas 1999 / Christmas 2025 season cliffhangers
 
 I have heard this song [live performed in Austin](https://old.reddit.com/r/Austin/comments/1fo414o/la_zona/) in year 2008 as part of her "@#%&*! Smilers" tour. At the end of her planned set, at the encore I yelled out a request - and she sang it! Highlight of my music experience (Experience Music Project) to be with my wife Tristan and have an artist take my request.  [La Zona Rosa](https://en.wikipedia.org/wiki/Zona_Rosa) on June 17, 2008
 
+&nbsp;
+
+## Track: Hive Mind tracking signaals
+
+John 1:1 confrontation of who is authoring the Eden dictatorships { Torah, Bible, Quran, Book of Mormon, etc }    
+
+Who is the Locomotive / motivator?  
+
+Troubadour Year 1210 - AMOR is ROMA backwards! Protesting the Roman Empire hive mind Clergy services before year 1517 Germany really went all out on Halloween! Finnegans Wake is the ultimate Helen's post doctorate thesis to Carol at Minute 22.
+
+Jethro Tull - Locomotive Breath (Rockpop In Concert 10.7.1982)     
+https://www.youtube.com/watch?v=eSUdlUmtg3Q     
+23,117,343 views February 21, 2017     
+
+10.7 ~~performance. October 7? Putin's Birthday Locomotive Kremlin hive mind breath. October 7, Palestine hive mind war Mecca locomotive breath! October 7, Fox News birthday MAGA hive mind locomotive breath!~~ alas - " July 10, 1982 (10.7.1982) " Germany date conventions :(
+
+Stand up with Romans 11:32 against Locomotive Breath! www.Romans1132.org 1132 in Finn's Hotel year 1923.
+
