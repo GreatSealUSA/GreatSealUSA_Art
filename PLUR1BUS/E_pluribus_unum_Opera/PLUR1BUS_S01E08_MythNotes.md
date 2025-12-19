@@ -142,7 +142,7 @@ And that's the fucking point of Finnegans Wake. It is to be ORAL SPOKEN. Aloud, 
 
 **https://youtube.com/watch?v=-f2F02gsYsk**
 
-Do it again. OPERA_A 
+Do it again. OPERA_A Carol is digging water wells and chasing waterfalls because Helen Fell like Tim. In the morning, you go board game gunning, for the woman who stole your water. https://www.youtube.com/watch?v=jmdiKePVUy8
 
 (Is there really a minus-sign at the start of that video ID on YouTube, haven't noticed all the years I had that up on www.LazyWake.com )
 
