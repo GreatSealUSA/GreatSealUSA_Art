@@ -117,5 +117,6 @@ ASSERTION: Show opens with a book author married to a book publisher on a book t
 
 Plucking on the strings of Minute 22 Episode One post-doc thesis of Helen at the Zero HOur, Kepller 22 minutes into Episode One iterations and recursions. "Finnegans Wake Mash-up: Joyce created a "brilliant mash-up" by mixing real life with Trollope's fictional Barsetshire, blurring boundaries between his characters and Trollope's, notes The Trollope Jupiter, demonstrating Joyce's playful engagement with his literary predecessor." - https://thetrollopejupiter.wordpress.com/tag/anthony-trollope/
 
-Reminder:  "Caution! Echoland!"
+Reminder:  "Caution! Echoland!" OPERA_A https://www.youtube.com/watch?v=kM8QJAlHlR4 "People with Accents"
+
 
