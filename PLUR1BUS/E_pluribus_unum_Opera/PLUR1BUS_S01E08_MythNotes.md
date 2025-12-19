@@ -84,3 +84,4 @@ All knowing hive-mind that produces and teaches these games.
 
 Little misdirection details. how hard is it to grab a household object to replace the missing chess piece. OPERA_A I'm your queen, or are you working for the white queen? Starship Kepler-22B troopers. All good behaved Hive Mind People turning their heads towards the 13 free thinkers. The Hive Mind wants to make you wise. Killing time with games. https://www.youtube.com/watch?v=WfgPEh2J9aI
 
+Is it Helen in the room, a realized ghost experience 13 humans have that is taken to a level never seen without Kepler-22 messages of 78 seconds.
