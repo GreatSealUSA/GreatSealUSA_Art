@@ -92,6 +92,11 @@ Is it Helen in the room, a realized ghost experience 13 humans have that is take
 
 The first mention of Carol's family outside the abusive sending her to Lesbian interment Christian camp at age 16? Am I forgetting others?
 
+MIXING_BOARD Joyce Finn's Hotel bedding themes: { Incest, kissing cousins, family planning, eggs on ice, stem sells, stimulating stems, seduction, privacy of the sex act from aliens film "Colossus: The Forbin Project" or super-intelligence watching, second-cousin or third-cousin or metaphors of religion that we are all *sisters and brothers* such as Bible verse "1 John 3:17" hive mind shared property, Adam Eve paradox and who does the child have sex with when starting from 2 people maths?, physical body vs. light inside }
+
+* "power and begins to decline, is to identify yourself not with the body, which is falling away, but with the consciousness of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?" - Skywalker Ranch Metaphors Universe for SciFi audiences
+
+
 Returning to the card game themes of Veges "opening hands". OPERA_A Repeat until Bloomsday, then repeat even harder, and iterate always. Mankind vs. Mankind (eyeglasses Gaga wears: "POP CULTURE") bluffing with biological heart and muffin, getting each other *high*. https://www.youtube.com/watch?v=bESGLojNYSo Can't read Carol's *wall facer* mind of unpublished works.
 
 
