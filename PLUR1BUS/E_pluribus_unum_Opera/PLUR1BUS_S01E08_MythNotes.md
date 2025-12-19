@@ -332,3 +332,22 @@ Prisoner's and their "Last Supper" request metaphors.
 
 OPERA_A repeating tracks. Women in guided cages Will still be singing it on that day? https://www.youtube.com/watch?v=Y3Krg8Nc69Y
 
+&nbsp;
+
+&nbsp;
+
+# 39:00 double immigrant 
+
+Doubling down on the immigrant themes.   
+
+She flew out of Episode Two from Africa... but now we have shipped her to Gdańsk Poland childhood. Very poor, no coins to rub together. Watching relation-ships of world affairs / world trade.
+
+{ "Brand New", "First Voyage", "maybe 10 years old" }   
+
+"it was just after the country had opened up"   
+Poland.    
+
+* Cold war metaphors abound: "the period immediately following the revolutions of 1989, specifically the time around the partially free elections in June 1989 and the formation of the first non-communist government in September" USSR / Soviet Union. World War Two hive mind wars, 40 years of heavy-handed dictation to Poland. Iron Curtain.
+
+ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
+ 
