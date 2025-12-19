@@ -76,6 +76,8 @@ OPERA_A the entire film from Iran "A Separation" year 2012 and Roger Ebert's Chi
 
 # 00:07 boredom games
 
+Very Joycean / Authoring word-choice of *The Wake* ("lifting the veil") year 1923 and hybrid-metaphors hybrid-warfare of Joycean vs. Romans 11:32 Clergy: { Boredom games / flat board games / board room meeting Air Force One strategy to defeat the hive mind games / biological imperative last encounter in the house dialog - sexual tension biological imperative two-way exploitation semi-arranged semi-consensual hookup / peering exploitation and mind games  } OPERA_A https://www.youtube.com/watch?v=bVYXWVs0Prc Lifting the Veil, some call it love-magic (Stephan A. H. lecture 1987)
+
 Board games / we don't have to talk / boredom games. Low technology / previous generation of technology media ecology (industrial revolution, mass produced interchangeable game parts). 
 
 All knowing hive-mind that produces and teaches these games. 
