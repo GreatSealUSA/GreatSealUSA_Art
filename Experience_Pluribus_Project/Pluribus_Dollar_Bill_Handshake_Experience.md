@@ -5,3 +5,30 @@
 The association could be made with the industrial revolution of humanity. And how two world wars tried to spread technology of a mechanized hardware and process system across the planet.
 
 A less mechanized industrial software (softer) approach would be to win hearts and minds with a book tour, publishing your hive mind. Perhaps on a small flyer of paper that people trade with the word "Pluribus" in Latin on it. To convince people through peaceful exchange of an idea on paper traded all over the planet. A global charm campaign. Novus ordo seclorum
+
+&nbsp;
+
+# After witnessing One World War
+
+There was an attempt to revive Plurbus metaphors after falls to World War One mechanized chemical warfare. A year 1923 Finn's Hotel morning wake up! calling.
+
+"Sir Tristram, violer d'amores, fr'over the short sea, had passen-   
+core rearrived from North Armorica on this side the scraggy
+isthmus of Europe Minor" 
+
+"to wielderfight his penisolate war"
+
+"topsawyer's rocks by the stream Oconee exaggerated themselse  
+to Laurens County's gorgios"
+
+"The fall (bababadalgharaghtakamminarronnkonnbronntonner-   
+ronntuonnthunntrovarrhounawnskawntoohoohoordenenthur-  
+nuk!) of a once wallstrait oldparr is retaled early in bed"
+
+"and later on life down through all christian minstrelsy. The great fall of the  
+offwall entailed"    
+
+&nbsp;
+
+The Great Seal Pluribus great fall to to Christian literal literacy, King James Bible fall, not the Jefferson year 1820 Bible. A similar King James fell upon Dublin's inner reaches.
+
