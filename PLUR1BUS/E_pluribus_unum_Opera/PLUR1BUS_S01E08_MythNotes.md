@@ -274,6 +274,20 @@ Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* met
 
 &nbsp;
 
+# 32:00 "not any more" 
+
+Marriages untied and not any more. Tim's wife metaphors, HCE's sexual rumors and Isolde's Phoenix Park recirculations assertions of Dublin away from AMOR / ROMA. Troubadours of the year 1210 re-assertions over choice marriage choosy. Mama nesting eggs, [stemming from harvesting and plucking](https://www.youtube.com/watch?v=n2MtEsrcTTs) picking eggs from a nesteggs upon ICE.
+
+P.S. Enough GitHub checkins that the training wheels are off / [crying time (IT'S HARD DIGITAL GAMERS PINBALL SPEEDRUNNERS)](https://www.youtube.com/watch?v=f_Vh2dmyDv4) on language play and metaphor mixes. Enough nights spent checking into Finn's Hotel. Deacon Blues brother is free. The arch bishop don't sanctify me. Sin Boldly upon those clergy, Halloween haunt them with words on the front doors.
+
+"titles of books and a TV movie (*Finnegan Begin Again starring Mary Tyler Moore), all echoing the theme of renewal, often linked to James Joyce's complex novel "Finnegans Wake"." - Google Search Summary of a query, 2025-12-19 afternoon USA 
+
+<img width="2296" height="1224" alt="image" src="https://github.com/user-attachments/assets/cccdbb23-735e-4767-bb2c-e1c52c313a37" />
+
+&nbsp;
+
+&nbsp;
+
 # 00:33:15 hive mind psychosis 
 
 MAGA ICE eggs metaphors abound. Hatching eggs with ICE around. Stem cells.
@@ -286,20 +300,6 @@ https://www.youtube.com/watch?v=09maaUaRT4M&t=740s
 "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"      
 
 "Smartphones and Social Media". [WGA February 15, 2025 lecture of our real cesspool from Vince Gilligan](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md). 
-
-&nbsp;
-
-&nbsp;
-
-# 32:00 "not any more" 
-
-Marriages untied and not any more. Tim's wife metaphors, HCE's sexual rumors and Isolde's Phoenix Park recirculations assertions of Dublin away from AMOR / ROMA. Troubadours of the year 1210 re-assertions over choice marriage choosy. Mama nesting eggs, [stemming from harvesting and plucking](https://www.youtube.com/watch?v=n2MtEsrcTTs) picking eggs from a nesteggs upon ICE.
-
-P.S. Enough GitHub checkins that the training wheels are off / [crying time (IT'S HARD DIGITAL GAMERS PINBALL SPEEDRUNNERS)](https://www.youtube.com/watch?v=f_Vh2dmyDv4) on language play and metaphor mixes. Enough nights spent checking into Finn's Hotel. Deacon Blues brother is free. The arch bishop don't sanctify me. Sin Boldly upon those clergy, Halloween haunt them with words on the front doors.
-
-"titles of books and a TV movie (*Finnegan Begin Again starring Mary Tyler Moore), all echoing the theme of renewal, often linked to James Joyce's complex novel "Finnegans Wake"." - Google Search Summary of a query, 2025-12-19 afternoon USA 
-
-<img width="2296" height="1224" alt="image" src="https://github.com/user-attachments/assets/cccdbb23-735e-4767-bb2c-e1c52c313a37" />
 
 &nbsp;
 
