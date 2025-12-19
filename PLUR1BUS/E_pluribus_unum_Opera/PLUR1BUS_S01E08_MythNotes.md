@@ -170,3 +170,75 @@ Native Americans tent metaphors? Tribal living.
 
 I lived in Jordan for years during the Arab Spring (to study historical science fiction storytelling like Pluribus TV and how people related to Internet "The Media") and visited Petra for study: Indigenous Bedouins https://www.youtube.com/watch?v=j0sxnr45Gio
 
+&nbsp;
+
+&nbsp;
+
+# 27:00 Origins of Piracy
+
+https://www.youtube.com/watch?v=6JsrIR3_5DI       
+838,166 views September 5, 2010     
+
+How the mother of fiction character "Pirate Man" birthed the yellowpad paper movements.
+
+Carol started out with office supply piracy on her Pirate Lady writing. 
+
+"Stairway to Heaven"     
+Misheard Lyrics:     
+And as we wind on down the road      
+I should have stolen when I sold     
+There was a lady we all know     
+
+(sold-out society / self / long-term / path of art)    
+
+https://www.amiright.com/misheard/artist/ledzeppelin.shtml
+
+&nbsp;
+
+Proper Pluribus lyrics of We The People metaphors:
+
+And as we wind on down the road    
+Our shadows taller than our soul    
+There walks a lady we all know     
+Who shines white light and wants to show    
+How everything still turns to gold    
+And if you listen very hard    
+**The tune will come to you at last**    
+When **All are One, and One is All**      
+
+&nbsp;
+
+CONTEXT_ASSERTION: misheard language, Joyce's 1923 Finn's Hotel languages, Minute 22 Kepler 22 Episode One post-doctorate thesis. Babel Thunder Word One Part One.
+
+The "buying the stairway" invokes  overloaded wordchoice spellchoice context of "words have two meanings" of "stealing" vs. buying vs. borrowing. Sometimes a SingSong "thoughts are misleading". Voices echo, "Caution! Echoland!"
+
+The Pied Piper will lead us to step 13 of the Great Seal pyramid out of Africa, reason thinking metaphors stone foundations abound.
+
+One-track mind still time to change the track you are on, maybe not [Two and Only Two /TwoAndOnlyTw0](/TwoAndOnlyTw0/Utterly_Deplorable_and_Regrettable_and_Terrible.md)     
+
+&nbsp;
+
+* Personal note about Arab Spring 2010... end of Ramadan 2010 ... Evening of Thursday, September 9, 2010 – Friday (Mosque prayer day), September 10, 2010 ... this song was released on YouTube September 5, 2010 and I was using track for personal teaching of comparative mythology / Africa Great Seal USA comprehension.
+
+P.S. This whole Episode Eight is very intimate personal revelations and connections / traceroute between hivemind peering and out-mind peering and Keppler 22B peering in the sky and radio outbound signal peering to other intelligent life. Very emotional to me and lots of intimacy pouring out from me due to this science fiction artwork. Lots of December 16, 2009 "Wake Indra" Great Seal USA ideals of rebirth via Arab Spring and public encounters in Algiers associations with the USA Embassy in Algiers roundivious with hopes.
+
+&nbsp;
+
+ToDo: Tom's diner ;) 
+
+&nbsp;
+
+&nbsp;
+
+# 00:29 overspilling to 00:30 
+
+Countdown / countup metaphors abounding arounding. Wake recirculation signal John One One repeating.    
+"is everything ok?"
+
+Being asked that when "monster state" (Campbell, Skywalker Ranch) of a hive mind is abusing you / manipulating you.
+
+Track: I'm all right, independent. Caddyshack 1980 (Golf images of Carol abound, Trump Towering hive mind ICE egged associations, Melancholia Nazi associations)
+
+6,940,608 views April 30, 2014     
+https://www.youtube.com/watch?v=rbQgaHZOFZ0
+
