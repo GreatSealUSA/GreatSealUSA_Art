@@ -74,5 +74,20 @@ forgot to say hello to my neighbors!
 
 Domesticated Dog bedding companion    
 
+&nbsp;
 
+&nbsp;
+
+# Pluribus Woodstock 1969 Metaphors
+
+1969, Pluribus Metaphors abounded across to Europe and North America   
+
+Get Back - Rooftop Concert (1969)        
+https://www.youtube.com/watch?v=w1tpxdZa1R0     
+774,709 views December 3, 2021      
+
+Carol thought she was a loner.    
+Pirate Lady thought she was a man.    
+
+ToDo: MLK Jr. quotes about "go back" around 1969 left behind ideals and understandings of Pluribus.
 
