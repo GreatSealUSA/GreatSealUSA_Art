@@ -54,7 +54,7 @@ On your mystery shipping, Mr. Joyce. Be amazed at the Pluribus We The People on 
 
 &nbsp;
 
-* "The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. BILL MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past" - Skywalking Lessons from SKywalker Ranch, California where the voices landed from the shore. What are we gong to do today? https://www.youtube.com/watch?v=HqFFjoRnltg (1,182,407 views November 3, 2013)
+* "The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience. BILL MOYERS: There are many Christians who believe that; to find out who Jesus is, you have to go past" - Skywalking Lessons from Skywalker Ranch, California where the voices landed from the shore. What are we gong to do today? https://www.youtube.com/watch?v=HqFFjoRnltg (1,182,407 views November 3, 2013)
 
 &nbsp;
 
