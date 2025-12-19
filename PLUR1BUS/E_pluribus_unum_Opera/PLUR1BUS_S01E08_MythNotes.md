@@ -242,3 +242,43 @@ Track: I'm all right, independent. Caddyshack 1980 (Golf images of Carol abound,
 6,940,608 views April 30, 2014     
 https://www.youtube.com/watch?v=rbQgaHZOFZ0
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# 31:30 meltdown  
+
+Carol's meltdown (spectrum associations, Pink Floyd pyramid spectrum / lesbian gender spectrum).  
+
+" We / I ... Find it *odd* semantically" <<< I mean *this* is it!
+
+1. Boozing Tim Finnegan, Helen's back in the yard, Funeral Wake begins again
+
+2. A writer / author coupling
+
+3. Minute 22 Episode One post-doctorate thesis of 1923 Finn's Hotel unpublished "Bitter Wakening" book as Helen's deepest adulthood literary insight. (Kepler 22 assertion, Zero Hour Public House on top of Walter White's grave context associations)
+
+&nbsp;
+
+Find it *odd* semantically
+
+What reader of Finnegans Wake Dublin story would not say that phrase: "Find it *odd* semantically" bout context of ALP / Anna Pluribule. How odd to play with the spellchoice wordchoice of ALP / HCE and Christmas Caroling authorships shippinglady_relatiionshps and signal origins virtue signaling.
+
+Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* metaphors. 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# 32:00 "not any more" 
+
+Marriages untied and not any more. Tim's wife metaphors, HCE's sexual rumors and Isolde's Phoenix Park recirculations assertions of Dublin away from AMOR / ROMA. Troubadours of the year 1210 re-assertions over choice marriage choosy.
+
+P.S. Enough GitHub checkins that the training wheels are off / [crying time (IT'S HARD DIGITAL GAMERS PINBALL SPEEDRUNNERS)](https://www.youtube.com/watch?v=f_Vh2dmyDv4) on language play and metaphor mixes. Enough nights spent checking into Finn's Hotel. Deacon Blues brother is free. The arch bishop don't sanctify me. Sin Boldly upon those clergy, Halloween haunt them with words on the front doors.
+
