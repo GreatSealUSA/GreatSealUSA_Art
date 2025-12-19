@@ -160,7 +160,7 @@ Jethro Tull - Locomotive Breath (Rockpop In Concert 10.7.1982)
 https://www.youtube.com/watch?v=eSUdlUmtg3Q     
 23,117,343 views February 21, 2017     
 
-10.7 ~~performance. October 7? Putin's Birthday Locomotive Kremlin hive mind breath. October 7, Palestine hive mind war Mecca locomotive breath! October 7, Fox News birthday MAGA hive mind locomotive breath!~~ alas - " July 10, 1982 (10.7.1982) " Germany date conventions :(
+10.7 ~~performance. October 7? Putin's Birthday Locomotive Kremlin hive mind breath. October 7, Palestine hive mind war Mecca locomotive breath! October 7, Fox News birthday MAGA hive mind locomotive breath!~~ alas - " July 10, 1982 (10.7.1982) " Germany date conventions :( 1982-07-10
 
 Stand up with Romans 11:32 against Locomotive Breath! www.Romans1132.org 1132 in Finn's Hotel year 1923.
 
