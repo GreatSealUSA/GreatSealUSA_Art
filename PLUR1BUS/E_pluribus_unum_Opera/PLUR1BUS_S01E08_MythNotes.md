@@ -85,3 +85,14 @@ All knowing hive-mind that produces and teaches these games.
 Little misdirection details. how hard is it to grab a household object to replace the missing chess piece. OPERA_A I'm your queen, or are you working for the white queen? Starship Kepler-22B troopers. All good behaved Hive Mind People turning their heads towards the 13 free thinkers. The Hive Mind wants to make you wise. Killing time with games. https://www.youtube.com/watch?v=WfgPEh2J9aI
 
 Is it Helen in the room, a realized ghost experience 13 humans have that is taken to a level never seen without Kepler-22 messages of 78 seconds.
+
+&nbsp;
+
+# 00:07 30 seconds cousins 
+
+The first mention of Carol's family outside the abusive sending her to Lesbian interment Christian camp at age 16? Am I forgetting others?
+
+Returning to the card game themes of Veges "opening hands". OPERA_A Repeat until Bloomsday, then repeat even harder, and iterate always. Mankind vs. Mankind (eyeglasses Gaga wears: "POP CULTURE") bluffing with biological heart and muffin, getting each other *high*. https://www.youtube.com/watch?v=bESGLojNYSo Can't read Carol's *wall facer* mind of unpublished works.
+
+
+
