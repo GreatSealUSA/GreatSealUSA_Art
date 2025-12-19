@@ -278,7 +278,6 @@ Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* met
 
 # 32:00 "not any more" 
 
-Marriages untied and not any more. Tim's wife metaphors, HCE's sexual rumors and Isolde's Phoenix Park recirculations assertions of Dublin away from AMOR / ROMA. Troubadours of the year 1210 re-assertions over choice marriage choosy.
+Marriages untied and not any more. Tim's wife metaphors, HCE's sexual rumors and Isolde's Phoenix Park recirculations assertions of Dublin away from AMOR / ROMA. Troubadours of the year 1210 re-assertions over choice marriage choosy. Mama nesting eggs, [stemming from harvesting and plucking](https://www.youtube.com/watch?v=n2MtEsrcTTs) picking eggs from a nesteggs upon ICE.
 
 P.S. Enough GitHub checkins that the training wheels are off / [crying time (IT'S HARD DIGITAL GAMERS PINBALL SPEEDRUNNERS)](https://www.youtube.com/watch?v=f_Vh2dmyDv4) on language play and metaphor mixes. Enough nights spent checking into Finn's Hotel. Deacon Blues brother is free. The arch bishop don't sanctify me. Sin Boldly upon those clergy, Halloween haunt them with words on the front doors.
-
