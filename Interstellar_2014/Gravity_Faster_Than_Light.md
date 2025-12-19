@@ -57,3 +57,13 @@ because I don't understand what precisely is the point which Einstein wants to m
 
 That man was Niels Bohr, the most influential figure in quantum physics at the time.
 Bohr's Institute in Copenhagen had become the hub for the new field. Dozens of young scientists like Werner Heisenberg
+
+&nbsp;
+
+&nbsp;
+
+# Random results 
+
+"There is no way to send any faster than light message"
+
+https://youtu.be/NIk_0AW5hFU?t=2275
