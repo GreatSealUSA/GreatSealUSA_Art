@@ -61,3 +61,14 @@ I think the case could be made that Hollywood music / film / popular books / air
 Prior to air travel, something like a world traveling music band or Olympics competition gathering / FIFA World Cup was very different.
 
 ToDo: want to create a third category? { MythTrack, MythNotes, Inspired Observations ? for each episode }
+
+The Hive mind is watching: This isn't just two people in a room. And "we" is used. 
+
+* Quran, Surah Al-An'am, 6:59. Surah Al-Hadid (57:4): "And He is with you wherever you are. For Allah is All-Seeing of what you do."
+
+And with my marriage, I honestly think the people born into Islam of my family actually believed and behaved this way. Like a "hive mind" knew any secrets and was witnessing it. A lot of mythological / theological experiences are being conveyed in this scene / writing / storytelling of Carol and Zoshia in the sitting room.
+
+I mean, Funeral Wake, Tim Finnegan, mourning period. Helen's wishes and consent, final thoughts as she died, and even perhaps her mind being simulated in other minds for new thoughts. Native Americans are heavily influenced by ancestors. Trying to do the WWJD (What Would Jesus Do?) pondering. A lost spouse and re-marriage, people do make pledges to marry / not remarry. Not an uncommon trope in storytelling. Pre-nuptial spiritual agreements outside concerns of money, such as parenting and re-marriage wishes (in some Islamic nations, enforceable by police / the law). 
+
+OPERA_A the entire film from Iran "A Separation" year 2012 and Roger Ebert's Chicago USA perspective. I saw the film in Austin, Texas cinema based on Ebert's review. https://www.rogerebert.com/reviews/a-separation-2012 It has a pretty big impact on my life with my personal Islam marriage and modern times of legal licensing and divorce and hive mind of the law / hive mind of the clergy / shared mindset of a marriage and families.
+
