@@ -124,7 +124,7 @@ Brothers in Africa (Zosia), Egypt. Great Seal USA Pyramid speak loud - All aboar
 
 "Join hands" (Hands Across America)      
 
-O'Jays / O. J. / Orange Juice / Joycean Word Woke Wake.    
+O'Jays / O. J. / Orange Juice / Birds Jays / Joycean Word Woke Wake.    
 
 * Often asserted in odd places (odd digging findings) in Joyce tradition without begin or end, without inside the book or outside the story. "“Zosia” is the name of an archaeological find in Poland (Nicolaus [Copernicus](https://en.wikipedia.org/wiki/Kepler-22b) University) of a young woman buried with tools to prevent her from reanimating." Or is her name "ass, grass, or gasoline" meaning of creepy hive mind? Or all meanings condensed like Finn's Hotel year 1923?
 
