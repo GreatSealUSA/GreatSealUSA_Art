@@ -39,3 +39,9 @@ My first impression is that the intro title visuals changed. I don't normally gi
 It moved backwards? from end of word to start of word. And the "p" clearly gave a heartbeat type of signal?
 
 Of course, I can go look at previous episodes and I will.
+
+# 04:00  
+
+Return of the American buffalo on native lands.
+
+Carol really seems guilty she took the painting. The whole "it wasn't safe" seems really bullshit, even for Carol. She says she wants to return it, but that the hive mind can't keep historical human art safe? Does this go back to her using the golf club to break skyscraper windows - since the city was evacuated from toxic Carol? Is that building now open to the elements / contents damaged? 
