@@ -237,7 +237,7 @@ Countdown / countup metaphors abounding arounding. Wake recirculation signal Joh
 
 Being asked that when "monster state" (Campbell, Skywalker Ranch) of a hive mind is abusing you / manipulating you.
 
-Track: I'm all right, independent. Caddyshack 1980 (Golf images of Carol abound, Trump Towering hive mind ICE egged associations, Melancholia Nazi associations)
+Track: I'm all right, independent. Caddyshack 1980 (Golf images of Carol abound, Trump Towering hive mind ICE egged associations, Melancholia Nazi May 2011 Arab Spring associations (inclusive [Everything is PR](../Everything_Media_Ecology/Everything_Is_Public_Relations.md)))
 
 6,940,608 views April 30, 2014     
 https://www.youtube.com/watch?v=rbQgaHZOFZ0
