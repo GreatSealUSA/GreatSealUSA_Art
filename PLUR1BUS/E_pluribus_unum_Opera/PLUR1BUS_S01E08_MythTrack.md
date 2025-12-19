@@ -4,6 +4,7 @@ Wild animals after those paintings.
 Lions, tigers, bears! Oh my!    
 https://www.youtube.com/watch?v=DdRnMjfVQi0
 
+( Maybe_ToDo: Springfield, They are eating the pets, the pets are eating our art)
 
 &nbsp;
 
@@ -127,4 +128,21 @@ Brothers in Africa (Zosia), Egypt. Great Seal USA Pyramid speak loud - All aboar
 O'Jays / O. J. / Orange Juice / Birds Jays / Joycean Word Woke Wake.    
 
 * Often asserted in odd places (odd digging findings) in Joyce tradition without begin or end, without inside the book or outside the story. "“Zosia” is the name of an archaeological find in Poland (Nicolaus [Copernicus](https://en.wikipedia.org/wiki/Kepler-22b) University) of a young woman buried with tools to prevent her from reanimating." Or is her name "ass, grass, or gasoline" meaning of creepy hive mind? Or all meanings condensed like Finn's Hotel year 1923?
+
+&nbsp;
+
+# Track: "It is the loneliest sound"
+
+Repeating tracks, Bloomsday always, Bloomsday everywhere.   
+
+424,409 views February 21, 2010       
+https://www.youtube.com/watch?v=LWN-glGMDkc      
+Magnolia / Aimee Mann - One     
+"Christmas 1999"      
+
+It's just no good anymore, since the hive man ran away from ABQ.    
+
+Christmas 1999 / Christmas 2025 season cliffhangers    
+
+I have heard this song [live performed in Austin](https://old.reddit.com/r/Austin/comments/1fo414o/la_zona/) in year 2008 as part of her "@#%&*! Smilers" tour. At the end of her planned set, at the encore I yelled out a request - and she sang it! Highlight of my music experience (Experience Music Project) to be with my wife Tristan and have an artist take my request.  [La Zona Rosa](https://en.wikipedia.org/wiki/Zona_Rosa) on June 17, 2008
 
