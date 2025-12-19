@@ -130,7 +130,11 @@ Now, now, now, I think audiences on virgin viewing of the first showing are REAL
 
 Is sex with a fat person vs. thin person the same? The buy in Vegas doesn't think so. Sex with a age 19  body the same as sex with an age 59 body the same? Tall / short. Do the voices sound the same? Does the hair smell the same? 
 
-Does an onion in near by Hatch **New Mexico** taste the same as one grown in Grabill, Indiana? (I've been to Hatch for the festival. https://en.wikipedia.org/wiki/Hatch,_New_Mexico#Economy my first Wife Tristan (Finnegans Wake 1923 character on page 3 with deep roots in choice marriage ideals) grew up in Ruidoso. 
+Does an onion in near by Hatch **New Mexico** taste the same as one grown in Grabill, Indiana? https://en.wikipedia.org/wiki/Grabill,_Indiana (I've been to Hatch for the festival. https://en.wikipedia.org/wiki/Hatch,_New_Mexico#Economy my first Wife Tristan (Finnegans Wake 1923 character on page 3 with deep roots in choice marriage ideals) grew up in Ruidoso. 
+
+* Onions or peppers or tomatoes, [*oh my!*](https://www.youtube.com/watch?v=0-JJuHpfN5g), I was born in Georgia, we have our New Mexico Hatch concerns. I've lived in Washington too, and tasted the onion fruits. https://en.wikipedia.org/wiki/Vidalia_onion ... https://en.wikipedia.org/wiki/Walla_Walla,_Washington#Agriculture OPERA_A https://www.youtube.com/watch?v=DdRnMjfVQi0
+
+
 
 Kissing a human sweaty, dirty, smelly (Episode Two, Africa departure) is nothing at all like a showered perfumed experience. 
 
@@ -146,7 +150,7 @@ Do it again. OPERA_A Carol is digging water wells and chasing waterfalls because
 
 (Is there really a minus-sign at the start of that video ID on YouTube, haven't noticed all the years I had that up on www.LazyWake.com )
 
-If you think the hug of a person, the smell of a person, the voice of a person, The Matrix confrontation of the hive mind - is not significant. If you think 13 people talking in a room at once is same as 1 when dealing with the hive mind dialog (Airport scene before Air Force One arrives in Episode Two, the family members and who was speaking)....
+If you think the hug of a person, the smell of a person, the voice of a person, The Matrix 199 confrontation of the hive mind https://www.youtube.com/watch?v=yL9Y24ciNWs "This Reality" - is not significant. If you think 13 people talking in a room at once is same as 1 when dealing with the hive mind dialog (Airport scene before Air Force One arrives in Episode Two, the family members and who was speaking)....
 
 * "Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image." - Skywalker Gaucho Lessons
 
