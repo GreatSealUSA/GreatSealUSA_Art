@@ -12,6 +12,20 @@ A less mechanized industrial software (softer) approach would be to win hearts a
 
 There was an attempt to revive Plurbus metaphors after falls to World War One mechanized chemical warfare. A year 1923 Finn's Hotel morning wake up! calling.
 
+After witnessing One Global Virus   
+
+A pandemic peer to peer, with Spanish conquest the origin of metaphors, but life on Earth itself doing the programming. Not some Eden origins, but past hand-*we*-down leafs of knowledge and RNA / DNA / immune system challenges that span the shipping lanes of the old pirates.
+
+After witnessing One World War, One World Virus
+
+In year 1923, [one Irish man](https://www.youtube.com/watch?v=LHcP4MWABGY) saw, oh sorry he saw, the stone [Mason's great eye](https://old.reddit.com/r/freemasonry/comments/1ecoh5/do_any_other_freemasons_read_or_study_joseph/) and build a story about a Masonry man with bricks over his shoulder climbing up ladder. https://en.wikipedia.org/wiki/Brick_hod
+
+&nbsp;
+
+# .
+
+&nbsp;
+
 "Sir Tristram, violer d'amores, fr'over the short sea, had passen-   
 core rearrived from North Armorica on this side the scraggy
 isthmus of Europe Minor" 
