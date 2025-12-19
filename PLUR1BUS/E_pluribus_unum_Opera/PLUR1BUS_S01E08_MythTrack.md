@@ -90,3 +90,41 @@ Carol thought she was a loner.
 Pirate Lady thought she was a man.    
 
 * American lecture about the entire planet. Sunday, February 28, 1954: "My friends, all I'm trying to say is that if **We are to go forward today**, We've got to go back and rediscover some mighty precious values that *We*'ve left behind. That's the only way that *We* would be able to make of our *world* a better world"!
+
+&nbsp;
+
+# Track: Without Love Pairings 
+
+Repeating as Finnegans Wake page 3 ending begins iteration.
+
+https://www.youtube.com/watch?v=m4tJSn0QtME
+22,426,929 views September 1, 2010     
+
+Is this train track elsewhere in this GitHub and has view count changed?
+
+&nbsp;
+
+
+# Pluribus: All Aboard
+
+5,744,945 views February 12, 2021      
+Philadelphia International Records (Freedom Singsong Rings Worldwide)     
+The O'Jays - Love Train (Official Soul Train Video)       
+https://www.youtube.com/watch?v=_BlkTSKqE_8    
+
+All over the world 
+
+Soul Train / Love Train   
+
+The Next stop    
+Tell *All The Folks"    
+"Don't you know" (Tree of Knowledge, Pluck that Apple Carol says)     
+
+Brothers in Africa (Zosia), Egypt. Great Seal USA Pyramid speak loud - All aboard Pluribus New World Order!
+
+"Join hands" (Hands Across America)      
+
+O'Jays / O. J. / Orange Juice / Joycean Word Woke Wake.    
+
+* Often asserted in odd places (odd digging findings) in Joyce tradition without begin or end, without inside the book or outside the story. "“Zosia” is the name of an archaeological find in Poland (Nicolaus [Copernicus](https://en.wikipedia.org/wiki/Kepler-22b) University) of a young woman buried with tools to prevent her from reanimating." Or is her name "ass, grass, or gasoline" meaning of creepy hive mind? Or all meanings condensed like Finn's Hotel year 1923?
+
