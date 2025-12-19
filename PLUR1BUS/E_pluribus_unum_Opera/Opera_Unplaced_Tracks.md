@@ -110,3 +110,21 @@ Carol looking for RNA Lock-picking teams.
 
 Fog of war metaphors, fog of pandemic we all experienced December 2019 onward with COVID-19 information. Uncertainty. Can a cure be developed for COVID-19? That's what Carol is living under.
 
+&nbsp;
+
+&nbsp;
+
+# The Who: Join Together
+
+Join With the { hive mind, resistance }   
+
+"The Joining" is the term the show is in-universe calling the Zero Hour event?
+
+Music SingSong hear the drummer (MLK jr) drumming Finnegans Wake Great Seal References - We The People Pluribus with understanding.     
+
+https://www.youtube.com/watch?v=_HDMCCLlGl4      
+10,966,635 views  March 20, 2010      
+
+March 20 2010 Arab Spring 2010. March 20, 5 days before Eden signal joins with Mother Mary for Jesus birth on final episode season one day.     
+
+Million ways to laugh, every one is a path, happy happy hive mind.   
