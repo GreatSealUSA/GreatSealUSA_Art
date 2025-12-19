@@ -32,3 +32,10 @@ His distrust of their food is pretty harsh when he is captured at a medical hosp
 
 Yes, this is the story being told. The writers get to create this character and tell this story. But I think it is important to study the man's evolution of thinking and if he really thought through this trip after the hospital experience. free will vs. determinism of the injury warnings before he fell into the spiked tree.
 
+# 03:00  
+
+My first impression is that the intro title visuals changed. I don't normally give it a lot of attention. But even with my causal concern for it, I seemed to caught it. So I'm capturing my first impression, correct or otherwise.
+
+It moved backwards? from end of word to start of word. And the "p" clearly gave a heartbeat type of signal?
+
+Of course, I can go look at previous episodes and I will.
