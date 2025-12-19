@@ -168,5 +168,5 @@ Lick your touch device screen Apple //+ keyboard TV show when Pluribus depicts f
 
 Native Americans tent metaphors? Tribal living. 
 
-I lived in Jordan for years during the Arab Spring and visited Petra for study: Indigenous Bedouins https://www.youtube.com/watch?v=j0sxnr45Gio
+I lived in Jordan for years during the Arab Spring (to study historical science fiction storytelling like Pluribus TV and how people related to Internet "The Media") and visited Petra for study: Indigenous Bedouins https://www.youtube.com/watch?v=j0sxnr45Gio
 
