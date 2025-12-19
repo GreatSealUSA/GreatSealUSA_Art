@@ -115,8 +115,42 @@ Well strong-willed Carol and the protector of human inheritance being locked up 
 
 ASSERTION: Show opens with a book author married to a book publisher on a book tour at a book store. Who scheme to arrange books at the book store of an airport facing the public. Pirating books, mixing of languages, mixing of "plucking fruit" if starving Tree of Knowledge metaphors abound. 
 
-Plucking on the strings of Minute 22 Episode One post-doc thesis of Helen at the Zero HOur, Kepller 22 minutes into Episode One iterations and recursions. "Finnegans Wake Mash-up: Joyce created a "brilliant mash-up" by mixing real life with Trollope's fictional Barsetshire, blurring boundaries between his characters and Trollope's, notes The Trollope Jupiter, demonstrating Joyce's playful engagement with his literary predecessor." - https://thetrollopejupiter.wordpress.com/tag/anthony-trollope/
+Plucking on the strings of Minute 22 Episode One post-doc thesis of Helen at the Zero Hour, Kepller 22 minutes into Episode One iterations and recursions. "Finnegans Wake Mash-up: Joyce created a "brilliant mash-up" by mixing real life with Trollope's fictional Barsetshire, blurring boundaries between his characters and Trollope's, notes The Trollope Jupiter, demonstrating Joyce's playful engagement with his literary predecessor." - https://thetrollopejupiter.wordpress.com/tag/anthony-trollope/
 
 Reminder:  "Caution! Echoland!" OPERA_A https://www.youtube.com/watch?v=kM8QJAlHlR4 "People with Accents"
 
+ToDo: I'm sure someone has mapped out episodes to stages of grief. Free 13 grief for humanity "old world order". Do some searching.
+
+
+&nbsp;
+
+# 00:08 20 seconds Exactly Like 
+
+Now, now, now, I think audiences on virgin viewing of the first showing are REALLY misusing the point here.
+
+Is sex with a fat person vs. thin person the same? The buy in Vegas doesn't think so. Sex with a age 19  body the same as sex with an age 59 body the same? Tall / short. Do the voices sound the same? Does the hair smell the same? 
+
+Does an onion in near by Hatch **New Mexico** taste the same as one grown in Grabill, Indiana? (I've been to Hatch for the festival. https://en.wikipedia.org/wiki/Hatch,_New_Mexico#Economy my first Wife Tristan (Finnegans Wake 1923 character on page 3 with deep roots in choice marriage ideals) grew up in Ruidoso. 
+
+Kissing a human sweaty, dirty, smelly (Episode Two, Africa departure) is nothing at all like a showered perfumed experience. 
+
+I've seen not a thing that says the hive mind members can duplicate vocal talents and vocal skills
+
+And that's the fucking point of Finnegans Wake. It is to be ORAL SPOKEN. Aloud, out loud. University of Toronto's Marshall McLuhan - Joycean extraordinaire (and his children too) in black and white television to the general public on *out loud*. https://youtube.com/watch?v=-f2F02gsYsk to get the full dose, not no micro-dose, of Joyce! Helen's post-doctorate thesis to Helen is - you may have done Heroine Carol, but I did LSD Joyce trips to prepare me for this day, the Zero Hour over Walter White's grave site Public House! Has ANYONE HERE forgotten that the last time Carol was with this woman she dosed her with drugs, forced, non-consenting? Dialog intercourse here, folks, Intercourse is dosing. WATCH AGAIN https://youtube.com/watch?v=-f2F02gsYsk
+
+## -f2F02gsYsk
+
+**https://youtube.com/watch?v=-f2F02gsYsk**
+
+Do it again. OPERA_A 
+
+(Is there really a minus-sign at the start of that video ID on YouTube, haven't noticed all the years I had that up on www.LazyWake.com )
+
+If you think the hug of a person, the smell of a person, the voice of a person, The Matrix confrontation of the hive mind - is not significant. If you think 13 people talking in a room at once is same as 1 when dealing with the hive mind dialog (Airport scene before Air Force One arrives in Episode Two, the family members and who was speaking)....
+
+* "Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful poetic images of mythology are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image." - Skywalker Gaucho Lessons
+
+Lick your touch device screen Apple //+ keyboard TV show when Pluribus depicts food. 
+
+* Wake Up Finnegans! "A metaphor is an image that suggests something else. For instance, if I say to a person, “You are a nut,” I’m not suggesting that I think the person is literally a nut. “Nut” is a metaphor. The reference of the metaphor in religious traditions is to something transcendent that is not literally any thing. If you think that the metaphor is itself the reference, it would be like going to a restaurant, asking for the menu, seeing beefsteak written there, and starting to eat the menu. For example, Jesus ascended to heaven. The denotation would seem to be that somebody ascended to the sky. That’s literally what is being said. But if that were really the meaning of the message, then we have to throw it away" - Easter Lessons from Skywalker Ranch, California in the middle 1980's
 
