@@ -268,7 +268,7 @@ Find it *odd* semantically
 
 What reader of Finnegans Wake Dublin story would not say that phrase: "Find it *odd* semantically" bout context of ALP / Anna Pluribule. How odd to play with the spellchoice wordchoice of ALP / HCE and Christmas Caroling authorships shippinglady_relatiionshps and signal origins virtue signaling.
 
-Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* metaphors. 
+Carol sings: "Wow!" - the *Wow Signaling* from Minute 22 Kepler 22 *Contact* metaphors. August 15, 1977, around 2:16 UTC. Duration of 72 seconds (cut off?), non-repeating, in contrast with 78 seconds repeating.
 
 &nbsp;
 
