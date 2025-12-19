@@ -26,3 +26,8 @@ https://www.youtube.com/watch?v=iZpuazT6MrA
 **"ONE DAY"**    
 ***"A LITTLE LATER"***     
 68,462 views November 12, 2012      
+
+&nbsp;
+
+* New York City Sarah Lawrence influencer: "If you want to change the world, you have to change the metaphor"; "constant recreation through the arts" ToDo: Though Art That page 3
+
