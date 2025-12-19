@@ -14,3 +14,21 @@ It is a basic human thing to video / write about / report history. Carol using t
 
 Information ecology: Is the hive mind information thinking / networking of mind and memory of things (like where Carol hid the spare key to her house) so complete that book storage and computer storage of information are obsolete? Metaphors of someone crating works like video games that never have their source code printed on paper, an entire reliance of storage on digital systems?
 
+### Travel
+
+The taking of the ambulance.
+
+Where does he get his own thinking of this. It is as if films and fiction books he has written or wartime nonfiction books give him the ideas of how to behave in a post-apocalypse situation. He is trying to be self-reliant like a spy or James Bond story he perhaps read for entertainment. It is programmed into him / values / religion and social values of how one should behave under the end of the world.
+
+As a tourist would he never allow a tour bus or airplane pilot? 
+
+The absence of jets in the sky all the time in the show. We have seen the hive drive in convoy to leave ABQ to flee Carol. And the sprouts just in time delivery fleet of an entire retail store. But why do we not witness air travel in the sky - is skill download eliminating the need to move peoples? Or is some huge project going on in India / China / Russia that we can not witness from the scenes we are shown - and only a limited "staff" is in the areas we see.
+
+Carol's police cruising around outskirts of the city to the remote (non suburb) gas station in Episode 7 reveal this lack of traffic / air traffic / highway traffic. The hive mind did not take assets from the gas station yet? ToDo: were their no cold drink bottles and that is why the drone delivery?
+
+Like Walter White self-reliance is a big thing for this man. But there is a type of denial. The Braking Bad sweeper character and how Saul and Walter can't come up with their own escape plans. Only the pro is what they trust. This man in Pluribus doesn't trust any pro.
+
+His distrust of their food is pretty harsh when he is captured at a medical hospital and could have been fed any drugs and such. He really doesn't seem to be thinking that they can easily influence his predictable travel paths and air supply / food supply. He could telephone Carol and use his English book and ask Carol if she is consuming bottles of booze and Gatorade handed over by the hive mind (and she does)
+
+Yes, this is the story being told. The writers get to create this character and tell this story. But I think it is important to study the man's evolution of thinking and if he really thought through this trip after the hospital experience. free will vs. determinism of the injury warnings before he fell into the spiked tree.
+
