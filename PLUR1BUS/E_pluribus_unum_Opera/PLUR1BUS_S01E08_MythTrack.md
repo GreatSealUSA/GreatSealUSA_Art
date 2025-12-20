@@ -164,3 +164,28 @@ https://www.youtube.com/watch?v=eSUdlUmtg3Q
 
 Stand up with Romans 11:32 against Locomotive Breath! www.Romans1132.org 1132 in Finn's Hotel year 1923.
 
+&nbsp;
+
+# Track: Image going down down - America
+
+Pirate Lady author never did give nothing to the Tin Woman. That she didn't already have.
+
+HOLIDAY from the hive mind in Carol's desert Oasis. Out of Poland, Out of Africa fight to ARQ, out of the pan and into the Lost Alamos firing ranges. Pan-fry the Big Ones, throw back the little ones. Melting hearts.
+
+America - Tin Man (Official Audio)     
+https://www.youtube.com/watch?v=zGl4PP9xaaQ       
+
+&nbsp;
+
+# Track: See the girls in ABQ
+
+1,219,627 views  Apr 5, 2022       
+https://www.youtube.com/watch?v=aQdoUUi3iJ8        
+
+Take a look at my hot immigrant girlfriend.   
+I'm a winner, I'm a sinner, do you want my autograph?    
+I'm a loser, what a Joker, I'm playing my jokes upon you....   
+Carol has nothing better to do but to play with her penned playmate....    
+
+Hope it is going to *come true*, but there is not a lot I can do....    
+Could we have Omelet's for breakfast? OPERA_A https://youtu.be/squl14tighM?t=889 [Diner](https://old.reddit.com/r/AskAnAmerican/comments/1eyl3cx/dear_americans_do_you_ever_refer_to_a_coffee_shop/) or cafe? 2,567 views February 21, 2020      
