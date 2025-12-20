@@ -142,3 +142,34 @@ https://www.youtube.com/watch?v=BJ8S_u1RhS4
 
 joins with 'The Show" song of puppeteer hive mind (already in this GitHub?)  
 
+&nbsp;
+
+&nbsp;
+
+# Helen was the Kingpin publisher
+
+Helen's post-doctorate ++ thesis at Minute 22 over Walter White's Gravesite. 
+
+https://youtu.be/0ulxDCNaKxk?list=PLfGibfZATlGq3vBSxcoTQGwlU7GO31m3L&t=65
+
+When was Helen born? 1965? 
+
+There was nothing that I could do, so I pointed my car... 
+
+"I was singing this song when Helen came alive" / Tim / Helen's Fall at the Public House.
+
+It was 48 hours until Helen came around... Bring back the Boston book publishing printing. You gotta Bring Helen on home.
+
+Helen is the kingpin inside the hive mind to knock down / knock out (EMP / New Mexico Manhattan Steely Dandom Atomic Projects). The king piece of chess inside the hive mind that has built the fandom and bitter implosion trigger metaephors abound.
+
+
+&nbsp;
+
+&nbsp;
+
+# Vegas, Been Here Before, Gold Teeth
+
+Throw out your gold teeth I and II    
+Man in Vegas, West Gate Hotel    
+
+
