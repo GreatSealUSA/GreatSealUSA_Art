@@ -17,6 +17,10 @@ CAMPBELL: He, the eye, what is represented by the eye. Reason. **In Latin you wo
 
 &nbsp;
 
+* OPERA_A: video... "Within the limits of British decency". Pluribus, Lyrics: "I am **he** as you are **he**, as you are me and **we are all** together" - year 1967 - crying https://www.youtube.com/watch?v=Og-yjQGzIS8 - Carol authors John 1:1, in the beginning the egg womb was fertilized. Carol can wrote John 1:1 or Paul or Ringo Star. We The People originate the hive mind "God" above. Him / He / I am Him / We are He or She.
+
+&nbsp;
+
 # Episode One "We is Us"
 
 Pronoun shift, "We is Us", Pluribus.
