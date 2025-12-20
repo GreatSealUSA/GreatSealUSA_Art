@@ -31,11 +31,19 @@ She is my wife, we are married, we are intimate, we want to have children one da
 
 # Episode Eight
 
-Episode Eight had graphic graphic scenes of sexual attraction between women and full kissing on the lips.
+Episode Eight had graphic explicit scenes of sexual attraction between women and full kissing on the lips. Episode Eight 42 minutes near 43 minutes.
 
-This is a core concern in Christian Bible USA society. Not allowing homosexual sexual relationships. Not on television, not on Apple iPhone, not on Apple iPad, not for any children to see Pluribus TV from Apple.
+&nbsp;
 
-The Apple Tree of Knowledge of depicting "we" joining, *the joining*, of two women at the lips and kissing.
+<img width="2276" height="1223" alt="image" src="https://github.com/user-attachments/assets/f3e81ab0-d347-4c50-92da-9b1b42b98d1c" />
+
+&nbsp;
+
+Outlawing and punishing this freedom of choice is a core concern in Christian Bible USA society. Levant science fiction trilogy fandom (Torah, Bible, Quran, Book of Mormon, etc). Not allowing homosexual sexual relationships. Not on television, not on Apple iPhone, not on Apple iPad, not for any children to see Pluribus TV from Apple.
+
+* CONTEXT ASSERTION: Minute Twenty Two of Episode One of Pluribus. After presenting her post-doctorate thesis to Carol about James Joyce's book Finnegans Wake, carol steps outside at the zero hour. She is touching a social media touch device on a USA touchy subject of transgender Pirate Lady / Pirate Man character shipping. Virtue signaling true story from profit-seeking and disclosing to the audience the inspiration and marriage details of the writers. Touching the third rail of social media society on a lit touch device - that is when Helen falls and ultimately dies on top of Walter White's grave site.
+
+The Apple Tree of Knowledge of depicting "we" joining, *the joining*, of two women at the lips and kissing. Romance gender topics of profit-seeking romance book publishing. 
 
 Forbidden images of love, forbidden gender joining depictions, forbidden thoughts, forbidden desires.
 
