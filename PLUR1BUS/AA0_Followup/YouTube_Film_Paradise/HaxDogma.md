@@ -10,5 +10,6 @@ https://youtu.be/0-LALpiaSeo?t=252
 
 https://youtu.be/0-LALpiaSeo?t=498
 
-
-https://youtu.be/0-LALpiaSeo?t=598   
+TCP/IP UDP / Multicast     
+https://youtu.be/0-LALpiaSeo?t=598      
+[My previous thoughts on this in first episodes](../../World_Wide_Mind/WWW_Multicast_IP.md)    
