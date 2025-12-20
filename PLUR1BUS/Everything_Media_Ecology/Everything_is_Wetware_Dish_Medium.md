@@ -22,5 +22,7 @@ The audience of the Minute 22 Episode One, Walter White's grave site of the best
 
 Software / Wetware / Transgender Harry Potter author magic / Carol Pirate Transgender author magic / book touring / The Grand Tour of books at ~~Kepler 22~~ Minute 22 Episode One, Finn's Hotel year 1923 Dublin check-in validations.
 
-Helen's **post-doctorate thesis in the Public House**, a shared smoke, Lady Liberty / Torches of Freedom at the Zero Hour.
+Helen's **post-doctorate thesis in the Public House**, a shared smoke, Lady Liberty / Torches of [Freedoms](https://en.wikipedia.org/wiki/Torches_of_Freedom) at the *Zero* Hour. Heating up beds of ice with the police state northern lights above. ALP Livin' melting Plurabelle Liffey flowing... washing away ABQ grave grounds.
+
+<img width="2276" height="1223" alt="image" src="https://github.com/user-attachments/assets/f3e81ab0-d347-4c50-92da-9b1b42b98d1c" />
 
