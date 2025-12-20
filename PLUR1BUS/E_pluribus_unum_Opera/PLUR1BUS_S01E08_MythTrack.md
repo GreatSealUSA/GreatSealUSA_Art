@@ -217,3 +217,14 @@ Seducing Fandom with Chapter One sleeping with the enemy.
 Too many fans have drifted / "New World Order" driftwood out to Pirated seas.        
 Just a compromise of the things humans do for love.   
 
+&nbsp;
+
+&nbsp;
+
+# Track: Tortured biological directives 
+
+Scene of the explosive devices, crimes against humanity.
+
+"Torture" by The Cure, 1987 album Kiss Me, Kiss Me, Kiss Me
+
+Episode 8, boozing up Carol is tortured by the rebuilding of her Pirate Lady origins settings.
