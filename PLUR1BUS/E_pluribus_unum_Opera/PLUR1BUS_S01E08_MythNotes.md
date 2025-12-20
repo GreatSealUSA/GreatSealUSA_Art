@@ -404,6 +404,8 @@ This is another rephrasing, in the Joyce way of the Wake waves, of Carol's dry {
 
 * ToDo: <img width="2296" height="768" alt="image" src="https://github.com/user-attachments/assets/b69790a3-0e85-47f5-a504-323e9d747199" /> "Chrysalis Effect: The Metamorphosis of Global Culture" "This book shows that the chaos and conflict experienced world-wide today are the result of a global cultural metamorphosis."
 
+* ToDo;  The "dryness" might imply a more intellectual or less emotional style compared to her popular work. Or pirate water wetness, super EMP emotional that is a depth charge from WITHIN the hivemind as opposed to her EMP bullying pushing street fighting with Pirate Lady first EMP of the global mental network. Wetware / wetworks / lesbian dialog intercourse gender transition of "Pirate Lady".
+
 &nbsp;
 
 &nbsp;
