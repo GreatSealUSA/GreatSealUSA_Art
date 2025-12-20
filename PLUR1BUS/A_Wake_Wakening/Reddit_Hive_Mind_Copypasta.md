@@ -154,3 +154,4 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 60. Fog Horn / Pirate Ships / without yet horns - having to hell. Grace O'Malley: "her "fog horn tech" was a combination of simple acoustic signals and expert, experience-based seamanship, not the mechanical devices that would emerge centuries later."
 
+61. "Wet my beak", drinking, wet nurse / wet drunk / dry drunk / lesbian "getting wet", "getting stoked / soaked", foreplay . OPERA_A Carol's hookup Episode 8 and Helen dead in the back yard drying out in New Mexico climate. Carol boozes to mask her gestures / body language / motor skills when seducing / being-seduced Pirate Lady in Episode Eight. Bottle of booze. Foreplay drinking. https://www.youtube.com/watch?v=TnwqUEelQjE Boston, Singsong ALP Pluribus. 
