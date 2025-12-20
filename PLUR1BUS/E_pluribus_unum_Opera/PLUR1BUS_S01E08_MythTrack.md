@@ -173,7 +173,7 @@ Booze me, bomb me, hospitalize me, handcuff me, drug me with truth, wine me, din
 133,889,495 views October 26, 2009     
 https://www.youtube.com/watch?v=s__rX_WL100       
 
-Carol has one genetic RNA key that nobody else has, Double Helix in the Sky, [throw out the Steam Powered](https://old.reddit.com/r/SteelyDan/comments/1hn1g11/two_questions_about_aja/) Naked Lunch *book* hardware. OPERA_A Here on the Pirate Dude Ranch above the oceans https://www.youtube.com/watch?v=CYZwVf07tHA 4,030,225 views July 30, 2018
+Carol has one genetic RNA key that nobody else has, Double Helix in the Sky, [throw out the Steam Powered](https://old.reddit.com/r/SteelyDan/comments/1hn1g11/two_questions_about_aja/) Naked Lunch [*book* hardware](https://www.goodreads.com/work/quotes/1190489-the-mechanical-bride-folklore-of-industrial-man). OPERA_A Here on the Pirate Dude Ranch above the oceans https://www.youtube.com/watch?v=CYZwVf07tHA 4,030,225 views July 30, 2018
 
 &nbsp;
 
