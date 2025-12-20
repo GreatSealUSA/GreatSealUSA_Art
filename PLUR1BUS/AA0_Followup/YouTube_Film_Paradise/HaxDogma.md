@@ -9,3 +9,6 @@ https://youtu.be/0-LALpiaSeo?t=252
 
 
 https://youtu.be/0-LALpiaSeo?t=498
+
+
+https://youtu.be/0-LALpiaSeo?t=598   
