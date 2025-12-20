@@ -202,3 +202,18 @@ Hope it is going to *come true*, but there is not a lot I can do....
 Could we have Omelet's for breakfast? OPERA_A https://youtu.be/squl14tighM?t=889     /!\     [Diner](https://old.reddit.com/r/AskAnAmerican/comments/1eyl3cx/dear_americans_do_you_ever_refer_to_a_coffee_shop/) or cafe? 2,567 views February 21, 2020      
 
 Super Tramp, Ultra Tramp, hive mind tramps.
+
+&nbsp;
+
+# Track: Seductive things we do for Love 
+
+https://www.youtube.com/watch?v=P0rf3_viTxk       
+5,043,748 views July 21, 2017    
+
+Feeling like a part of you, Helen died, you think... 
+
+Seducing Carol with rebuilt Origins of Pirate Lady.    
+Seducing Fandom with Chapter One sleeping with the enemy.    
+Too many fans have drifted / "New World Order" driftwood out to Pirated seas.        
+Just a compromise of the things humans do for love.   
+
