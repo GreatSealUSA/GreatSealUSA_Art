@@ -14,7 +14,7 @@ Google Search summary 2025-12-20 morning USA
 
 2. Making Out in front of Hive Mind and Audience Camera, Episode Eight
 
-3. Kiss and Tell information intimacy of dining and cooking
+3. Kiss and Tell information intimacy of dining and cooking. Getting [*the dish*](https://old.reddit.com/r/EnglishLearning/comments/11p84y1/come_on_dish/) in the New Mexico states. Carol's window view story authoring and character Lady interaction. ["But yours was kitchen-clean"](https://www.youtube.com/watch?v=d8ZpjLSbTjU)
 
 4. Cooking the books, shipping relationships of audience fandom.
 
