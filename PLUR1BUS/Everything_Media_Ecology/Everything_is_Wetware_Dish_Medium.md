@@ -26,3 +26,8 @@ Helen's **post-doctorate thesis in the Public House**, a shared smoke, Lady Libe
 
 <img width="2276" height="1223" alt="image" src="https://github.com/user-attachments/assets/f3e81ab0-d347-4c50-92da-9b1b42b98d1c" />
 
+&nbsp;
+
+&nbsp;
+
+ToDo: Pluribus for Age 13 and *above us all* [Littles](/Pluribus_For_Littles) ... highly recommended learning of inner reaches of outer space metaphors and Great Seal USA goodness: [](https://www.youtube.com/watch?v=8dyGpXcQl-g) 74,230 views October 21, 2014. The Dish (Y2K) Official Trailer
