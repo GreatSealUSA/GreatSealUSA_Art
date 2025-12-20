@@ -367,6 +367,11 @@ Poland.
 
 5. More on the hive mind killing off egoism / egomania / misunderstandings through page 3 Finnegans Wake language thunders. Babel tower warfare ended. Killing off humanity again does not end all other evolution of life on Earth. The real issue is wetware vs. hardware (RNA) vs. software vs. firmware (monomyth hacking Carol is doing). SLOW MOTION.
 
+
+6. Washing dishes / sinkside Carol. Filling mixed drinks / serving tray. Annie serves Tim Finnegan's body; Washing dishes in the sink and kitchen cleaning. "famous washerwomen scene (Book I, Chapter 8), two gossiping figures by the River Liffey whose dialogue about ALP (Anna Livia Plurabelle) and HCE (Humphrey Chimpden Earwicker) mimics the flow of the river, discussing family scandals while washing clothes, blurring the lines between gossip, myth, and the watery, cyclical nature of history itself" - Google Search summary 2025-12-20 midday USA <img width="2380" height="948" alt="image" src="https://github.com/user-attachments/assets/7a5bc39b-472a-491e-a5da-c94e81e52c46" />
+
+&nbsp;
+
 &nbsp;
 
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
