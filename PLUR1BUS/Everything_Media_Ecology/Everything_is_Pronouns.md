@@ -39,6 +39,8 @@ Episode Eight had graphic explicit scenes of sexual attraction between women and
 
 &nbsp;
 
+* OPERA_A: video... "Within the limits of British decency". Pluribus, Lyrics: "I am he as you are he, as you are me and **we are all** together" - year 1967 - crying https://www.youtube.com/watch?v=Og-yjQGzIS8
+
 Outlawing and punishing this freedom of choice is a core concern in Christian Bible USA society. Levant science fiction trilogy fandom (Torah, Bible, Quran, Book of Mormon, etc). Not allowing homosexual sexual relationships. Not on television, not on Apple iPhone, not on Apple iPad, not for any children to see Pluribus TV from Apple.
 
 * CONTEXT ASSERTION: Minute Twenty Two of Episode One of Pluribus. After presenting her post-doctorate thesis to Carol about James Joyce's book Finnegans Wake, carol steps outside at the zero hour. She is touching a social media touch device on a USA touchy subject of transgender Pirate Lady / Pirate Man character shipping. Virtue signaling true story from profit-seeking and disclosing to the audience the inspiration and marriage details of the writers. Touching the third rail of social media society on a lit touch device - that is when Helen falls and ultimately dies on top of Walter White's grave site.
@@ -54,6 +56,8 @@ Forbidden images of love, forbidden gender joining depictions, forbidden thought
 You will be Judged by Him. He is the father above in outer space. the male father in his male role rules over Judgement Day. These are the values in the USA.
 
 Except they are *not* the values of the Great Seal. Jesus is not mentioned in the Constitution, the Decleration of Independence, or the Free Mason Great Seal of the United States of America.
+
+&nbsp;
 
 # Title of this page: Everything is Pronouns
 
