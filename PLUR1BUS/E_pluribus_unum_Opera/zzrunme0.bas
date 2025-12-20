@@ -1,4 +1,4 @@
-0 REM for commodore 64
+0 REM for Commodore 64
 1 POKE 53272,22 : REM set character set to lowercase letters
 10 PRINT "Finnegans Wake Page 3"
 581 REM HELLO WORLD!, HELLO MONOMYTH!; I SAW! I AM SORRY TO SAY I SAW!!!
