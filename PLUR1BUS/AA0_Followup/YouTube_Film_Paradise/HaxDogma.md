@@ -7,3 +7,5 @@ https://www.youtube.com/watch?v=0-LALpiaSeo
 
 https://youtu.be/0-LALpiaSeo?t=252
 
+
+https://youtu.be/0-LALpiaSeo?t=498
