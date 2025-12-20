@@ -39,6 +39,8 @@ listening to each other" - Vince Gilligan. February 15, 2025 afternoon USA
 
 * "Eternal September or the September that never ended was a **cultural phenomenon during a period beginning around late 1993** and early 1994, when Internet service providers began offering Usenet access to many new users" https://en.wikipedia.org/wiki/Eternal_September
 
+* Also 1993: "In the world of Baudrillard **social relations have disappeared between humans**, because humans have begun to disappear. In fact Baudrillard thinks that reality itself is in the process of disappearing." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
 Usenet is Social Media. The Fall of education and self-awareness of the { Neil Postman, Marshall McLUhan } hive mind media ecology woke / wake literacy. The Original Sin of Romans 11:32 F.A.Q. R.T.F.M. abandonment off those binary trees of passed-down knowledge and comprehension of ecological media peering. Not what we had with [Quantum](http://www.concentric-literature.url.tw/issues/Idealism/7.pdf) Link precursor brand generation / CompuServe commercial, the America On-Line [saturation of media medium](https://americanhistory.si.edu/collections/object/nmah_1395721). 
 
 &nbsp;
