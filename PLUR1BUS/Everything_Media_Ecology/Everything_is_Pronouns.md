@@ -75,7 +75,9 @@ This invokes a conversation and teachings about the word "Pluribus" about the me
 
 Yes, men, "fathers", who came from Bible Torah Quran. But these men cross an ocean. These men met native american people who had never heard of "Jesus Chirst" or Enlgish language or writing.
 
-Manhattan New York isn't just a made-up word, it is the Manhattan tribe of people who lived before English or THE Bible ever TOUCHED NORTH America.
+Manhattan New York isn't just a made-up word, it is the Manhattan tribe of people who lived before English or THE Bible ever TOUCHED NORTH America. https://en.wikipedia.org/wiki/Lenape
+
+&nbsp;
 
 # Buffalo Buffalo Buffalo 
 
