@@ -349,5 +349,15 @@ Poland.
 
 * Cold war metaphors abound: "the period immediately following the revolutions of 1989, specifically the time around the partially free elections in June 1989 and the formation of the first non-communist government in September" USSR / Soviet Union. World War Two hive mind wars, 40 years of heavy-handed dictation to Poland. Iron Curtain.
 
+&nbsp;
+
+&nbsp;
+
+# Unplaced
+
+1. Never eaten an egg before. Minute 22 Helen's post-doctorate thesis. Finn's Hotel year 1923. https://youtu.be/squl14tighM?t=1383 something fundamental in Carol has changed. Pirate Lady mind games forever, earlier in the day she was manipulated over a meal, fast breaking after boozing nights. Grace O'Malley (Gráinne Ní Mháille) and Molly Malone - Pirate Ladies of Love / Chemical Romance Bloomy days.
+
+
+
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
  
