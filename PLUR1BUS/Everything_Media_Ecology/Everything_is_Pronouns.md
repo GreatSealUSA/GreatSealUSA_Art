@@ -144,3 +144,22 @@ The right’s refrain on pronoun use is parental authority and freedom from comp
 Texas Governor Greg Abbott, a Republican, turned that into marching orders, demanding the state investigate Bellaire High and urging a ban on "transitioning" students by using new names and pronouns. "No parent should have to endure this," he wrote.
 
 ::: ==============================
+
+&nbsp;
+
+# Season One Pluribus Christmas Day
+
+I think it can not possibly be over-stated that we have a crisis in USA.
+
+Democracy does not work without compassion and love.    
+Democracy does not work when hate is prized.   
+"Hate thy enemy" destroys a democracy. Enemy seeking hate seeking.    
+"Hate thy neighbor" destroys a democracy. Prizing of hate.    
+
+Christmas Day 2025, what's the point when We The People made social media society a cesspool of hate and dehumanization. Anti-love, anti-compassion, anti-goodness. The Bible is a science fiction story like Hamlet from William Shakespeare is science fiction with "Force Ghost" character, Hamlet's Ghost. Cherry picking is fine, but why is it hat Bible fandom in North America is nut-picking and not cherry-picking verses { Matthew 22:39, Matthew 5:44 } in year 2025 and going into 250 years July 4, 2026? Why are *We is Us* Pluribus people prizing hate when they cherry-pick from the Levant science fiction trilogy in year 2025? Is hate supposed to be fun and enjoyable?
+
+Democracy does not work without compassion and love.    
+
+OPERA_A Note the Christmas tree images, Season One date. Could mean the World's Diaster: https://www.youtube.com/watch?v=4YLDydokJ_s (Stevie Wonder with Take 6 - Love's in Need of Love Today (from "America: A Tribute to Heroes")), 978,487 views  September 13, 2011
+
+Democracy does not work without compassion and love.    
