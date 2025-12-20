@@ -103,6 +103,12 @@ Vince Gilligan mentioned "Darth Vader" by name. The Father, the man, the pronoun
 
 # Crisis U.S.A. Buffalo 
 
+Google Search 2025-12-20 early morning USA:     
+
+<img width="2176" height="762" alt="image" src="https://github.com/user-attachments/assets/ee74260c-4a65-4f96-8a1e-5edb99d4dcc0" />
+
+&nbsp;
+
 Newsweek       
 https://www.NewsWeek.com/trans-surgery-rfk-pronouns-11240068     
 https://www.smry.ai/proxy?url=https%3A%2F%2Fwww.newsweek.com%2Ftrans-surgery-rfk-pronouns-11240068   
@@ -111,7 +117,7 @@ Saturday December 19, 2025
 Pluribus Episode Eight with the lesbian kissing and Buffalo dialog   
 Pluribus Episode Eight Friday, December 18, 2025   
 
-"On Day One of his second term, President Donald Trump ordered the federal bureaucracy to "recognize two sexes," which quickly translated'
+"On Day One of his second term, President Donald Trump ordered the federal bureaucracy to "recognize two sexes," which quickly translated into memos telling staff to strip pronouns from signatures; the Equal Employment Opportunity Commission even bragged about deleting its internal Microsoft 365 pronoun feature. The Air Force briefly banned pronouns outright—then reversed itself when lawyers waved the 2024 National Defense Authorization Act, which bars the Pentagon from either requiring or banning pronouns in official correspondence. Inside the same government, pronouns were, within weeks, both prohibited and protected."
 
 Content ::: ======================
 
