@@ -357,7 +357,7 @@ Poland.
 
 1. Never eaten an egg before. Minute 22 Helen's post-doctorate thesis. Finn's Hotel year 1923. https://youtu.be/squl14tighM?t=1383 something fundamental in Carol has changed. Pirate Lady mind games forever, earlier in the day she was manipulated over a meal, fast breaking after boozing nights. Grace O'Malley (Gráinne Ní Mháille) and Molly Malone - Pirate Ladies of Love / Chemical Romance Bloomy days.
 
-
+2. Second coming of RNA to impregnate ice eggs on December 25 episode. https://youtu.be/squl14tighM?t=1535 - the viral repeater stations of K-22B / Minute 22 countdown / screen countdowns / Episode One Zero Hour. The orgasm second of fertility of stem cells.
 
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
  
