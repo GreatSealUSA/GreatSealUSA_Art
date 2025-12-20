@@ -183,7 +183,7 @@ https://www.youtube.com/watch?v=zGl4PP9xaaQ
 https://www.youtube.com/watch?v=aQdoUUi3iJ8        
 
 Take a look at my hot immigrant girlfriend.   
-I'm a winner, I'm a sinner, do you want my autograph?    
+I'm a winner, I'm a sinner, do you want my book fandom autograph?    
 I'm a loser, what a Joker, I'm playing my jokes upon you....   
 Carol has nothing better to do but to play with her penned playmate....    
 
