@@ -374,6 +374,44 @@ Poland.
 
 &nbsp;
 
+&nbsp;
+
+# Carol Powder Dry 
+
+Her unpublished Bitter Awakening book that Helen skipped chapters of.
+
+"Use they not, our noesmall termtraders, to abhors offrom    
+him, the yet unregendered thunderslog, whose sbrogue cunneth    
+none lordmade undersiding, how betwixt wifely rule and mens    
+conscia recti, then hemale man all unbracing to omniwomen, but    
+now shedropping his hitches like any maidavale oppersite orse-   
+riders in an idinhole?"    
+https://www.finnegansweb.com/wiki/index.php/Page_581   
+
+Pirate Lady Trans-gender here in Episode Eight with virgin chapter one, new volume.   
+
+Google Search summary, 2025-12-20 midday USA     
+
+<img width="2386" height="1044" alt="image" src="https://github.com/user-attachments/assets/a7220da5-bd7d-4962-8b71-97826c24dd2e" />
+
+ASSERTIONS! Author opening, book tour, book store. Pirate Lady bits story Chapter 1 bits.
+
+"Literary Usage: The word appears as "unregendered" in James Joyce's experimental novel Finnegans Wake, a work known for its complex wordplay and invented words. In that specific context, it is used with "ungendered" in a passage related to fluid identity and the merging of male and female forms, making its meaning specific to the book's themes."
+
+### >>> "Bitter Unregendered" <<<
+
+This is another rephrasing, in the Joyce way of the Wake waves, of Carol's dry power. Unknown work to the hive mind. Depth charges to what Helen skipped in her reading. Back to the Minute 22 post-doctorate thesis concerning the go-signaling of finish-off "Bitter Chrysalis" book. "Bitter Chrysalis" === "Bitter Unregendered" awaking of a pupa stage / closeted veiled metaphors of coming out / rebirth / womb second time around page 628 recirculation ocean fluids of the wombs. "how betwixt wifely rule" ;) One's spouse post-doc thesis rules! OPERA_A Step 1, Rules! https://www.youtube.com/watch?v=OG86foO9Pp4 Matthew 4:19 rules of trolling cesspools February 15, 2025
+
+* ToDo: <img width="2296" height="768" alt="image" src="https://github.com/user-attachments/assets/b69790a3-0e85-47f5-a504-323e9d747199" /> "Chrysalis Effect: The Metamorphosis of Global Culture" "This book shows that the chaos and conflict experienced world-wide today are the result of a global cultural metamorphosis."
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
  
 ToDo: pressure Billy Joel... "I'll tell you what it means"... don't ask for help, Carol is all alone, until someone shows up at the very end, ABQ arrival. Cosmic rational from Kepler 22B.
