@@ -166,6 +166,17 @@ Stand up with Romans 11:32 against Locomotive Breath! www.Romans1132.org 1132 in
 
 &nbsp;
 
+# Track: Lesbian hive mind encounters
+
+Booze me, bomb me, hospitalize me, handcuff me, drug me with truth, wine me, diner me, 69 me 
+
+133,889,495 views October 26, 2009     
+https://www.youtube.com/watch?v=s__rX_WL100       
+
+Carol has one genetic RNA key that nobody else has, Double Helix in the Sky, [throw out the Steam Powered](https://old.reddit.com/r/SteelyDan/comments/1hn1g11/two_questions_about_aja/) Naked Lunch *book* hardware. OPERA_A Here on the Pirate Dude Ranch above the oceans https://www.youtube.com/watch?v=CYZwVf07tHA 4,030,225 views July 30, 2018
+
+&nbsp;
+
 # Track: Image going down down - America
 
 Pirate Lady author never did give nothing to the Tin Woman. That she didn't already have.
@@ -189,3 +200,5 @@ Carol has nothing better to do but to play with her penned playmate....
 
 Hope it is going to *come true*, but there is not a lot I can do....    
 Could we have Omelet's for breakfast? OPERA_A https://youtu.be/squl14tighM?t=889     /!\     [Diner](https://old.reddit.com/r/AskAnAmerican/comments/1eyl3cx/dear_americans_do_you_ever_refer_to_a_coffee_shop/) or cafe? 2,567 views February 21, 2020      
+
+Super Tramp, Ultra Tramp, hive mind tramps.
