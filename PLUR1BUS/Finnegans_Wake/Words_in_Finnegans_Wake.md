@@ -32,3 +32,48 @@ Keavn! Keavn! And they all setton voicies about singsing music was Keavn! He. On
 
 Saw "w. w. (w" drew my attention. Alcohol Carol water of life.
 
+&nbsp;
+
+"all them fourlegged ems—and why spell dear god with a big thick dhee (why, O why, O why?)—the cut and dry aks and wise form of the semifinal: and, eighteenthly or twentyfourthly, but at least, thank Maurice, lastly when all is zed and done, the penelopean patience of its last paraphe, a colophon of no fewer than seven hundred and thirtytwo strokes tailed by a leaping lasso—who thus at all this marvelling but will press on hotly to see the vaulting feminine libido of those interbranching ogham sex upandinsweeps sternly controlled and easily repersuaded by the uniform matteroffactness of a meandering male fist?"
+
+Was looking for "why" patterns, anything near "why carol". **"wycaro"**. Interesting bits about female sex drive in there.
+
+&nbsp;
+
+ Sulch oxtrabeeforeness meat soveal behind.    
+ Your feats end enormous, your volumes immense     
+ (May the Graces I hoped for sing Your Ondtship song sense!),    
+ Your genus its worldwide, your spacest sublime!      
+ But, Holy Saltmartin, why can’t you beat time?     
+    
+1. countdown countup timers to beat
+2. it's world wide hive mind / virus spread
+3. spacest RNA / Kepler 22
+4. ::: St. Martin of Tours, often associated with charity and the transition into winter (Martinmas) :::
+
+&nbsp;
+
+River run ABQ / New Mexico
+
+1. ::: "Rio Grande" itself mixes Spanish ("Rio") with English ("Grande"), fitting the novel's polyglot nature. :::
+
+2. Rio Grande USA is known in Mexico as Río Bravo
+
+3. ::: "Bravo": In Joyce's time, meant a bold or villainous person (like a mercenary), connecting to adventure and danger. ::: (Radio Shack Storage Unit man crossing)
+
+4. ::: "Doublends Jined": Joyce's portmanteau for words with multiple meanings, here merging river names and heroic/villainous terms. ::: - but also Islamic جِنّ Jinn / Helen's Ghost / Force Ghost / Hamlet's Ghost. Also Carol's boozing, ginned up (and don't forget the Jin Carol producer of the show ginning up he fiction Carol). Double-fisting gin.
+
+5. ::: "Doublends Jined" (or "Doublends Jined") is a phrase from James Joyce's notoriously complex final novel, Finnegans Wake, referring to the book itself as a collection of "doubled ends joined" or connected, reflecting its circular, pun-filled, dream-like language and themes of history, family ::: Dublin ends.
+
+&nbsp;
+
+Misc ABQ
+
+"A musical group named Finnegans Wake released an album titled 4th, which features a guest musician named Enéas Albuquerque."
+
+"Dedicated members took turns hosting, and we even made occasional trips to Albuquerque, where Elaine had relocated to be with her daughter. By 2008, Elaine’s health was such that she could no longer travel to Santa Fe, so she started her own reading groups in Albuquerque – one for Finnegans Wake, and one for Joyce’s other works. With our de facto leader now bowing out, the Santa Fe group underwent something of a schism – Tamar Stieber wanted to return to the round-robin-read-out-loud approach, and I wanted to slow the pace down even more. We agreed to split, and both reading groups are alive and well to this day." - November 19, 2014 https://joycegeek.com/2014/11/19/16-years-of-joycegroup-geekery/
+
+Albuquerque means "white oak," deriving from the Latin albus (white) and quercus (oak), referring to oak trees common in the Spanish town of Alburquerque, from which the name originates. The New Mexico city was named for the Duke of Alburquerque, but the name evolved from Alburquerque to Albuquerque, with the first "r" dropping over time, and it's nicknamed "The Duke City". 
+
+"in the wood they trembold, humbild, when they heard the stop-; press from domday's erewold. Tiss! Two pretty mistletots ribboned to a tree, up rose liberator”" (Christmas Carol Episode Nine date themes)
+
