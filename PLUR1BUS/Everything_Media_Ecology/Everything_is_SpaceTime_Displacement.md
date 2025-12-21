@@ -11,7 +11,9 @@ Episode Eight
 
 &nbsp;
 
-PLUR1BUS Apple TV+ show. 8 minutes into Episode Eight. **Henry** playing cards [with us](https://en.wikipedia.org/wiki/We_Is_Us), Carol? Hello, Carol?
+PLUR1BUS Apple TV+ show. 8 minutes into Episode Eight. **Henry** playing cards [with us](https://en.wikipedia.org/wiki/We_Is_Us), Carol? Hello, Carol? Christmas year 2005 calling to Christmas 2025 Episode Nine dinner gatherings.
+
+&nbsp;
 
 The time displacement of Rick Roderick's 1990 lecture: "an immense distance that has been travelled by human subjectivity"
 
