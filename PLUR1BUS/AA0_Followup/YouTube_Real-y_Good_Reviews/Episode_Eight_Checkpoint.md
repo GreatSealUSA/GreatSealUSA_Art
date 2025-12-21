@@ -85,3 +85,8 @@ https://youtu.be/adwPagIKZKA?t=643
 Carol is washing dishes. Visual metaphor of grave site of Helen (grave side window) and Hamlet's Ghost / Helen's Ghost image on the window. Dead / undead / "Walking Dead" virus outbreak metaphors. 
 
 1. Skywalker Ranch 1988 lessons for science fiction fandoms of middle aged women: "The problem in **middle life**, when the body has reached its climax of power and begins to decline, is to identify yourself not with the **body, which is falling away, but with the consciousness** of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?" OPERA_A What am I? Who are you? https://www.youtube.com/watch?v=e6x4J2GEIHA "Don't lose who you are In the blur of the stars" (Kepler / Great Seal *stars above* the Eagle) Sometimes it's hard To follow your heart. Tears don't mean you're losing" 7,979,879 views October 21, 2014
+
+2. Bookends. Helen was zapped by the virus from the sky like lightning when standing on Walter White's grave site. Book tour, book arranger (Airport), book promoter who delivered the post-doctorate thesis of a lifetime at the Zero Hour. Finn's Hotel 1923 checkout / checkin. Funeral Wakes.
+
+&nbsp;
+
