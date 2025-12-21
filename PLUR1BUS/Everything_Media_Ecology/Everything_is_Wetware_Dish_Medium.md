@@ -30,6 +30,21 @@ Helen's **post-doctorate thesis in the Public House**, a shared smoke, Lady Libe
 
 &nbsp;
 
+# Pirate See Men
+
+The gender fluids that Carol lacks, the fluidity of Pirate Lady / Pirate Man transgender acceptance. Galatians 3:28 gender binary declarations, [under-sea salvage](https://en.wikipedia.org/wiki/Diary_of_Merer) operations? World War Two fighting in North Africa and some bros in Egypt [backyard digging](https://en.wikipedia.org/wiki/Gospel_of_Thomas)? What unearthed about Carol is so damn special about her RNA / stem cell signaling?
+
+Has Carol ever touched [sea men](https://www.youtube.com/watch?v=s__rX_WL100) as she pens her piracy tales from landlocked ABQ? Has Carol jumped off the high seas?
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 ToDo: Pluribus for [Age 13](https://www.youtube.com/watch?v=DL7-CKirWZE) and *above us all* [Littles](/Pluribus_For_Littles) ... highly recommended learning of inner reaches of outer space metaphors and Great Seal USA goodness: [Get *The Dish* on USA Hardware sharing down under the Southern Cross](https://www.youtube.com/watch?v=8dyGpXcQl-g) 74,230 views October 21, 2014. The Dish (Y2K) Official Trailer OPERA_A https://www.youtube.com/watch?v=Bw9gLjEGJrw 21,025,103 views July 15, 2010
 
 ToDo: Hall and Oats (sowing oats, hall and staircase - annihilation SciFi staircase scene) - lyrics about how body chemistry can tell it hive mind lies, libedo (wet ice bed melting) over credo statements of virtues of Carol's "always tell truth" observations (Campbell, 1988) - Private Eye (Great Seal USA pyramid 13 Eye). Episode 8 MythTrack OPERA_A https://www.youtube.com/watch?v=JsntlJZ9h1U 38,219,383 views April 20, 2015
