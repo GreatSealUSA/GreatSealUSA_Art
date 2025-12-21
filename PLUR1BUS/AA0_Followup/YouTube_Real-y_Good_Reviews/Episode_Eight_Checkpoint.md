@@ -117,6 +117,14 @@ https://youtu.be/adwPagIKZKA?t=1075
 
 If believing the story, "Pluribus" delusion ( wordchoice: illusion / collusions ) is worth it. Isn't that the most human thing you have ever heard?
 
-1. "Survival is the second law of life. The first is that we are all one."
-A Joseph Campbell Companion: Reflections on the Art of Living, page 37 (First rule: Pluribus) 
+1. "Survival is the second law of life. The first is that we are all one." - A Joseph Campbell Companion: Reflections on the Art of Living, page 37 (First rule: Pluribus)
 
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=1239
+
+Next episode, the Christmas Day ultimatum.
+
+The child born again, choice. 
+
+1. Sophie's choice refers to an extremely difficult decision a person has to make. It describes a situation where no outcome is preferable over the other. Sophia { Matthew 11:19 / Proverbs 3:5-6 / Deuteronomy 30:19 } Bible Birthday episode paths.
