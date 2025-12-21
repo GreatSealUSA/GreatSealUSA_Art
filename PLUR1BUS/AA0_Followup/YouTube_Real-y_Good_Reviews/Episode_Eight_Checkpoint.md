@@ -38,5 +38,11 @@ https://youtu.be/adwPagIKZKA?t=164
    * “Survival is the second law of life.  The first is that we are all one.” (Pluribus USA Founding Fathers realization of encounter with native Americans and step 13)
    * “One rendition is the Sacred Marriage, the meeting with the beloved which brings the birth of your own spiritual life, with the bride being whatever the life is that you’re relating to: male/female, I/Thou, this/that.” (We / Us / "We is Us" pilot episode, trans-gender Pirate Man / Lady, Chapter One of the new book trans-gender authoring)
 
-3. “I have really found when I look around that the romantic love I see is **this ideal, the anima**. The anima is the ideal that you carry within yourself that you put onto the different entities out there and you unite with that. **Pretty soon you see through the projection**. And then what happens?” https://tttt.transistor.fm/episodes/just-one-thing-joseph-campbell
+3. “I have really found when I look around that the romantic love I see is **this ideal, the anima**. The anima is the ideal that you carry within yourself that you put onto the different entities **out there and you unite** with that. **Pretty soon you see through the projection**. And then what happens?” https://tttt.transistor.fm/episodes/just-one-thing-joseph-campbell (And We Unite, Pluribus, with that)
+
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=182
+
+Science fiction book Solaris human hive mind metaphors. Inner Reaches of Outer Space.
 
