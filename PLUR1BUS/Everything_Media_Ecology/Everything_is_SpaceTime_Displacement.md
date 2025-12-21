@@ -19,6 +19,8 @@ The time displacement of Rick Roderick's 1990 lecture: "an immense distance that
 
 1. "between Wuthering Heights and Love Story". Medium book year 1847 and { Love Story December 16, 1970 film / February 14, 1970 book }
 
+2. "and now, and movies like Heathers, Blade Runner" - 1970 Love Story... Now is 1990 video taping. Heathers was March 31, 1989. Blade Runner was June 25, 1982.
+
 &nbsp;
 
 Skywalker Ranch lessons for science fiction audiences, year 1988 published:
