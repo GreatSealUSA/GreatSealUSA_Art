@@ -48,7 +48,33 @@ Science fiction book Solaris human hive mind metaphors. Inner Reaches of Outer S
 
 https://youtu.be/adwPagIKZKA?t=217
 
-"I don't think Carol knows. I don't think *We* are supposed to know" 
+"I don't think Carol knows. I don't think *We* are supposed to know, either" 
 
 * "You have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: “Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An **intense experience of mystery is what one has to regard as the ultimate religious** [experience](/Experience_Pluribus_Project)." - Skywalker Ranch lessons for Star Wars / Science Fiction fandoms. Published year 1988.
+
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=375
+
+Like a server farm with slightly better lighting. Datacenter metaphors.
+
+"They eat people", underlines it. It doesn't work, not really.
+
+A series of dates / courtship. 
+
+When the kiss happens. Sensed the needs of one woman. 
+
+is a mercy killing a manipulative act? 
+
+https://youtu.be/adwPagIKZKA?t=513
+
+The actors won't say. Or don't know. Just as Carol doesn't know.
+
+https://youtu.be/adwPagIKZKA?t=607
+
+Superposition, "is it both", of quantum Finn's Hotel 1923 storytelling.
+
+* "The inner world is the world of your requirements and your energies and your structure and your possibilities that meets the outer world. And the outer world is the field of your incarnation. That’s where you are. You’ve got to keep both going. As Novalis said, “The seat of the soul is there where the inner and outer worlds meet.” " - Skywalker Ranch lessons for Star Wars science fiction audiences, published year 1988
+
+*  Sanskrit phrase Tat Tvam Asi ("Thou Art That"), emphasizing that the divine is not an external entity but the "inner" reality of every individual.  "When the inner eye is awakened and a revelation arises from inner space to meet impressions brought by the sense from outer space to the mind, the significance of the conjunction is lost unless the outward image opens to receive and embody the elementary idea" - The Inner Reaches of Outer Space, page 8
 
