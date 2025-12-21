@@ -32,7 +32,7 @@ Helen's **post-doctorate thesis in the Public House**, a shared smoke, Lady Libe
 
 # Pirate See Men
 
-The gender fluids that Carol lacks, the fluidity of Pirate Lady / Pirate Man transgender acceptance. Galatians 3:28 gender binary declarations, [under-sea salvage](https://en.wikipedia.org/wiki/Diary_of_Merer) operations? World War Two fighting in North Africa and some bros in Egypt [backyard digging](https://en.wikipedia.org/wiki/Gospel_of_Thomas)? What unearthed about Carol is so damn special about her RNA / stem cell signaling?
+The gender fluids that Carol lacks, the [fluidity](https://old.reddit.com/r/Christianity/comments/qjnlxo/has_anyone_elsed_noticed_that_homosexuality_is/hiszgi0/) of Pirate Lady / Pirate Man transgender acceptance. Galatians 3:28 gender binary declarations, [under-sea salvage](https://en.wikipedia.org/wiki/Diary_of_Merer) operations? World War Two fighting in North Africa and some bros in Egypt [backyard digging](https://en.wikipedia.org/wiki/Gospel_of_Thomas)? What unearthed about Carol is so damn special about her RNA / stem cell signaling?
 
 Has Carol ever touched [sea men](https://www.youtube.com/watch?v=s__rX_WL100) as she pens her piracy tales from landlocked ABQ? Has Carol jumped off the high seas?
 
