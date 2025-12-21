@@ -78,3 +78,10 @@ Superposition, "is it both", of quantum Finn's Hotel 1923 storytelling.
 
 *  Sanskrit phrase Tat Tvam Asi ("Thou Art That"), emphasizing that the divine is not an external entity but the "inner" reality of every individual.  "When the inner eye is awakened and a revelation arises from inner space to meet impressions brought by the sense from outer space to the mind, the significance of the conjunction is lost unless the outward image opens to receive and embody the elementary idea" - The Inner Reaches of Outer Space, page 8
 
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=643
+
+Carol is washing dishes. Visual metaphor of grave site of Helen (grave side window) and Hamlet's Ghost / Helen's Ghost image on the window. Dead / undead / "Walking Dead" virus outbreak metaphors. 
+
+1. Skywalker Ranch 1988 lessons for science fiction fandoms of middle aged women: "The problem in **middle life**, when the body has reached its climax of power and begins to decline, is to identify yourself not with the **body, which is falling away, but with the consciousness** of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?" OPERA_A What am I? Who are you? https://www.youtube.com/watch?v=e6x4J2GEIHA "Don't lose who you are In the blur of the stars" (Kepler / Great Seal *stars above* the Eagle) Sometimes it's hard To follow your heart. Tears don't mean you're losing" 7,979,879 views October 21, 2014
