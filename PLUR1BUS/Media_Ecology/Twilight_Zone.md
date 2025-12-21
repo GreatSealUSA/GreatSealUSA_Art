@@ -28,3 +28,6 @@ Is Pirate Lady alive, is Helen dead? Did Carol's companion, Helen, *fall* and cr
 
 "The elders refuse to share this technology, given to the town 104 years earlier by a scientist from an unknown planet, until "men learn the ways of peace." Philip rebukes them for decreeing themselves the sole people capable of using these extraterrestrial gifts responsibly, and for squandering technology that could be used to cure all illness and end hunger."       
 Sounds pretty *judgmental* of Philip against the town in New Mexico. The science fiction story Bible verse "1 John 3:17" comes to mind. What valley is in? Psalm 23:4 ? 
+
+"He becomes romantically involved with Ellen, and tries to make her realize her own lack of freedom"    
+Pirate Lady entanglement.     
