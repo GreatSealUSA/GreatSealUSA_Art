@@ -31,3 +31,6 @@ Sounds pretty *judgmental* of Philip against the town in New Mexico. The science
 
 "He becomes romantically involved with Ellen, and tries to make her realize her own lack of freedom"    
 Pirate Lady en[tangle](https://youtu.be/k0BWlvnBmIE?t=182)ment.     
+
+"He arms himself by replicating a revolver and **steals a book containing the equations**"    
+Helen has been known to rearrange books at the public airport before delivering her post-doctorate literary theory to Carol at the Zero Hour [pupa](https://en.wikipedia.org/wiki/Pupa) publish *go* [thresholdd](https://youtu.be/k0BWlvnBmIE?t=252)s.I mean, Mr. White had equations, but nothing like the ones at his grave site funeral wake.    
