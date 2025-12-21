@@ -2,7 +2,7 @@
 
 Everything Season One has been about March 25 or thereabouts.
 
-Springtime Egg Basket fertilization metaphors. Rabbit testing abounds. Walter White mad scientists, military lab rats, turkey baster injections.
+Springtime Egg Basket fertilization metaphors. March 25, rabbit [test](https://en.wikipedia.org/wiki/Testicle)ing abounds. Walter White... mad scientists, military lab rats, turkey baster payload injections.
 
 &nbsp;
 
