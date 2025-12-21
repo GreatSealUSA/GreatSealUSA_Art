@@ -46,6 +46,7 @@ Skywalker Ranch lessons for science fiction audiences, year 1988 published:
 New York, The Cooper Union     
 Joseph Campbell     
 Wednesday, March 1, 1967    
+[Audio recording](https://open.spotify.com/track/4V5lOCrpJfNDcYDO6i3S2F) transcript    
 
 To make myself clear, let me pause for a minute to say a few words about what seems to me to be the **Western idea of the individual**. I will take a few rather well known examples to illustrate the fact.
 Carl Jung in his work speaks of the integration of the personality, and uses the word **“individuation”** rather frequently.  And to make clear what he means, he points out that each one of us is, by his society, **invited to play a certain role, a certain social role** in order to function. We play roles. These roles he calls personae, from the **Latin word** for the mask worn by an actor.
