@@ -42,10 +42,19 @@ Apple QuckTime video format ".mov"
 
 The intro seemed AI in how it played to the audience. Toxic fans of Breaking Bad / Saul that the February 15, 2025 WGA preaching about social media behaviors.    
 
-I have no idea if this is a joke, some clip from some other Vince Gilligan show or whatnot. That said...
+I have no idea if this is a joke, some clip from some other Vince Gilligan show or whatnot. First-watch impression pause notes, I have read nothing about this clip (comments on YouTube turned off / noted). That said...
 
 1. Singing for ritual
 2. People talking about the weather and such. verbal conversation instead of mind to mind silence.
 3. People ready in places in advance of arrivals and other on-time coordination like you see at opening of Episode Two withe motorbike sharing. And arrival bathroom / rebirth to Pirate Lady in ABQ.
 4. Travel between continents via air seems a dramatic hive mind theme, also in contrast to train for energy savings / older contrast.
 5. I'm not expert on the animal in the ritual circle gathering. But it is held like a child. "A baby goat, regardless of gender, is called a kid, a term derived from Old Norse meaning "young goat," which eventually also came to refer to human children due to the similar playful and curious nature"
+6. Chickens around, many egg metaphors have been building up with the most recent eggs for breakfast.
+7. Ice box / ice cooler visual has been them. Ice bed and Carol with the police lights
+8. Exotic location, last woman on earth, like Episode Two opening in reverse. Finding the one best biological match so there are no immune system conflicts or other issues for a surrogate.
+9. The stainless steel lid of the egg basket is like how they deliver / protect food to people with the cloche lifting.
+
+<img width="842" height="358" alt="image" src="https://github.com/user-attachments/assets/45263bdb-03f4-4daa-ae66-78426c21c60c" />
+
+The show is being very clear that this is Bible / Quran Jesus Marry. But Reddit hive mind is very much avoiding Joseph Campbell / Jesus / Bible verses. The "Levant" milk truck Episode Two opening.
+
