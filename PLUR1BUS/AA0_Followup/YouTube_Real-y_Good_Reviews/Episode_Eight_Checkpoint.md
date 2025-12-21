@@ -46,3 +46,9 @@ https://youtu.be/adwPagIKZKA?t=182
 
 Science fiction book Solaris human hive mind metaphors. Inner Reaches of Outer Space.
 
+https://youtu.be/adwPagIKZKA?t=217
+
+"I don't think Carol knows. I don't think *We* are supposed to know" 
+
+* "You have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: “Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An **intense experience of mystery is what one has to regard as the ultimate religious** [experience](Experience_Pluribus_Project)." - Skywalker Ranch lessons for Star Wars / Science Fiction fandoms. Published year 1988.
+
