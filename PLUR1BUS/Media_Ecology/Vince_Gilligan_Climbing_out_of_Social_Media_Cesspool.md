@@ -9,10 +9,28 @@ there's no simple answer for how *we* might change that. Though, if there were, 
 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse as
-a writer speaking to a room full of
-writers. I have a proposal.
+a writer speaking to a room full of writers. I have a proposal.
 
 &nbsp;
+
+## "God Help *Us*"
+
+"We Is *Us*", Pluribus Pilot Episode.   
+
+https://youtu.be/TkteSxVIM1A?t=713     
+
+cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. **God help us**, they become aspirational! So maybe what the world needs now are some good old fashion
+
+12:07       
+greatest Generation types who give more than they take. Who **think that kindness tolerance and sacrifice aren't strictly for Chumps!**
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 
 # I have a Dream, A Public Dream
 
