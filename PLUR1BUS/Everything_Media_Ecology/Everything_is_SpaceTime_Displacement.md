@@ -21,6 +21,8 @@ The time displacement of Rick Roderick's 1990 lecture: "an immense distance that
 
 &nbsp;
 
+Skywalker Ranch lessons for science fiction audiences, year 1988 published:
+
 * "This story is of a Blackfoot tribe, long, long ago, who couldn’t get the buffalo to go over the cliff."
 
 * "There is a kind of secondary hero to revitalize the tradition. This hero reinterprets the tradition and makes it valid as a living experience today instead of a lot of outdated clichés. This has to be done with all traditions."
