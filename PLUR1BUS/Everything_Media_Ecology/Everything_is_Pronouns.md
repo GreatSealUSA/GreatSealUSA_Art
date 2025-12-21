@@ -170,4 +170,4 @@ Democracy does not work without compassion and love.
 
 # See Also
 
-[Everything is *Lady Day"](./Everything_is_Lady_Day.md) for dee[per dives](https://en.wiktionary.org/wiki/muff_diving) / divas.
+See also: ["Everything is *Lady Day*"](./Everything_is_Lady_Day.md)... for dee[per dives](https://en.wiktionary.org/wiki/muff_diving) / divas.
