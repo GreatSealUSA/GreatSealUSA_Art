@@ -23,4 +23,4 @@ Have our science teachers in high school been flipping the bits? https://theseth
 
 Does Mr. White not know his teachings and aspirational fandoms, *mantras*,  matter? Is the car-wash racket white-washing the situation of a military lab cooking up augmented outer-space RNA? How do we stop the fandom of mad scientists from wrecking *Us All* with their [crooked](https://youtu.be/1jeyIAH3bUI?t=574) Levant science fiction interpretations of *who* originated sin? https://www.The-Scientist.com/mirror-microbes-could-end-all-life-on-earth-how-do-we-stop-them-73425
 
-These paradoxes of *who* 1132 abounds and rebounds. Is Carol with pen and whiteboard in hand, standing upon the grave site of Mr. White's science [fix](https://youtu.be/1jeyIAH3bUI?t=692)ations?
+These paradoxes of *who* 1132 abounds and rebounds. Is Carol with pen and whiteboard in hand, standing upon the grave site of Mr. White's science [fix](https://youtu.be/1jeyIAH3bUI?t=691)ations?
