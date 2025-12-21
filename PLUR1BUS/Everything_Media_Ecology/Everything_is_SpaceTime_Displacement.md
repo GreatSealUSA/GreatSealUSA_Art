@@ -73,3 +73,23 @@ Now, you know what we call a person who behaves that way: this we call a stuffed
 Now, this asks a lot of the society itself that wasn't asked before. This also tends to shatter the idea of authority. Now that idea was formally validated by—say it came from God; the Lord of the Universe ordered things this way for the society. A point I want to make is this: that all of these divine interpretations of local laws, of local social orders, are simply cooked up; they are not true. The society has changed with time. These are functions of conditions — of geography **and history. One must realize that the moral order is in flux, is changing. There is no** ***God***-**given right, wrong, true, false, moral, immoral**. And with that kind of *relativism*, one is free to live as a human being, not simply as a robot, repeating patterns that have been enforced from the past. So we have a much more sophisticated idea toward **the social order**.
 
 However when it comes to this other problem of the natural order, one's nature as man, the thing is not quite so *relativistic*.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Another time: 1990 vs 1993 
+
+Roderick a few years later.
+
+**Carol declines the invitation to play cards with cousin Henry**. Carol chooses to watch Golden Girls for her family gathering. Again, minute 8 of Episode Eight. Carol exclaims that playing with one member of the hive mind is just the same. Roderick covered that behavior of suburban family life too. (Assertion: We are in "Everything is Media Ecology", "Everything is ME" GitHub folder context, films and VHS vs. streaming Apple TV+). Reminder: Space-time is Christmas 2005 vs. Christmas 2025 Episode Nine.
+
+1993       
+Texan Rick Roderick       
+https://rickroderick.org/308-baudrillard-fatal-strategies-1993/    
+
+"Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition. Guy Debord wrote a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had **played roles** as political actors began to detach themselves from their own lives and become spectators."
+
+"So for example you could say now, **instead of, like, going to a family reunion now we will just rent, you know, a Steve Martin Father of the Bride movie**. It’s just as good and so on, and you meet the same kooky characters that you actually know. Their behaviour is all simulatable. Another similar… and this going to sound cynical, but I don’t want it to."
