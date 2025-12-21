@@ -30,4 +30,4 @@ Is Pirate Lady alive, is Helen dead? Did Carol's companion, Helen, *fall* and cr
 Sounds pretty *judgmental* of Philip against the town in New Mexico. The science fiction story Bible verse "1 John 3:17" comes to mind. What valley is in? Psalm 23:4 ? 
 
 "He becomes romantically involved with Ellen, and tries to make her realize her own lack of freedom"    
-Pirate Lady entanglement.     
+Pirate Lady en[tangle](https://youtu.be/k0BWlvnBmIE?t=182)ment.     
