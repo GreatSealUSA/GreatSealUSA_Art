@@ -137,7 +137,7 @@ ToDo: I'm sure someone has mapped out episodes to stages of grief. Free 13 grief
 
 &nbsp;
 
-PLUR1BUS Apple TV+ show. 8 minutes into Episode Eight. **Henry** playing cards with us, Carol? Hello, Carol?
+PLUR1BUS Apple TV+ show. 8 minutes into Episode Eight. **Henry** playing cards [with us](https://en.wikipedia.org/wiki/We_Is_Us), Carol? Hello, Carol?
 
 &nbsp;
 
