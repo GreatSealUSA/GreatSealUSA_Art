@@ -13,13 +13,14 @@ Springtime Egg Basket fertilization metaphors. Rabbit testing abounds. Walter Wh
 **Lady Day** on Wikipedia     
 https://en.wikipedia.org/wiki/Lady_Day
 
-Walter White is rather meticulous in his clean cooking. But the ladies at the Zero Hour bring to the table the ultimate inception of reformation of conceptions. Now who conceived of sin, 1132? The value 32 feet per second squared (ft/s²) is the approximate acceleration due to gravity near the Earth's surface in U.S.A. customary units. What has fallen from the sky, Chicken Little? What eggs were nesting on ICE?
+Walter White is rather meticulous in his clean cooking. But the ladies at the Zero Hour bring to the table the ultimate inception of reformation of conceptions. Now *who* conceived of sin, 1132? The value 32 feet per second squared (ft/s²) is the approximate acceleration due to gravity near the Earth's surface in U.S.A. customary units. What has [fallen](https://en.wikipedia.org/wiki/Fall_of_man) from the sky, Chicken Little? What eggs were nesting on ICE?
 
-Mr White may be a clean freak, but he is no Jesus freak. And we should be freaking out about Jesus. Especially the way fandoms of Levant science fiction trillogy behave.
+Mr White may be a clean freak, but he is no Jesus freak. And we should be freaking out about Jesus. Especially the way fandoms of Levant science fiction trilogy behave.
 
 It is as if March 25 and December 25 are ass-backwards. Inverted, fucked-up beyond all *belief* and recognition! 
 
 Have our science teachers in high school been flipping the bits? https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 
-Does Mr. White not know his teachings and aspirational fandoms matter? Is the car-wash white-washing the situation of a military lab cooking up augmented RNA? How do we stop the fandom of mad scientists from wrecking us all with their crooked Levant science fiction interpretations of who originated sin? https://www.The-Scientist.com/mirror-microbes-could-end-all-life-on-earth-how-do-we-stop-them-73425
+Does Mr. White not know his teachings and aspirational fandoms, *mantras*,  matter? Is the car-wash racket white-washing the situation of a military lab cooking up augmented outer-space RNA? How do we stop the fandom of mad scientists from wrecking *Us All* with their [crooked](https://youtu.be/1jeyIAH3bUI?t=574) Levant science fiction interpretations of *who* originated sin? https://www.The-Scientist.com/mirror-microbes-could-end-all-life-on-earth-how-do-we-stop-them-73425
 
+These paradoxes of who 1132 abounds and rebounds. Is Carol with pen and whiteboard in hand, standing upon the grave site of Mr. White's science [fix](https://youtu.be/1jeyIAH3bUI?t=692)ations?
