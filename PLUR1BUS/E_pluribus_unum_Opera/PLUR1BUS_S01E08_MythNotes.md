@@ -435,6 +435,20 @@ Key Roles of Trains in the Wake:
 
 &nbsp;
 
+# Unfertilized Eggs
+
+Egg Nog Christmas 2025 metaphors abound. Carol's frozen ICE eggs and an immigrant with RNA / military virus spreading. Some military, Marines or otherwise.
+
+Saturday December 20, 2025 Reddit front page    
+Pandora moon around Polyphemus SciFi      
+https://old.reddit.com/r/comics/comments/1prmfgg/twice_now_we_have_been_shown_that_marines_were/    
+
+<img width="614" height="767" alt="image" src="https://github.com/user-attachments/assets/b940bb6c-3791-452f-9d41-496678876386" />
+
+Planetary (moon-wide) hive mind network knowledge trees, but still free thinking. And they can *unplug* and hook-up their minds.   
+
+&nbsp;
+
 &nbsp;
 
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
