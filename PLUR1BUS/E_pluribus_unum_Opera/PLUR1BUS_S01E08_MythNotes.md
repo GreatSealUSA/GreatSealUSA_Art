@@ -125,6 +125,21 @@ Reminder:  "Caution! Echoland!" OPERA_A https://www.youtube.com/watch?v=kM8QJAlH
 
 ToDo: I'm sure someone has mapped out episodes to stages of grief. Free 13 grief for humanity "old world order". Do some searching.
 
+&nbsp;
+
+&nbsp;
+
+# 00:08 (overloaded) someone playing cousin Henry?
+
+"There’s an immense distance that has been travelled by human subjectivity – humans as subjects – between Wuthering Heights and Love Story, and I hate to say it, there has been some distance travelled between Love Story and now, and movies like Heathers, Blade Runner, or just visiting Los Angeles. I mean, I don’t need to use examples, just visit Los Angeles. Just walk down the walk of stars at one o’clock in the morning, and ask yourself “Are these people really here, or is this central casting?” And *it isn’t a funny question*. And as our society develops in this telematic way, it’s *not going to be funny* to ask it around **the Christmas dinner table** about Uncle Henry, **“Is that Uncle Henry, or is it *just someone playing* Uncle Henry?"** The further postmodern insight is: what difference does it make! **See, that’s the thing Reagan’s handlers understood. It doesn’t make any difference! They’re buying it!** Well, that’s all I have to say for now…" - [Duke University](https://rickroderick.org/107-kierkegaard-and-the-contemporary-spirit-1990/)
+
+* YouTube: https://youtu.be/g3bBtoKoHzY?t=2642
+
+&nbsp;
+
+PLUR1BUS Apple TV+ show. 8 minutes into Episode Eight. **Henry** playing cards with us, Carol? Hello, Carol?
+
+&nbsp;
 
 &nbsp;
 
