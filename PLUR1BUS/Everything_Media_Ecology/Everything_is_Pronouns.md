@@ -163,3 +163,11 @@ Democracy does not work without compassion and love.
 OPERA_A Tom Hanks introduces song. Note the Christmas tree images, Season One date. Could mean the World's Diaster: https://www.youtube.com/watch?v=4YLDydokJ_s (Stevie Wonder with Take 6 - Love's in Need of Love Today (from "America: A Tribute to Heroes")), 978,487 views  September 13, 2011
 
 Democracy does not work without compassion and love.    
+
+&nbsp;
+
+&nbsp;
+
+# See Also
+
+[Everything is *Lady Day"](./Everything_is_Lady_Day.md) for dee[per dives](https://en.wiktionary.org/wiki/muff_diving) / divas.
