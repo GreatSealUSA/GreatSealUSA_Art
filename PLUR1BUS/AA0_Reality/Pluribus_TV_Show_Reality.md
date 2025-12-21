@@ -41,3 +41,11 @@ https://www.youtube.com/watch?v=xY4jfrIb0hc
 Apple QuckTime video format ".mov"    
 
 The intro seemed AI in how it played to the audience. Toxic fans of Breaking Bad / Saul that the February 15, 2025 WGA preaching about social media behaviors.    
+
+I have no idea if this is a joke, some clip from some other Vince Gilligan show or whatnot. That said...
+
+1. Singing for ritual
+2. People talking about the weather and such. verbal conversation instead of mind to mind silence.
+3. People ready in places in advance of arrivals and other on-time coordination like you see at opening of Episode Two withe motorbike sharing. And arrival bathroom / rebirth to Pirate Lady in ABQ.
+4. Travel between continents via air seems a dramatic hive mind theme, also in contrast to train for energy savings / older contrast.
+5. I'm not expert on the animal in the ritual circle gathering. But it is held like a child. "A baby goat, regardless of gender, is called a kid, a term derived from Old Norse meaning "young goat," which eventually also came to refer to human children due to the similar playful and curious nature"
