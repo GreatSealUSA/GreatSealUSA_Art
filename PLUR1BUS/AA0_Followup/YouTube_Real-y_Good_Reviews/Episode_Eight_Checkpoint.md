@@ -90,3 +90,33 @@ Carol is washing dishes. Visual metaphor of grave site of Helen (grave side wind
 
 &nbsp;
 
+https://youtu.be/adwPagIKZKA?t=727
+
+Uncomfortable. Consensual sex. Salutatory rape. Arranged marriages.
+
+"What Carol is doing is wrong", "The power dynamic"   
+"Intent doesn't change the structural violation"   
+
+Moral wrongs exist on a spectrum. Coma kissing (Pussy Wagon, Kill Bill story)
+
+1. Disney princess stories of kissing to wake. [Sleeping Beauty (Aurora)](https://en.wikipedia.org/wiki/Aurora_(Sleeping_Beauty)) - The name "Aurora" is mentioned in the context of the aurora borealis (Northern Lights), which the main character Carol Sturka (played by Rhea Seehorn) and her partner Helen witness during a flashback scene in a Norwegian ice hotel)
+
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=995
+
+Carol needs to be the hero.
+
+What if "Waking up" is better manipulation.
+
+1. The core themes of Finnegans Wake. Wake within a Wake. Simulation "being reborn" within the Levant Bible. Woke beyond Woke is Finnegans Wake. The simulacra master virtual machine hardware self-awareness. https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
+
+&nbsp;
+
+https://youtu.be/adwPagIKZKA?t=1075
+
+If believing the story, "Pluribus" delusion ( wordchoice: illusion / collusions ) is worth it. Isn't that the most human thing you have ever heard?
+
+1. "Survival is the second law of life. The first is that we are all one."
+A Joseph Campbell Companion: Reflections on the Art of Living, page 37 (First rule: Pluribus) 
+
