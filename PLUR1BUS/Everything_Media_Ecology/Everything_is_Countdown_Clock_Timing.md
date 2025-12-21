@@ -26,7 +26,7 @@ OPERA_A Fire into the water hole, if it was the Finnegan "Water of LIfe" from Pl
 
 &nbsp;
 
-# Induced Quantum Solstice 
+# Induced [Quantum](https://dukespace.lib.duke.edu/bitstreams/4f80e44a-2602-4ff3-9538-cb44fc44b5cc/download) Solstice 
 
 December 19, 2025     
 https://www.forbes.com/sites/paultassi/2025/12/19/the-pluribus-season-1-finale-has-quietly-changed-its-release-date/        
