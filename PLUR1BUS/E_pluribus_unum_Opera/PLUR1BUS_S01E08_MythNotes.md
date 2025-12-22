@@ -464,12 +464,23 @@ Planetary (moon-wide) hive mind network knowledge trees, but still free thinking
 
 &nbsp;
 
+&nbsp;
+
 # Title: Snake Charming
+
+Eden snake and the Apple-Plucking (will only eat *the fallen* on Earth / Eden). The NO PLUCK only rule of Eden.
 
 Eden perfection. Charming the snake in the Garden. The wild animals of New Mexico hiking in the rocky areas with Carol the train scene. Wildlife encroaching on suburbs. OPERA_A Deacon blues: this brother is free snaking through the suburbs. Steely Dan Godwhackers metaphors of Deacon Church.
 
 Charming the god-like power of the hive mind with booze in Carol's house, earlier with explosive Jihadi tricks that sent Pirate Lady to the hospital, now in Episode 8 Charming with the snake against the super ego / mass mind executive function exploits through the pelvic birth entrance. 
 
+* "On the third morning, the wife is glorious, and Gawain, a young man about to meet his death, has all he can do to keep his head and retain his knightly honor, with this last gift before him of the luxury of life. This time, he accepts three kisses. And when she has delivered these, she begs him, as a token of her love, to accept her garter. “It is charmed,” she says, “and will protect you against every danger.” So Gawain accepts the garter."
+
+* New Mexico. "won’t tell you what **makes you happy**, but it will tell you what happens when you begin to **follow your happiness**, what the obstacles are that you’re going to run into. For example, there’s a motif in **American Indian stories** that I call “the refusal of suitors.” There’s a young girl, **beautiful, charming**, and the young men invite her to marriage. “No, no, no,” she says, “there’s nobody around good enough for me.” So **a serpent comes**, or, if it’s a boy who won’t have anything to do with girls, the **serpent queen of a great lake** might come. As soon as you have refused the suitors, you have elevated yourself out of the local field and put yourself in the field of higher power, higher danger. The question is, are you going to be able to handle it?"
+
+  * the *serpent queen of a great lake* - Pirate Lady / Pirate Queen. Helen's **post-doctorate thesis**. ... ... ... *"Pirate Queen" in Finnegans Wake refers to the legendary Irish sea captain Grace O'Malley (Gráinne Mhaol), whom James Joyce incorporates as the Prankquean, a pivotal, riddle-posing female figure*
+
+&nbsp;
 
 &nbsp;
 
