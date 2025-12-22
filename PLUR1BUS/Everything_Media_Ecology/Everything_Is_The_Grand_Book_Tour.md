@@ -24,7 +24,7 @@ Book Tour Ending. Last show on the Grand Tour by Carol and Helen. Airport thresh
 
 Minute 22 of Kepler-22b story, the "b side" of minute 22, Episode One / Pilot Episode. Metahors and media ecology abound.
 
-Navajo Sand Painting / New Mexico. Year 1950. Atomic Bomb origins. *Sand painting to Glass Parking Lot metaphros abound, Carol Atom Bomb / The Stand Vegas ending of King Elvis Stephen*    
+Back (side b) book cover: Navajo Sand Painting / **New Mexico**. Year 1950. Atomic Bomb origins. *Sand painting to Glass Parking Lot metaphors abound, Carol Atom Bomb / The Stand Vegas ending of King Elvis Stephen*    
 
 https://www.youtube.com/watch?v=Pt0mdzO0rg4      
 "The Mythic World of the Navajo: Sand Painting Rituals"    
