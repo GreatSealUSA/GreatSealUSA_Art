@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=iWrFVvEgFYI
 Immediate grasp on release, much like the first impressions of the dollar bill Great Seal of the United States of America.
 
 1. 13 missions
-2. 13 modules to the space ship
+2. 13 modules to the space ship https://youtu.be/iWrFVvEgFYI?t=441 (12 + center dock)  
 3. Corn Pollen Path of North America
 4. Three surviving crops, Okra then Corn. North America world discovery.
 5. NASA is the agency that survives, but no Canadian or India / Japan / Chinese staff symbolism
