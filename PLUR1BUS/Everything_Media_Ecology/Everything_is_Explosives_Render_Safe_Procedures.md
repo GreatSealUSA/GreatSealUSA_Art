@@ -40,9 +40,13 @@ This Earth is Mine, Kepler 22 disarming conflicts. The Hurt Locker.
 
 Disarming { Breaking Bad, Better Call Saul } aspiration fandoms. Calls for help to [disarm the cesspool of social media John 1:1 language conflicts](Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
 
+Carol lives in exile, fandom lives in exile, Earth is hated, Kepler / Eden loved.
+
 &nbsp;
 
-* { summer 1985, summer 1986, 1987 } JOSEPH CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+* { summer 1985, summer 1986, 1987 }
+
+    * JOSEPH CAMPBELL: But in **the Bible, eternity withdraws, and nature is corrupt, nature has fallen**. In biblical thinking, we live in exile.
 
     * BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
 
