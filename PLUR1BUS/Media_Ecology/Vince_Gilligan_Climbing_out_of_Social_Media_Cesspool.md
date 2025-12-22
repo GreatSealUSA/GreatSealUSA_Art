@@ -97,3 +97,22 @@ James Joyce
 
 Social media ecology, draining the swamp / septic tanks.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Approaching Superhighway
+
+Approaching Carol's "March 25 Lady Day", Christmas Eve Day 2025.     
+Truth Social Values USA: Public Social Media cesspool values / Public Information Superhighway Cesspool Values. Behavior towards people on Social Systems / Social Information Highways / Social Travel Highways.    
+
+Monday, December 22, 2025 afternoon USA      
+Canada Encounter on the Super Highways    
+https://old.reddit.com/r/CringeTikToks/comments/1pt3n2o/us_border_officer_road_rages_on_canadians/       
+
+OPERA_A Why is the Jesus Cross / Roman Empire still hanging people / All Roads Lead to { WGA February 15, 2025 speech about Cesspools of Social Media / Information Superhighways }. I know this USA Superhighway, why is the Jesus Cross Pirate Ship mast the hanging? My USA *Civic Ditty* https://www.youtube.com/watch?v=j0IO-S6nTUY 44,629 views December 4, 2018 - Guess Vince Gilligan is the *lucky one*, you think you have heard this one before. 
+
