@@ -38,7 +38,7 @@ Lyrics: "Such a mysterious way ... course of a lifetime runs, over and over agai
 
 * Published on YouTube on Torah Levant day, Saturday ... "Paul Simon is Jewish; he was born to Hungarian-Jewish ***immigrant*** parents in Newark, New Jersey, and raised in the Jewish faith, with his mother teaching him Jewish customs, though he describes himself as more "curious" than strictly religious"
 
-   * September 14, 1814, Francis Scott Key pens a poem which is later set to music and in 1931 becomes America's national anthem, “The Star-Spangled Banner.” (Great Seal USA Eye sees)
+   * September 14, 1814, Francis Scott Key pens a poem which is later set to music and in 1931 becomes America's national anthem, “The Star-Spangled Banner.” (Great Seal USA Eye sees that [Media Ecology](../Everything_Media_Ecology/Everything_is_SpaceTime_Displacement.md))
 
 * "On this strange and *mournful* day", "Remember a *sadder* day" ... Satur-day
 
