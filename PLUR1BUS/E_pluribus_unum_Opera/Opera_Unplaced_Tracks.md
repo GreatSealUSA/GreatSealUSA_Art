@@ -196,3 +196,33 @@ The real battle just begun (Sunday, Bloody Sunday)
 To claim the victory Jesus won (Sunday, Bloody Sunday)    
 
 Christmas Day climax, Season One.
+
+&nbsp;
+
+&nbsp;
+
+# Pyramid Step-down: Low Places
+
+1997 / 1998 date is significant to backdate events / countup countdown onnscreen    
+
+Carol and Helen are not big on social graces, drunkard at the Oasis at the Zero Hour with her Pirate Lady fandom. Slumming book tour with fandom.
+
+https://www.youtube.com/watch?v=qT_uonWYRrQ     
+Friends+in+low+places+ +Ireland+1998 GRJ 1     
+2,115,437 views  Premiered March 24, 2021    
+
+* March 24 is inception eve, for outer space aliens [taking a woman's egg, outing males, and fertilizing a child](../Everything_Media_Ecology/Everything_is_Lady_Day.md).
+
+Outside the step "Ivory Tower" higher https://youtu.be/qT_uonWYRrQ?t=120 - Helen intimate friend gave her the post-doctorate thesis of a life time at the Zero Hour - Finn's Hotel year 1923. Joyce isn't big on social graces. Friends in low places. Boozing author Carol can go boozing with author James Joyce the drunkard and his buddies at Finn's Hotel for low-blows to the hive mind: https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told Literary.
+
+Another verse from 1997 / 1998 in Ireland!
+
+* "a massive, record-breaking event featuring five sold-out shows at Croke Park in Dublin, drawing over 400,000 fans and showcasing a spectacular stage, culminating in the famous Garth Brooks: Ireland and Back TV special on NBC"
+
+* Where: Croke Park, Dublin, Ireland. ("A moment from the 1921 Leinster Hurling Final at Croke Park. As Dublin secured victory over Kilkenny (4-4 to 1-5), Harry Boland smiles") https://joycegeek.com/2015/03/26/cartography/
+
+*  The largest stage ever built in Ireland at the time, featuring record-breaking crowds for the Garth Brooks World Tour.
+
+*  Wake wave of the media event. "the overwhelming demand led to future tour cancellations in 2014"
+
+*  "The TV special titled Garth Brooks: Ireland and Back originally aired in the United States on March 4, 1998, on NBC" (lag time / post-production media ecology / supply chain / import delays / shipping metaphors)
