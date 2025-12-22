@@ -37,3 +37,5 @@ Everything is Bible verse John 1:1 - Everything is Genesis 11:1 disarming.
 We are sitting on Nina Paley's song and artwork: "This Land Is Mine" https://www.youtube.com/watch?v=8tIdCsMufIY
 
 This Earth is Mine, Kepler 22 disarming conflicts. The Hurt Locker.
+
+Disarming { Breaking Bad, Better Call Saul } aspiration fandoms. Calls for help to [disarm the cesspool of social media John 1:1 language conflicts](Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
