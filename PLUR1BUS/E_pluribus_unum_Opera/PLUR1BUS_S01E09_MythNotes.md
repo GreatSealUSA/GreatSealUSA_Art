@@ -18,11 +18,11 @@ One button simplicity, relationships with over 7 billion people is very complica
 False pregnancy hope.
 
 Three Body Problem / Three Body Problems     
-Trinity Problems; #Christmas Day; Christmas Eve     
+Trinity Problems; Christmas Day; Christmas Eve     
 
 July 16, 1945, in the Jornada del Muerto desert near Alamogordo, New Mexico     
 
-The #HolyTrinity Karl G. Jansky Very Large Array (VLA) Trinity Test    
+The Holy Trinity; Karl G. Jansky Very Large Array (VLA); Trinity Test    
 
 1. Father ? { Kepler 22b / Eden }
 2. Child
