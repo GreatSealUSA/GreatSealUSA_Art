@@ -48,7 +48,7 @@ Carol lives in exile, fandom lives in exile, Earth is hated, Kepler / Eden loved
 
     * JOSEPH CAMPBELL: But in **the Bible, eternity withdraws, and nature is corrupt, nature has fallen**. In biblical thinking, we live in exile.
 
-    * BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+    * BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It [strikes me that Marshall McLuhan was right](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
 
     * CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for **the future** (1987, published 1988).
 
