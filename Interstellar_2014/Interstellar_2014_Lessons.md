@@ -13,7 +13,7 @@ Immediate grasp on release, much like the first impressions of the dollar bill G
 
 Great Seal stars above the Eagles metaphors abound.
 
-1. Bookshelf thumping / Bible thumping USA metaphors. Conflicts of the Great Seal, "1 John 4:20" Bible verse crisis. PUtting one and only one book above the entire bookshelf for Murph.
+1. Bookshelf thumping / Bible thumping USA metaphors. Conflicts of the Great Seal, "1 John 4:20" Bible verse crisis. PUtting one and only one book above the entire bookshelf for Murph. Mankind's betrayal of spiritual Great Seal coming together. https://youtu.be/iWrFVvEgFYI?t=581
 
 Matthew McConaughey's character in Contact film. And his mother is a teacher.
 
@@ -21,7 +21,10 @@ https://youtu.be/iWrFVvEgFYI?t=284
 Love is the key    
 EVERY person love, not just those who sing like the greatest singers or poets. We the People and our personal voices, popularity isn't the concern.
 
-
+https://youtu.be/iWrFVvEgFYI?t=514   
+Intentional, we Pluribus (We The People) not understanding each other   
+Even beyond the loud moments    
+People don't understand the dollar bill, in their face their whole life. One has to make effort   
 
 
 
