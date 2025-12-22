@@ -1,4 +1,4 @@
-# Everything is Sandbox Petri Cloche
+# Everything is { Sandbox, Petri, Cloche }
 
 This is written after Episode Eight, a couple days before Christmas / Episode Nine season climax.
 
