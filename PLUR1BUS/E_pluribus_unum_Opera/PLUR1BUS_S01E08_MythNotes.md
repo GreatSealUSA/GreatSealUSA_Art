@@ -480,6 +480,11 @@ Charming the god-like power of the hive mind with booze in Carol's house, earlie
 
   * the *serpent queen of a great lake* - Pirate Lady / Pirate Queen. Helen's **post-doctorate thesis**. ... ... ... *"Pirate Queen" in Finnegans Wake refers to the legendary Irish sea captain Grace O'Malley (Gráinne Mhaol), whom James Joyce incorporates as the Prankquean, a pivotal, riddle-posing female figure*
 
+ToDo: why is a Polish little girl grown up in northern Africa in local dress? Maybe some hints or research on what other people have picked up. https://old.reddit.com/r/AcademicQuran/comments/132fhu2/does_islamic_law_have_any_requirements_for/ Qur'an 3:45-47, 19:16-21 { لَمْ يَمْسَسْنِي  , lesbians, بَشَرٌ } - I think Carol bedding with the hive mind has been consent for them to take the eggs in their "left behind" fallen off the fruit tree (her body) logic. But the magic potion of James Joyce, water of life, is the Tristan and Isolde potion to get past the Middle Ages censors - the "love potion" to bypass Church sensors with the year 1210 troubadours of Isolde and Tristan / King Mark story.
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
