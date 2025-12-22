@@ -93,3 +93,22 @@ https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 "Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition. Guy Debord wrote a book in the sixties called “The Society of the Spectacle“. And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had **played roles** as political actors began to detach themselves from their own lives and become spectators."
 
 "So for example you could say now, **instead of, like, going to a family reunion now we will just rent, you know, a Steve Martin Father of the Bride movie**. It’s just as good and so on, and you meet the same kooky characters that you actually know. Their behaviour is all simulatable. Another similar… and this going to sound cynical, but I don’t want it to."
+
+&nbsp;
+
+&nbsp;
+
+# Season Ending X-Mas 
+
+Jolly Roger X Flag, X Chromosomes, X marks the Day.
+
+Lady Day, March 25, X Chromosome stem cells day. Lesbian X and outer-space Y fertilization. Why and Who is the father?
+
+X-Mas Flag, the Jolly Roger.  
+
+X meets Y, Destiny in the Stars with the Hive Mind Rival. Close Intimate Encounters of the Great Seal Pluribus kind. https://www.youtube.com/watch?v=t9oCn8jHwOk "The milk truck", detective case Carol. Pirate Lady: "Sure he's a jolly roger... Until he answers for his crime" 21,659 views September 30, 2016
+
+<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/58ba918e-d651-4572-9f6f-747d6c8b1cce" />     
+https://hudsonvalley.org/article/the-jolly-roger-and-its-not-so-merry-origins/
+
+
