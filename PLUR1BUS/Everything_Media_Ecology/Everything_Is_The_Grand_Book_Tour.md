@@ -66,3 +66,16 @@ Vince Gilligan is saying social meme audiences fixate on the aspirational aspect
 
 Fixated on terrible lawers, type casting the lead actress, "Saul is good, Saul is cool!!!" audience media fixations of being Truth Social consumers and not seeing the problem of Truth Social drug meme dealers. Opening Gauntlet against this thrown at start of year 2025: https://www.youtube.com/shorts/ohOibt3o7uU 
 
+&nbsp;
+
+&nbsp;
+
+# Language Mockery
+
+John 1:1 mockery
+
+ Carol asks Zosia to translate into Sanskrit occurs in Episode 3 of the TV series Pluribus. During a meal, Carol asks Zosia how to say a toast in Sanskrit. Zosia tells Carol the word is "śubhamastu" (meaning "let good things happen" or a similar blessing), but Carol dismissively responds with "shoopy-shoop shoop" instead of making an effort to pronounce it correctly. 
+
+The science fiction audience lessons from Luke Skywaker Ranch, published in year 1988, filmed by George Lucas:
+
+"Now, I came to this idea of bliss **because in Sanskrit, which is the great spiritual language of the world**, there are three terms that represent the brink, the jumping-off place to the ocean of transcendence: Sat, Chit, Ananda. The word “Sat” means being. “Chit” means consciousness. “Ananda” means bliss or rapture. I thought, “I don’t know whether my consciousness is proper consciousness or not; I don’t know whether what I know of my being is my proper being or not; but I do know where my rapture is. So let me hang on to rapture, and that will bring me both my consciousness and my being.” I think it worked." - 1988, The Power of Myth
