@@ -55,5 +55,10 @@ United States of America
 
 We have been sitting on this hive mind truth of mob mentality. And we have not disarmed MAGA, "hearts and souls of men, capable of exploding into the vilest of hate and into the most damaging selfishness"
 
+&nbsp;
+
 The vile cesspools of social media. Disarming { Breaking Bad, Better Call Saul } aspiration fandoms. Calls for help to [disarm the cesspool of social media John 1:1 language conflicts](Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
 
+&nbsp;
+
+Vince Gilligan and crews, will you defeat them, disarm the bombs and plans they have made with Breaking Bad Ass male leadership signals? https://www.youtube.com/watch?v=RRKJiM9Njr8 399,335,250 views October 26, 2009
