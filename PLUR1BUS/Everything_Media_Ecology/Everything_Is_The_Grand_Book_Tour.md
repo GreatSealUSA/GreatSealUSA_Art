@@ -83,7 +83,7 @@ The science fiction audience lessons from Luke Skywaker Ranch, published in year
 ## Latin Language Mockery, "Pluribus"
 
 
-Carol being the *only one* in the world who speaks English as a first language. Episode Two asserts this before Air Force One meataphors.
+Carol being the *only one* in the world who speaks English as a first language. Episode Two asserts this before Air Force One metaphors.
 
 In the "Telemachus" and "Lotus Eaters" episodes of Ulysses, the characters observe the Latin Mass and the perceived effect of the language on the congregation: 
 
