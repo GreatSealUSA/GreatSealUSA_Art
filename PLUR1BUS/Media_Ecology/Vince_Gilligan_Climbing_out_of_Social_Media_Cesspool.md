@@ -107,7 +107,7 @@ Social media ecology, draining the swamp / septic tanks.
 
 # Approaching Superhighway
 
-Approaching Carol's "March 25 Lady Day", Christmas Eve Day 2025.     
+Approaching [Carol's "March 25](Everything_is_Lady_Day.md) Lady Day", Christmas Eve Day 2025.     
 Truth Social Values USA: Public Social Media cesspool values / Public Information Superhighway Cesspool Values. Behavior towards people on Social Systems / Social Information Highways / Social Travel Highways.    
 
 Monday, December 22, 2025 afternoon USA      
