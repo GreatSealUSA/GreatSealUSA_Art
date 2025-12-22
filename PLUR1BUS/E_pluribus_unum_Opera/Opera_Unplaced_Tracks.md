@@ -173,3 +173,26 @@ Throw out your gold teeth I and II
 Man in Vegas, West Gate Hotel    
 
 
+&nbsp;
+
+&nbsp;
+
+# PLUR1BUS "We is Us"
+
+"We can be as one, Tonight" (show episodes released 9pm USA night)    
+"TV Reality", "John 1:1" we make and create.    
+
+And it's true that Carol is immune?
+
+https://www.youtube.com/watch?v=CkeDjLZMRRk     
+9,020,642 views  Wednesday, September 12, 2018    
+
+Yeah, let's go     
+And it's **true we are immune**      
+When **fact is fiction and TV reality**    
+And today the millions cry (Sunday, Bloody Sunday)     
+We eat and drink while tomorrow they die (Sunday, Bloody Sunday)    
+The real battle just begun (Sunday, Bloody Sunday)    
+To claim the victory Jesus won (Sunday, Bloody Sunday)    
+
+Christmas Day climax, Season One.
