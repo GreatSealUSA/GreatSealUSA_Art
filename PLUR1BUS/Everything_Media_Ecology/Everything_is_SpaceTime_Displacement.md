@@ -108,7 +108,8 @@ X-Mas Flag, the Jolly Roger.
 
 X meets Y, Destiny in the Stars with the Hive Mind Rival. Close Intimate Encounters of the Great Seal Pluribus kind. https://www.youtube.com/watch?v=t9oCn8jHwOk "The milk truck", detective case Carol. Pirate Lady: "Sure he's a jolly roger... Until he answers for his crime" 21,659 views September 30, 2016
 
-<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/58ba918e-d651-4572-9f6f-747d6c8b1cce" />     
+<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/58ba918e-d651-4572-9f6f-747d6c8b1cce" />
+
 https://hudsonvalley.org/article/the-jolly-roger-and-its-not-so-merry-origins/
 
 
