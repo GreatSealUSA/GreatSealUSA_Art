@@ -144,3 +144,22 @@ https://www.youtube.com/watch?v=HPg5lM3pKCI
 Monday, December 22, 2025 early USA 22,821 views        
 Gilligan Hid The Ending In Episode 1 | Pluribus Finale Predictions
 
+Everything is "English First" speaker Carol. Finnegans Wake Helen's post-doctorate Thesis of Languages. Tower of Babel.    
+
+Six Phrases.    
+https://youtu.be/HPg5lM3pKCI?t=45
+
+Yellow Dog. Finding. Pussy cat / lesbian pussy / horn dog.    
+Save the world, meets Eve in anti-Eden    
+The Girl or The World. The 2nd Apple or Eden ejection on Christmas Eve Day.   
+
+https://youtu.be/HPg5lM3pKCI?t=191     
+La Chica, girl daughter. Joyce Finnegans Wake word sound games: "La Chicken eggs", Carol's Easter Eggs. [March 25 Lady Day inversions](../Everything_Media_Ecology/Everything_is_Lady_Day.md) of December 25.
+
+https://youtu.be/HPg5lM3pKCI?t=219    
+Burned bridges. Divine protection charm. Mercy doesn't exist. Romans 11:32 absent in Dublin, Joyce's 11 32 encoding.  Migrant / immigrant / multi outcast. Multi-cast TCP/IP Radio Shack signal. Saving the world lines. Jihadi.  [Stephen Hero of Joyce, the first Christian martyr (after world reboot / Zero Hour)](https://en.wikipedia.org/wiki/Saint_Stephen) for Mary Eggs on Immigrant ICE State Police (Northern Lights police lights). 
+
+https://youtu.be/HPg5lM3pKCI?t=403     
+OPERA_A  https://youtu.be/QkF3oxziUI4?t=209 "Your head is humming, and it won't go, in case you don't know
+The piper's calling you to join him" - "Dear lady, can you hear the wind blow? And did you know
+your stairway lies on the whispering wind?" - 163,325,581 views  July 3, 2018
