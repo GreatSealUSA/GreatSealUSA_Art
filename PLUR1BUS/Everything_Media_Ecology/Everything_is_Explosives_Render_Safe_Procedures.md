@@ -39,3 +39,21 @@ We are sitting on Nina Paley's song and artwork: "This Land Is Mine" https://www
 This Earth is Mine, Kepler 22 disarming conflicts. The Hurt Locker.
 
 Disarming { Breaking Bad, Better Call Saul } aspiration fandoms. Calls for help to [disarm the cesspool of social media John 1:1 language conflicts](Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
+
+&nbsp;
+
+# New Mexico Atomic, Manhattan name, Atlanta John One One 
+
+Atlanta critic of fandom of John 1:1     
+Disarming the John 1:1 troubles    
+
+"The real problem is that through our scientific genius we've made of the world a neighborhood, but through our moral and spiritual genius we've failed to make of it a brotherhood. And the great danger facing us today is not so much the atomic bomb that was created by physical science. Not so much that atomic bomb that you can put in an aeroplane and drop on the heads of hundreds and thousands of people — as dangerous as that is. But the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of exploding into the vilest of hate and into the most damaging selfishness — that's the atomic bomb that we've got to fear today. Problem is with the men. Within the heart and the souls of men. That is the real basis of our problem."
+"Rediscovering Lost Values"    
+Detroit's Second Baptist Church    
+28 February 1954   
+United States of America    
+
+We have been sitting on this hive mind truth of mob mentality. And we have not disarmed MAGA, "hearts and souls of men, capable of exploding into the vilest of hate and into the most damaging selfishness"
+
+The vile cesspools of social media. Disarming { Breaking Bad, Better Call Saul } aspiration fandoms. Calls for help to [disarm the cesspool of social media John 1:1 language conflicts](Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
+
