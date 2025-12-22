@@ -464,6 +464,15 @@ Planetary (moon-wide) hive mind network knowledge trees, but still free thinking
 
 &nbsp;
 
+# Title: Snake Charming
+
+Eden perfection. Charming the snake in the Garden. The wild animals of New Mexico hiking in the rocky areas with Carol the train scene. Wildlife encroaching on suburbs. OPERA_A Deacon blues: this brother is free snaking through the suburbs. Steely Dan Godwhackers metaphors of Deacon Church.
+
+Charming the god-like power of the hive mind with booze in Carol's house, earlier with explosive Jihadi tricks that sent Pirate Lady to the hospital, now in Episode 8 Charming with the snake against the super ego / mass mind executive function exploits through the pelvic birth entrance. 
+
+
+&nbsp;
+
 &nbsp;
 
 ToDo: Billy Joel Iron Curtain. Sting Russians putting words into Hive Mind mouths. Great Seal USA peering metaphors.
