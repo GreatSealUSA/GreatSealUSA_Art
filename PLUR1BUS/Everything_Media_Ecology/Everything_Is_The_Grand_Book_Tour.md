@@ -79,3 +79,7 @@ John 1:1 mockery
 The science fiction audience lessons from Luke Skywaker Ranch, published in year 1988, filmed by George Lucas:
 
 "Now, I came to this idea of bliss **because in Sanskrit, which is the great spiritual language of the world**, there are three terms that represent the brink, the jumping-off place to the ocean of transcendence: Sat, Chit, Ananda. The word “Sat” means being. “Chit” means consciousness. “Ananda” means bliss or rapture. I thought, “I don’t know whether my consciousness is proper consciousness or not; I don’t know whether what I know of my being is my proper being or not; but I do know where my rapture is. So let me hang on to rapture, and that will bring me both my consciousness and my being.” I think it worked." - 1988, The Power of Myth
+
+## Latin Language Mockery, "PLuribus"
+
+Carol being the *only one* in the world who speaks English as a first language. Episode Two asserts this before Air Force One meataphors.
