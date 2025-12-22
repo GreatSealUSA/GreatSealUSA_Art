@@ -219,6 +219,17 @@ Just a compromise of the things humans do for love.
 
 &nbsp;
 
+# Track: Waiting Outside Door for Foreplay
+
+https://www.youtube.com/watch?v=TnwqUEelQjE     
+23,147,720 views  October 5, 2017       
+Boston - Foreplay / Long Time (Official Audio)
+
+Helen is waiting outside the door, Pirate Lady is wasting outside the front door again and again.      
+"It's just outside your front door" https://youtu.be/TnwqUEelQjE?t=222 where Carol placed the lonely message for Kepler eyes to see.     
+
+&nbsp;
+
 &nbsp;
 
 # Track: Tortured biological directives 
