@@ -213,7 +213,7 @@ Friends+in+low+places+ +Ireland+1998 GRJ 1
 
 * March 24 is inception eve, for outer space aliens [taking a woman's egg, outing males, and fertilizing a child](../Everything_Media_Ecology/Everything_is_Lady_Day.md).
 
-Outside the step "Ivory Tower" higher https://youtu.be/qT_uonWYRrQ?t=120 - Helen intimate friend gave her the post-doctorate thesis of a life time at the Zero Hour - Finn's Hotel year 1923. Joyce isn't big on social graces. Friends in low places. Boozing author Carol can go boozing with author James Joyce the drunkard and his buddies at Finn's Hotel for low-blows to the hive mind: https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told Literary.
+Outside the step "Ivory Tower" higher https://youtu.be/qT_uonWYRrQ?t=120 (Tim high paces on ladder, fall to friends in public house) - Helen intimate friend gave her the post-doctorate thesis of a life time at the Zero Hour - Finn's Hotel year 1923. Joyce isn't big on social graces. Friends in low places. Boozing author Carol can go boozing with author James Joyce the drunkard and his buddies at Finn's Hotel for low-blows to the hive mind: https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told Literary.
 
 Another verse from 1997 / 1998 in Ireland!
 
