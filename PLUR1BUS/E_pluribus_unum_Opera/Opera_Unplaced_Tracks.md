@@ -215,6 +215,8 @@ Friends+in+low+places+ +Ireland+1998 GRJ 1
 
 Outside the step "Ivory Tower" higher https://youtu.be/qT_uonWYRrQ?t=120 (Tim high paces on ladder, fall to friends in public house) - Helen intimate friend gave her the post-doctorate thesis of a life time at the Zero Hour - Finn's Hotel year 1923. Joyce isn't big on social graces. Friends in low places. Boozing author Carol can go boozing with author James Joyce the drunkard and his buddies at Finn's Hotel for low-blows to the hive mind: https://www.goodreads.com/quotes/504662-my-sweet-little-whorish-nora-i-did-as-you-told Literary.
 
+Carol's post book tour fandom dirty feeling. Social graces of her fandom / audience contempt she holds.
+
 Another verse from 1997 / 1998 in Ireland!
 
 * "a massive, record-breaking event featuring five sold-out shows at Croke Park in Dublin, drawing over 400,000 fans and showcasing a spectacular stage, culminating in the famous Garth Brooks: Ireland and Back TV special on NBC"
@@ -226,3 +228,5 @@ Another verse from 1997 / 1998 in Ireland!
 *  Wake wave of the media event. "the overwhelming demand led to future tour cancellations in 2014"
 
 *  "The TV special titled Garth Brooks: Ireland and Back originally aired in the United States on March 4, 1998, on NBC" (lag time / post-production media ecology / supply chain / import delays / shipping metaphors)
+
+ToDo: lots here for [the Reddit CopyPasta page](../A_Wake_Wakening/Reddit_Hive_Mind_Copypasta.md) about low-places Vince Gilligan cesspool low-life behaviors of Truth Social USA / Fox News USA / Reddit cultural admiration of Truth Social / Elon Musk behaviors. 
