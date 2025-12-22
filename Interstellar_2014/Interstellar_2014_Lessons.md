@@ -1,0 +1,27 @@
+# Interstellar 2014 Lessons
+
+https://www.youtube.com/watch?v=iWrFVvEgFYI     
+93,778 views  December 17, 2025    
+
+Immediate grasp on release, much like the first impressions of the dollar bill Great Seal of the United States of America.
+
+1. 13 missions
+2. 13 modules to the space ship
+3. Corn Pollen Path of North America
+4. Three surviving crops, Okra then Corn. North America world discovery.
+5. NASA is the agency that survives, but no Canadian or India / Japan / Chinese staff symbolism
+
+Great Seal stars above the Eagles metaphors abound.
+
+1. Bookshelf thumping / Bible thumping USA metaphors. Conflicts of the Great Seal, "1 John 4:20" Bible verse crisis. PUtting one and only one book above the entire bookshelf for Murph.
+
+Matthew McConaughey's character in Contact film. And his mother is a teacher.
+
+https://youtu.be/iWrFVvEgFYI?t=284    
+Love is the key    
+EVERY person love, not just those who sing like the greatest singers or poets. We the People and our personal voices, popularity isn't the concern.
+
+
+
+
+
