@@ -80,6 +80,16 @@ The science fiction audience lessons from Luke Skywaker Ranch, published in year
 
 "Now, I came to this idea of bliss **because in Sanskrit, which is the great spiritual language of the world**, there are three terms that represent the brink, the jumping-off place to the ocean of transcendence: Sat, Chit, Ananda. The word “Sat” means being. “Chit” means consciousness. “Ananda” means bliss or rapture. I thought, “I don’t know whether my consciousness is proper consciousness or not; I don’t know whether what I know of my being is my proper being or not; but I do know where my rapture is. So let me hang on to rapture, and that will bring me both my consciousness and my being.” I think it worked." - 1988, The Power of Myth
 
-## Latin Language Mockery, "PLuribus"
+## Latin Language Mockery, "Pluribus"
+
 
 Carol being the *only one* in the world who speaks English as a first language. Episode Two asserts this before Air Force One meataphors.
+
+In the "Telemachus" and "Lotus Eaters" episodes of Ulysses, the characters observe the Latin Mass and the perceived effect of the language on the congregation: 
+
+* "Good idea the Latin. Stupefies them first"
+
+&nbsp;
+
+Forest for Trees, Context Assertion: { Minute 22 / Kepler 22 } Episode One Zero Hour, in a *Public House* before the singsong begins, Helen delivers a post-doctorate thesis on James Joyce authoring. The world ends at minute 22.
+
