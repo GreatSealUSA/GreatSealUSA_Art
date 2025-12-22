@@ -30,7 +30,7 @@ Made in New Mexico by competitive human species. The Manhattan Project.
 
 * One perfect book. **One, and ONLY one, perfect book** fandom warfare. 
 
-Assertion: Book store opening, book tour, book arranging on airport public display, book *work in progress* of Bitter Pupa, book piracy and retcon storytelling themes abound.
+Assertion: PLUR1BUS Book store opening, book tour, book fandom, book arranging on airport public display, Carol's unpublished book *work in progress* of Bitter Pupa, marriage of book promoter and book author, book piracy and fantasy *retcon* storytelling themes abound.
 
 Everything is Bible verse John 1:1 - Everything is Genesis 11:1 disarming.
 
