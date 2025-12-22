@@ -466,7 +466,7 @@ Planetary (moon-wide) hive mind network knowledge trees, but still free thinking
 
 &nbsp;
 
-# Title: Snake Charming
+# Episode 8 Title: Snake Charming
 
 Eden snake and the Apple-Plucking (will only eat *the fallen* on Earth / Eden). The NO PLUCK only rule of Eden.
 
