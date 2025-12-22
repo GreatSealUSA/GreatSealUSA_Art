@@ -228,6 +228,10 @@ Boston - Foreplay / Long Time (Official Audio)
 Helen is waiting outside the door, Pirate Lady is wasting outside the front door again and again.      
 "It's just outside your front door" https://youtu.be/TnwqUEelQjE?t=222 where Carol placed the lonely message for Kepler eyes to see.     
 
+"And time doesn't wait for me it keeps on rollin'! Sail on!" (Pirate Lady / Carol's characters sailing)
+
+https://youtu.be/TnwqUEelQjE?t=397 chasing ["The American Dream" (Pluribus)](/American_Dream/American_Dream_Machine.md) lyrics: "I've gotta stay in time with, yeah (On-screen Pluribus countdown countup times)! I've got to keep on chasin' *that dream*... Though *I* may never find it *I*'m always just behind it, oo ooo"
+
 &nbsp;
 
 &nbsp;
