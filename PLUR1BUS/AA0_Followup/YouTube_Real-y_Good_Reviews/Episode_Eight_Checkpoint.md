@@ -159,7 +159,44 @@ La Chica, girl daughter. Joyce Finnegans Wake word sound games: "La Chicken eggs
 https://youtu.be/HPg5lM3pKCI?t=219    
 Burned bridges. Divine protection charm. Mercy doesn't exist. Romans 11:32 absent in Dublin, Joyce's 11 32 encoding.  Migrant / immigrant / multi outcast. Multi-cast TCP/IP Radio Shack signal. Saving the world lines. Jihadi.  [Stephen Hero of Joyce, the first Christian martyr (after world reboot / Zero Hour)](https://en.wikipedia.org/wiki/Saint_Stephen) for Mary Eggs on Immigrant ICE State Police (Northern Lights police lights). 
 
-https://youtu.be/HPg5lM3pKCI?t=403     
+https://youtu.be/HPg5lM3pKCI?t=400     
 OPERA_A  https://youtu.be/QkF3oxziUI4?t=209 "Your head is humming, and it won't go, in case you don't know
 The piper's calling you to join him" - "Dear lady, can you hear the wind blow? And did you know
 your stairway lies on the whispering wind?" - 163,325,581 views  July 3, 2018
+
+https://youtu.be/HPg5lM3pKCI?t=507    
+Might not be a metaphor... episode 9 preview image    
+Pink Umbrella OPERA_A The Fall of Man, Why Did I Fall? "It never rains under my umbrella. Four minutes to midnight on a sunny day. Maybe if we smile, the clock'll fade away" - the atomic science atomic clock, New Mexico atomic device origins, Carol's request for a grenade a tank and an atomic countdown countup on-screen.  https://www.youtube.com/watch?v=e7olfvXs2R4
+
+https://youtu.be/HPg5lM3pKCI?t=622    
+Tim Finnegan back to life, already died once. Helen's post-doctorate thesis: Joyce Wake.   
+He is found alive in Jesus cave. Christmas Day Eve Episode 9.    
+The mouse is saved from the trap.   
+Book fandom, audience social media fandom (cesspool WGA February 15, 2025)   
+Killing { Saul, Walter White } fandom admiration of bad-man.    
+Are the original people gone?    
+
+https://youtu.be/HPg5lM3pKCI?t=737   
+Individual choice.   
+
+https://youtu.be/HPg5lM3pKCI?t=799     
+Polish workers solidarity movement. Poland history. Ships going out.    
+
+https://youtu.be/HPg5lM3pKCI?t=924   
+Bring someone back from the underworld, but the free peer may not grasp.    
+
+https://youtu.be/HPg5lM3pKCI?t=975   
+Carol won't accept binary, transgender pirate lady and Helen's Fall at the touch screen social media (WGA February 15, 2025) touchy topic of writers / JK Rowling.    
+
+https://youtu.be/HPg5lM3pKCI?t=1037    
+ALP dish washing / dirty dishes to wash. She has never yelled "bye" to Helen / spouse. Spiritual affair.  
+
+https://youtu.be/HPg5lM3pKCI?t=1088    
+Predictions for Episode Nine. kill -9 death. 
+
+*  Marshall McLuhan - (Joyce media ecology) - media is amputation. Radio Shack storage unit man amputation. https://stream.syscoi.com/2019/05/30/marshall-mcluhan-extensions-and-amputations/ VLA New Mexico 78 seconds radio is amputation.
+
+*  The Matrix - Cure is Neo.
+
+*  What if he dies for the women. Me: snake. Eden snake ;) Wildlife.
+
