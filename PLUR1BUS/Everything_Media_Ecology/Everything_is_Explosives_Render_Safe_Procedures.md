@@ -67,7 +67,7 @@ Carol lives in exile, fandom lives in exile, Earth is hated, Kepler / Eden loved
 # New Mexico Atomic, Manhattan name, Atlanta John One One 
 
 Atlanta critic of fandom of John 1:1     
-Disarming the John 1:1 troubles    
+Disarming the John 1:1 [troubles](https://www.youtube.com/watch?v=CkeDjLZMRRk)    
 
 "The real problem is that through our scientific genius we've made of the world a neighborhood, but through our moral and spiritual genius we've failed to make of it a brotherhood. And the great danger facing us today is not so much the atomic bomb that was created by physical science. Not so much that atomic bomb that you can put in an aeroplane and drop on the heads of hundreds and thousands of people — as dangerous as that is. But the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, capable of exploding into the vilest of hate and into the most damaging selfishness — that's the atomic bomb that we've got to fear today. Problem is with the men. Within the heart and the souls of men. That is the real basis of our problem."          
 "Rediscovering Lost Values"    
