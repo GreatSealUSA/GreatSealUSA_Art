@@ -230,3 +230,26 @@ Another verse from 1997 / 1998 in Ireland!
 *  "The TV special titled Garth Brooks: Ireland and Back originally aired in the United States on March 4, 1998, on NBC" (lag time / post-production media ecology / supply chain / import delays / shipping metaphors)
 
 ToDo: lots here for [the Reddit CopyPasta page](../A_Wake_Wakening/Reddit_Hive_Mind_Copypasta.md) about low-places Vince Gilligan cesspool low-life behaviors of Truth Social USA / Fox News USA / Reddit cultural admiration of Truth Social / Elon Musk behaviors. 
+
+&nbsp;
+
+&nbsp;
+
+# Unwritten 
+
+Book writers with new chapters / unpublished Bitter Pupa work.
+
+https://www.youtube.com/watch?v=b7k0a5hYnSI      
+Natasha Bedingfield - Unwritten (Official Video) (as featured in Anyone But You)     
+178,760,139 views  October 25, 2009    
+
+I am unwritten (Bitter Pupa)     
+Can't read my mind (Hive Mind "Wall Facer" 3-body, "White Board" covers)   
+I'm undefined (Gender of Pirate Man)   
+I'm just beginning ( Bible verse John One One )    
+The pen's in my hand (Yellow pad of paper in Carol's diner)   
+Ending unplanned ( Wildcard, Repeater 78 seconds and beyond VLA)    
+Staring at the blank page before you ( "Novus ordo seclorum" Latin wildcards )     
+Open up the dirty window ( Carol's back yard to Helen grave)     
+Let the sun illuminate the words that you could not find ( John 1;1 child, Christmas star )     
+
