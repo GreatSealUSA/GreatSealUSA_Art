@@ -168,6 +168,22 @@ Democracy does not work without compassion and love.
 
 &nbsp;
 
+# Fandom: navigate a pronoun
+
+https://bsky.app/profile/parkermolloy.com/post/3mahjd5cbp22i
+
+<img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/9b355737-c8fb-4feb-98cb-056ddbe02e82" />
+
+Carol: "All the brains in the world, and you can't navigate a fuckin' pronoun?"
+
+https://www.avclub.com/pluribus-recap-season-1-episode-8-charm-offensive     
+https://www.reddit.com/r/pluribustv/comments/1psi91n/random_thought_as_a_trans_person_minor_episode_8/   
+
+
+&nbsp;
+
+&nbsp;
+
 # See Also
 
 See also: ["Everything is *Lady Day*"](./Everything_is_Lady_Day.md)... for dee[per dives](https://en.wiktionary.org/wiki/muff_diving) / divas.
