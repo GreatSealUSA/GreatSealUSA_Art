@@ -176,6 +176,16 @@ https://bsky.app/profile/parkermolloy.com/post/3mahjd5cbp22i
 
 Carol: "All the brains in the world, and you can't navigate a fuckin' pronoun?"
 
+* This line has **VERY deep meaning about the Latin** word "Pluribus" and associated source. The USA Founding Fathers teachings vs. Levant "He / Him" (Christmas Day ending season one) *pronouns*. Year 1988 "Power of Myth" filmed by George Lucas:
+
+   * JOSEPH CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities."
+
+   * MOYERS: He --
+
+   * CAMPBELL: He, the eye, what is represented by the eye. Reason. **In Latin** you wouldn't have to say "he," it could be "it" or "she" or "he." But the divine power has smiled on our doings.
+ 
+&nbsp;
+
 https://www.avclub.com/pluribus-recap-season-1-episode-8-charm-offensive     
 https://www.reddit.com/r/pluribustv/comments/1psi91n/random_thought_as_a_trans_person_minor_episode_8/   
 
