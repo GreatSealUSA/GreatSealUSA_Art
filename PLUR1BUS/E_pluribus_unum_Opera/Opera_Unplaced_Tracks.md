@@ -253,3 +253,16 @@ Staring at the blank page before you ( "Novus ordo seclorum" Latin wildcards )
 Open up the dirty window ( Carol's back yard to Helen grave)     
 Let the sun illuminate the words that you could not find ( John 1;1 child, Christmas star )     
 
+&nbsp;
+
+# Track: Brandy drinking ship port Pirates
+
+Boozing with Carol. He always tells the truth, like the hive mind.
+
+Alone in her town after hours, Carol on the empty streets of ABQ 
+
+Brandy is there at the hot lesbian ice bed with the Northern Lights port (booze) drinking, but Brandy wants a child and husband! "Looking glass" band name metaphors too!
+
+https://www.youtube.com/watch?v=DVx8L7a3MuE      
+69,795,849 views September 24, 2016     
+Looking Glass - Brandy (You're a Fine Girl) (Official Audio)    
