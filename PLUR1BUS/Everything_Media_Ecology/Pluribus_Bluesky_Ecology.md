@@ -81,7 +81,7 @@ https://bsky.app/profile/rachelwolf.org/post/3manfdhgbx22i
 
 &nbsp;
 
-"What's with the royal "we"? Is Bill Clinton part'
+"What's with the royal "we"? Is Bill Clinton part"
 
 Yes, #PresidentClinton #PresidentObama - all part of promoting what is printed on USA currency, the Dollar Bill Clinton.
 
