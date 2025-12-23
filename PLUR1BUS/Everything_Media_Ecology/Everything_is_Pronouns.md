@@ -176,7 +176,7 @@ https://bsky.app/profile/parkermolloy.com/post/3mahjd5cbp22i
 
 Carol: "All the brains in the world, and you can't navigate a fuckin' pronoun?"
 
-* This line has **VERY deep meaning about the Latin** word "Pluribus" and associated source. The USA Founding Fathers teachings vs. Levant "He / Him" (Christmas Day ending season one) *pronouns*. Year 1988 "Power of Myth" filmed by George Lucas:
+* This line has **VERY deep meaning about the Latin** word "Pluribus" and associated source. The USA Founding Fathers teachings vs. Levant "He / Him" (Christmas Day ending season one) *pronouns*. Year 1988 "Power of Myth" filmed by George Lucas, lessons for science fiction (Star Wars / Hollywood) fandoms:
 
    * JOSEPH CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities."
 
