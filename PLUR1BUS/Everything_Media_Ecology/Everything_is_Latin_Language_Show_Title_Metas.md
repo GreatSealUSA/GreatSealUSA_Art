@@ -1,4 +1,4 @@
-# Everything is *Latin Langauge* Show Title Metas
+# Everything is *Latin Language* Show Title Metas
 
 metaphors of latin langauge.
 
