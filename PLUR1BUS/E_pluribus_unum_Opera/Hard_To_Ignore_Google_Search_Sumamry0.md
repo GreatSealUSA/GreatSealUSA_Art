@@ -6,9 +6,13 @@ I fed this writing of mine into Google Search (without the quotes, unquoted):
 
 "That's what ChatGPT users do all the time. Very very very popular in December 2025 USA. "ChatGPT, rewrite other people's original writings so it is meaningful just to me"! The magic of Large Language Models and how the Pluribus TV story hive mind all can read and write in any of the world's languages. Bible verse John 1:1 ( originally written in Koine Greek language ) Christmas Day symbolism of birth of a language - John 1:1 season ending of episode 9. Carol has her new set of magic markers delivered on demand, just in time, to pen new lesbian introductions to John 1:1 storytelling for All of Us, We is Us, Pluribus."
 
-and here is how it instantly responded (Google does the highlighting, I did not add that):
+&nbsp;
+
+And here is how it instantly responded (Google does the highlighting, I did not add that):
 
 <img width="2406" height="1502" alt="image" src="https://github.com/user-attachments/assets/c7045c1b-750a-45a6-8d2e-c91069b9a75a" />
+
+&nbsp;
 
 It goes on beyond my screen shot tool limits, here is a copy / paste of the whole thing:
 
