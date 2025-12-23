@@ -243,3 +243,16 @@ Scene of the explosive devices, crimes against humanity.
 "Torture" by The Cure, 1987 album Kiss Me, Kiss Me, Kiss Me
 
 Episode 8, boozing up Carol is tortured by the rebuilding of her Pirate Lady origins settings.
+
+&nbsp;
+
+# Track: Could it be *anybody* Carol?
+
+https://youtu.be/7Q5O2AfbuOU?t=132      
+131,982 views  January 25, 2018    
+
+Do you believe at *love at first sight* of Pirate Lady incarnated from outer space aliens / immigrant alien to ABQ?
+
+Cover band: The Peace Conspiracy, Pluribus Harmony.      
+Outer space science fiction legends... pregnancy for { Carol's eggs, Mary's father } Luke 2:14 this Christmas season ending.     
+
