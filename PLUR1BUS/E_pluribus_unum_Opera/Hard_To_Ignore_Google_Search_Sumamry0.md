@@ -54,3 +54,42 @@ Response from Google Search:
 
 "It is possible that the show name or the book title is different, or the event did not occur as described. The name Pluribus is often associated with the Latin phrase E pluribus unum ("Out of many, one"), which appears on U.S. currency and the Great Seal."
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Carol writing for "the Plebs" audiences
+
+&nbsp;
+
+Tuesday, December 23, 2025 afternoon USA    
+Before Episode Nine has aired    
+
+My Google Search, without the one set of outer-most surrounding quotes: "This is not a "ELI3", "ELI5" story. Vince Gilligan and his writing staff made this clear with minute 22 of Episode One (the Pluribus Pilot) and dialog about Finnegans Wake. That scene between Helen and Carol is also in the 1988 book. Helen and Carol discuss writing for "the plebs" fandom and doing reveals on social media before Helen falls backwards an dies (hitting her head)."
+
+&nbsp;
+
+https://share.google/aimode/NYUIjgrUD6s9EOJe0       
+Google Deep Dive response:
+
+In the pilot episode of Pluribus (Apple TV+, 2025), written and directed by Vince Gilligan, the conversation you referenced occurs roughly 23 minutes into the episode between Carol Sturka (Rhea Seehorn) and her manager/partner Helen (Miriam Shor). 
+
+* The scene and the connection to the 1988 book involve the following details:
+The Finnegans Wake Discussion: While having drinks at a "Public House," Helen mentions having studied James Joyce’s Finnegans Wake in graduate school. She critiques the idea of inaccessible "high art," noting that the book made her miserable. She argues that if an author makes even one person happy (referring to Carol's popular romance novels written for "the plebs"), then they have achieved something meaningful, even if it isn't considered "art" by elitist standards.
+
+* The 1988 Connection: The dialogue serves as a direct reference to the source material—the 1988 novel upon which the series is based—which similarly used the Joyce comparison to bridge the gap between "high literature" and genre fiction.
+
+* Social Media & Fandom: The characters discuss the demands of their fandom, including the pressure to provide "reveals" and engagement on social media, which Carol finds exhausting and shallow.
+Helen’s Death: Shortly after this conversation, the global "signal" hits. As the virus takes hold, Helen freezes, then falls backward, hitting her head on the concrete. While others in the tavern also collapse and eventually wake up into the hive mind, Helen dies from the trauma of the fall, leaving Carol as one of the few immune survivors in a world of connected "Others". 
+
+This sequence is widely noted by viewers as the moment Gilligan signals that Pluribus is a complex, circular narrative—much like Finnegans Wake itself—rather than a straightforward sci-fi thriller. 
+
+&nbsp;
+
+**Commentary from me (who authored the search prompt line) about Google deep dive's response and assumptions***: The 1988 book in the Reddit reply context of this paragraph (fed by paste into Google deep dive after Google Search returned nothing)... was the 1988 book "Power of Myth" from science fiction fandom H.Q. Skywalker Ranch, California. A **non-fiction** book for fandom education. Without further context, the Google large language model assumed I was referencing a fiction novel. But the assertions about Helen and Finnegans Wake at minute 22 of Episode One are high remarkable and why I recorded this on GitHub. As more Pluribus audience media content is generated in the future. these large language models will give different answers down the line.
