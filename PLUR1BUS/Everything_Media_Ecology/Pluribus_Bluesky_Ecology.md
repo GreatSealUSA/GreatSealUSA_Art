@@ -68,3 +68,23 @@ https://bsky.app/profile/radical-care.bsky.social/post/3maeu6zzxlc2j
 Some people consider science fiction without { laser swords, space ship fights, blaster guns } to be "BOOORING". Topic of world peace and mental harmony.
 
 * Intentional part of the story. Luke Skywalker Ranch, 1998, Power of Myth: "BILL MOYERS: **Perfection would be a bore**, wouldn’t it? JOSEPH CAMPBELL: It would have to be. It would be inhuman."
+
+&nbsp;
+
+&nbsp;
+
+# President Bill Clinton Pluribus
+
+https://bsky.app/profile/rachelwolf.org/post/3manfdhgbx22i
+
+<img width="1804" height="452" alt="image" src="https://github.com/user-attachments/assets/58892714-085e-432b-bbbd-df51c101066d" />
+
+&nbsp;
+
+"What's with the royal "we"? Is Bill Clinton part'
+
+Yes, #PresidentClinton #PresidentObama - all part of promoting what is printed on USA currency, the Dollar Bill Clinton.
+
+"We The People of the United States of America"
+
+https://en.wikipedia.org/wiki/E_pluribus_unum
