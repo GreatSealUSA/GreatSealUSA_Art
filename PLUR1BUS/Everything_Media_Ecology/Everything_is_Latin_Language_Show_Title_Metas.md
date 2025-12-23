@@ -52,7 +52,7 @@ Asserting the phrase: "Helen and Carol are in the story of Finn's Haunted Hotel,
 
 3. Helen touches the touch device lights. Finn's Haunted Hotel of social media ecology, Joycean McLuhan University of Tornto media ecology dispelling the haunting with media medium self-awareness.
 
-4. McLUhan met with John Lennon - haunted "Imagine" lyrics of Utopia hive mind / Florida band "Death of the Peacemakers" hive mind RNA hauntings.
+4. McLuhan met with John Lennon - haunted "Imagine" lyrics of Utopia hive mind / Florida band "Death of the Peacemakers" hive mind RNA hauntings.
 
 &nbsp;
 
