@@ -37,3 +37,22 @@ After Episode Seven, day of Episode Eight. 2025-12-18
 https://bsky.app/profile/peergum.com/post/3mabm6gwmrs2g
 
 Homework: Minute 22, reading Finnegans Wake, more is happening if you do the Pluribus homework reading assignments ;)
+
+&nbsp;
+
+# Fandom Women Hate
+
+December 22, 2025    
+https://bsky.app/profile/sisi2010.bsky.social/post/3mamppupjcs2e     
+
+<img width="1818" height="614" alt="image" src="https://github.com/user-attachments/assets/055ec3ce-5b36-486b-98ce-893638958124" />
+
+&nbsp;
+
+"I don't understand the Carol hate. Like she's being very rational"
+
+I don't think hate is ever good. That said, Carol is a heavy boozer and drinking with a DUI device on her car in the show. (in response to "being very rational")
+
+HASHTAGS: The #WalterWhite fandom has some very strange hate behaviors towards #women characters. #AnnaGunn
+
+https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html
