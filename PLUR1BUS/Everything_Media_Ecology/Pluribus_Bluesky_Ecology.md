@@ -56,3 +56,15 @@ I don't think hate is ever good. That said, Carol is a heavy boozer and drinking
 HASHTAGS: The #WalterWhite fandom has some very strange hate behaviors towards #women characters. #AnnaGunn
 
 https://www.vulture.com/2018/07/breaking-bads-anna-gunn-looks-back-on-bizarre-fan-hate.html
+
+&nbsp;
+
+# SciFi without laser swords / blasters
+
+https://bsky.app/profile/radical-care.bsky.social/post/3maeu6zzxlc2j
+
+<img width="1802" height="686" alt="image" src="https://github.com/user-attachments/assets/887c2732-1174-4049-bc85-e2648507dd18" />
+
+Some people consider science fiction without { laser swords, space ship fights, blaster guns } to be "BOOORING". Topic of world peace and mental harmony.
+
+* Intentional part of the story. Luke Skywalker Ranch, 1998, Power of Myth: "BILL MOYERS: **Perfection would be a bore**, wouldn’t it? JOSEPH CAMPBELL: It would have to be. It would be inhuman."
