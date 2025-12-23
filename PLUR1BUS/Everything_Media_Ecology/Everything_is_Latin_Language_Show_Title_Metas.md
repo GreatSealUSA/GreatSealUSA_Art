@@ -42,6 +42,8 @@ OPERA_A Get your warmth from booze and smoking fags metaphors: Northern Lights s
 
 ## 1923 Finn's Haunted Hotel   
 
+“Very similar to the **Latin aqua vitae**, literally 'water of life,' which becomes the Scandinavian aquavit” - Hive Mind via Zosia
+
 Asserting the phrase: "Helen and Carol are in the story of Finn's Haunted Hotel, 1923 Joyce"
 
 1. Sagan 1995 Haunted Hotel. Walter White grave Public House. They are in a haunted metaphors hotel of Finn's Hotel cycles. We The People are. Writers Guild WGA message from show creator.
