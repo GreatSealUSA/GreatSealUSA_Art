@@ -36,3 +36,15 @@ https://en.wikipedia.org/wiki/Edict_of_Thessalonica
 In fiction characters we trust from the Levant. Bible verse "1 John 4:20" - *have you seen God*, seen Jesus, seen Allah, *seen* Yahweh? 2,000 years ago challenge question: "1 John 4:20" regarding fiction storytelling popularity.
 
 Year 380 comes *before* year 1776. This is the "Old World Order" before the "New World Order" art interpretation of the Great Seal of the United States of America.
+
+&nbsp;
+
+# Thomas Jefferson Year 1820
+
+Year 1820 addressing the fiction storytelling elements and clearly marking it as fiction.
+
+Jefferson Bible. Not the "King James of England" Bible.   
+
+https://en.wikipedia.org/wiki/Jefferson_Bible       
+The Life and Morals of Jesus of Nazareth     
+Year 1820    
