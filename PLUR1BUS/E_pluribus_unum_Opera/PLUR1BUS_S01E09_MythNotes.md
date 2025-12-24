@@ -282,3 +282,10 @@ All this thrusts the Christmas December 25 season (Episode 9, season ending, Win
 
 [March 25 spring fertility vs. December 25 birthing. **Lady Day** in March.](../Everything_Media_Ecology/Everything_is_Lady_Day.md) Who is the book author, story writer, of science fiction John 1:1 - womankind of outer-space messages from an alien planet?
 
+&nbsp;
+
+# 00:49:40 The Title of the series now in-show
+
+Now inside the show, the title of the series as messages for the first time (that I have witnessed, maybe a dollar bill, and the Air Force One POTUS seal).
+
+The stem cells and "Pluri" invasion.
