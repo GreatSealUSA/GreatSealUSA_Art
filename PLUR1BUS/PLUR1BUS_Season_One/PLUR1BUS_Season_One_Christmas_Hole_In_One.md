@@ -131,7 +131,7 @@ Lesbian parenting, paradoxes abound in this lust! [Carol's Libido over hive mind
 
 # Vince Gilligan Team Hits 13
 
-In the 13th month, Vince Gilligan landed right on the Great Seal spot like the image currently on the front-page of this GitHub project! The stars alight, Page 581 of Finnegans Wake, year 1923 Finn's Hotel, ABQ from Dublin. Helen's post-doc thesis in the Public House at Minute 22 was a message to all the free worlds that Kepler 22 has a new King of Kings! Pluribus, We The People, Pale Blue Dot pride that Vince Gilligan has started to describe!
+In the 13th month, Vince Gilligan landed right on the Great Seal spot like the [image currently on the front-page of this GitHub project](/)! The stars alight, Page 581 of Finnegans Wake, year 1923 Finn's Hotel, ABQ from Dublin. Helen's post-doc thesis in the Public House at Minute 22 was a message to all the free worlds that Kepler 22 has a new King of Kings! Pluribus, We The People, Pale Blue Dot pride that Vince Gilligan has started to describe!
 
 Latin Pluribus, 13th month retail of Apple iPhone / Apple iPad devices The Greatest Ever bonus of USA Great Seal mythology ever created! https://en.wikipedia.org/wiki/Thirteenth_salary   
 
