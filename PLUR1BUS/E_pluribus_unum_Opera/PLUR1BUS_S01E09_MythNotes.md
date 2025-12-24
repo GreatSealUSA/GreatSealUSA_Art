@@ -81,3 +81,13 @@ The tear-down of the ritual, the ceremony is over. The power of human rituals to
 
 * "Then the little couple is pulled out and roasted and eaten that very evening. The ritual is the repetition of the original act of the killing of a god followed by the coming of food from the dead savior. In the sacrifice of the Mass, you are taught that this is the body and blood of the Savior. You take it to you, and you turn inward, and there he works within you."
 
+&nbsp;
+
+# 12:00 end of season
+
+Start of the season: Carol is rushing around on Air Force One and sending out videos to the 13 begging people to resist the hive invasion.
+
+End of the season: now she acts like business as usual. Why would any free person want to meet and discuss resisting the alien invasion? 
+
+60 days has changed Carol from day 6.
+
