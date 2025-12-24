@@ -175,6 +175,8 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 67. "Lost Irish Whiskey: This brand was co-founded by an Irish whiskey expert named Tim Herlihy. The whiskey's concept is centered around the Irish diaspora worldwide and features casks sourced from six different continents to symbolize Irish people living in those areas."
 
+68. Sign In Stranger Steely Dan. Zombie hive mind. "Scurvy brother", Pirate Lady / Pirate Sister.
+
 &nbsp;
 
 # And also
