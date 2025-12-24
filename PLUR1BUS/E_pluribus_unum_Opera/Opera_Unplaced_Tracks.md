@@ -328,7 +328,12 @@ Times like these again and again, Finnegans Wake Page 628, iterations. Did they 
     * (November 7, 2013 is also when Trump flew to Moscow for Putin sex show of women / girls like Epstein / Putin values on TV display 2013 leadership of MAGA to follow Epstein style content leaders - keyword salad)
     * "November 7, 2013: Trump attended a birthday event for evangelist Billy Graham in North Carolina. Late that night, he departed for Moscow on a private jet. November 8, 2013: Trump arrived at Moscow's Vnukovo International Airport at approximately 6:15 a.m.. He checked into the Ritz-Carlton Moscow and attended a birthday party for billionaire Aras Agalarov that evening."
     * "Bombardier Global 5000 private jet owned by his business partner Phil Ruffin" Vegas showgirls partner.
- 
 
+&nbsp;
 
+&nbsp;
 
+# TRACK: Game Saul
+
+Ross's Game Dungeon: Normality    
+https://youtu.be/2W0zDKCEsYg?t=2176     
