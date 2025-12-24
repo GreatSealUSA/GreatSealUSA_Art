@@ -298,4 +298,22 @@ The stem cells and "Pluri" invasion.
 
 Age 16 Lesbian internment camp against Carol by her parental figures / God forced by Catholic Church / Roman Empire (see notes on 00:31:30 earlier in this page), in a woods setting the the ski resort. The trap of the Catholic fertility forced { abortion, birth control } on women. Even if it is a "believer" woman partner, the independent free (USA Pluribus) woman stands up like Malala in Swat Valley Pakistan does for transgenders against the Mecca empire of Quran hive mind. https://assembly.malala.org/stories/how-using-trans-inclusive-language-benefits-us-all
 
+&nbsp;
 
+# 00:54:30 You Win
+
+Save the galaxy, as the hive mind intends to re transmit to other planets. Death Star thinking of the rebels.
+
+USA Latin *Pluribus*, Air Force One, Nuclear Football dialog at Air Force One meeting table. New Mexico is where the alien invasion was received at the VLA. New Mexico is where humanity created the nuclear bomb. Walter White is a scientist / science teacher and the Zero Hour was at the ABQ New Mexico location of Walter's grave.
+
+I'm surprised how many people keep skipping the book author, book publisher, book tour, book writing connections. Stephen King, the famous American book author, made a book about an atomic bomb in Vegas.
+
+The West Gate hotel in Vegas, where Carol took her police car to visit. Stephen King has a nuclear bomb book about a military virus outbreak (lab rat escape situation like Pluribus).
+
+People never read Stephen King's virus story?
+
+On-screen countdown bomb timers every episode. Trinity Site in New Mexico, *Jornada del Muerto*, Trinity ending of the season on Trinity holiday. Symbolism and book reading seems dead like Helen is dead!
+
+....
+
+Of course, "you win" isn't a win. Writing and poetry has only been played with a chapter from Carl's new writing. The Great Seal Eagle points to the olive branch, and Carol hasn't used lecturing very much / diplomacy very much. She turns to the man who uses the arrows and aggression of the Great Seal eagle first. He was reading books like a Walter White man of science and electronics, not spiritual storytelling and Joyce / Carol's books / etc. So that's likely the focus of the next season. Creating new laws and conventions of a "liberated" humanity, the culture of the Rebels against the Empire hive mind.
