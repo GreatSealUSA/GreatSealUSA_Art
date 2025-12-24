@@ -213,6 +213,10 @@ OPERA_A https://www.youtube.com/watch?v=_bmBYgGjkfQ 24,143 views July 24, 2021 G
 
 &nbsp;
 
+&nbsp;
+
+&nbsp;
+
 # 00:31:30 Troubadour Love, R. O. M. A. empire
 
 Now we are getting extremely deep and serious about a lesson ignored and avoided in society since year 1988. Oh boy. West Gate hotel, Elvis. "The Gate to the West" that is in Vegas symbolism.
@@ -226,6 +230,10 @@ Now we are in the deep shit of Carol's parents and the age 16 Lesbian internment
 Marriage and "monster state" society of ICE and Africa / Polish immigrant ownership. And how Carol's phone call in Spanish was to only curse-out and hate message. It is ALL coming out in the symbolism here. There is no real RNA message of 78 seconds in this fiction story, but this topic is NON-FICTION USA ABQ Vegas "West Gate" gate-keeping of understanding and compassion hotel and 1988 book lessons for science fiction audiences! Vince Gilligan has DONE IT NOW ON CHRISTMAS! I personally was married in Vegas, it is a popular marriage spot. Heartbreak Hotel Elvis. OPERA_A "Elvis performing "HEARTBREAK HOTEL" on Stage Show - March 17, 1956" - https://www.youtube.com/watch?v=MzRnKQrm61w 354,659 views December 30, 2018
 
 Oh boy, has Vince Gilligan dug deep!
+
+The stranglehold over humanity that the Catholic church held! **Helen's post-doc thesis at minute 22 of Episode One (the Zero Hour countdown)**. James Joyce. "I make open war upon it by what I write, and say, and do."; "There is no heresy or no philosophy which is so abhorrent to my church as a human being."; https://scholarsarchive.byu.edu/cgi/viewcontent.cgi?article=1016&context=english_symposium ("James Joyce and His War with the Catholic Church. By Kimball Gardner")
+
+&nbsp;
 
 ### Landing on 1988 Protest Very Dangerous
 
