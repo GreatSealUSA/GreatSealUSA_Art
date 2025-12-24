@@ -26,5 +26,16 @@ Intentional, we Pluribus (We The People) not understanding each other
 Even beyond the loud moments    
 People don't understand the dollar bill, in their face their whole life. One has to make effort   
 
+&nbsp;
 
+&nbsp;
 
+# Junk media
+
+https://www.youtube.com/watch?v=O494CypwKX0     
+3,116 views  Premiered December 20, 2025    
+
+"¿Es necesario el sonido irritante de notificacion de mensajes? Al final es un resumen aburrido de la película narrado por una I.A.     
+No tiene sentido tu video."
+
+Computer generated junk?
