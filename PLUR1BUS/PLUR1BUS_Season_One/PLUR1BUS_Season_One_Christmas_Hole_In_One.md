@@ -124,3 +124,15 @@ James Joyce year 1923 Finn's Hotel heresy against the Roman Empire Clergy Rulers
 Extracting the hive mind with lust and compassion. Minute 22 of Episode One of Pluribus is James Joyce's Finnegans Wake post-doc thesis of Helen in a *Public House*.     
 
 Lesbian parenting, paradoxes abound in this lust! [Carol's Libido over hive mind credo!](https://billmoyers.com/content/ep-5-joseph-campbell-and-the-power-of-myth-love-and-the-goddess-audio/)
+
+&nbsp;
+
+&nbps;
+
+# Vince Gilligan Team Hits 13
+
+In the 13th month, Vince Gilligan landed right on the Great Seal spot like the image currently on the front-page of this GitHub project! The stars alight, Page 581 of Finnegans Wake, year 1923 Finn's Hotel, ABQ from Dublin. Helen's post-doc thesis in the Public House at Minute 22 was a message to all the free worlds that Kepler 22 has a new King of Kings! Pluribus, We The People, Pale Blue Dot pride that Vince Gilligan has started to describe!
+
+Latin Pluribus, 13th month retail of Apple iPhone / Apple iPad devices The Greatest Ever bonus of USA Great Seal mythology ever created! https://en.wikipedia.org/wiki/Thirteenth_salary   
+
+Latin Pluribus. "The word undecimber is based on the Latin word undecim meaning "eleven"..." https://en.wikipedia.org/wiki/Undecimber Duodecember.
