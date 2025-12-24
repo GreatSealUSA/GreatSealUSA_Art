@@ -63,3 +63,18 @@ Sold to society.. sold to advertising for Free Social media Reddit / Twitter / D
 https://youtu.be/GTWQv8RsI6s?t=68 part 2: Disease of alien invasion, Carol's child egg basket taken from her: "with the discovery of his disease... We'll take the child from him, put it to the test" (lab testing lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" lab rat episode name of pilot).
 
 
+&nbsp;
+
+&nbsp;
+
+# Episode 9 Title from Top
+
+From the top with the Title (not released until a week before, confirm?)...
+
+*La Chica* or ...      
+
+https://youtu.be/GTWQv8RsI6s?t=68 Part 2: Disease of alien invasion, Carol's child egg basket taken from her: **"with the discovery of his disease... We'll take the child from him, put it to the test"** (stem cells, lab testing white lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" take child from free independent Carol). Egg piracy.
+
+... *huevo (or huevos) can be used vulgarly for "testicles" or in phrases like "¡A huevo!" meaning "Definitely!" or "¿Qué huevo?" meaning "What a drag!"*
+
+The Chicks or their Eggs.
