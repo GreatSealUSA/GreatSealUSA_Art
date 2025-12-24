@@ -191,5 +191,11 @@ OPERA_A https://www.youtube.com/watch?v=vLtmmFjxSoc 119,287,003 views April 18, 
 * "Native American messages in circles, primarily through Talking Circles, emphasize equality, respect, healing, and interconnectedness, using the circle to symbolize wholeness, life cycles, and unity, allowing everyone a voice through focused listening"
 
 
+&nbsp;
 
+# 00:25:15 who on phone?
+
+Despite being Pirate Lady on phone (a familiar comfort voice / comfort sex), Carol has concluded it is *always them* she talks too. The booze begins, back into author James Joyce's dream state for Carol.
+
+After 60 days, she can not penetrate what she considers the essential person. (ToDo: Little Prince quotes).
 
