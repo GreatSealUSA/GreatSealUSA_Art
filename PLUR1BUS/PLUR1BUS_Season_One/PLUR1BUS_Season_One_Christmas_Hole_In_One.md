@@ -136,3 +136,23 @@ In the 13th month, Vince Gilligan landed right on the Great Seal spot like the [
 Latin Pluribus, 13th month retail of Apple iPhone / Apple iPad devices The Greatest Ever bonus of USA Great Seal mythology ever created! https://en.wikipedia.org/wiki/Thirteenth_salary   
 
 Latin Pluribus. "The word undecimber is based on the Latin word undecim meaning "eleven"..." https://en.wikipedia.org/wiki/Undecimber Duodecember.
+
+&nbsp;
+
+&nbsp;
+
+# Vince Gilligan Quotes 
+
+Episode 9, Christmas Eve / Christmas Day quotes
+
+https://variety.com/2025/tv/news/pluribus-finale-explained-vince-gilligan-original-ending-1236616824/
+
+GILLIGAN: "Well, literally, the Others are very lawyerly."
+
+Holiday overlords, Levant Christmas land fame.
+
+JOSEPH CAMPBELL: It is this sociological function of myth that has taken over in our world—and it is out of date.
+
+BILL MOYERS: What do you mean?
+
+CAMPBELL: **Ethical laws. The laws of life** as it should be in the good society. All of Yahweh’s pages and pages and pages of what kind of clothes to wear, how to behave to each other, and so forth, in the first millennium B.C.
