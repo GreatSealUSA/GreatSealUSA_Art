@@ -91,3 +91,17 @@ End of the season: now she acts like business as usual. Why would any free perso
 
 60 days has changed Carol from day 6.
 
+&nbsp;
+
+# 16:00 
+
+Dear reader of this no-audience GitHub art project (GitHub as medium of artwork) 
+
+I was set up and disappointed at first, but now the show is really going where I was concerned since December 16, 2009 and my personal travel to Africa for the Ara Spring in year 2010.
+
+Language. Here the smartphone in airplane mode, offline, can bridge the language gaps of humanity. An author / writer, English, Tower of Babel!
+
+Tower of Babel has been my major concern before this show as ever announced. We have the Internet / World Wide web, Unicode standard for many characters, but we do use filter-bubbles and toxic clergy systems to block each other out as humans.
+
+This whole scene has been depicting the alienation of language and strangers. Immigration. Calling to the April 2021 book by President George W. Bush https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants - as the USA created the Internet network, but we don't use the tools to come together, we are alienated and impatient with humans and block them / close our doors.
+
