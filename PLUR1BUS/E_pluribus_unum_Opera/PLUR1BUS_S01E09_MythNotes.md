@@ -59,6 +59,8 @@ Now, today there is no out-group anymore on the planet. And the problem of a mod
 
 # 06:00 
 
+The expectations of what this was about, Carol's eggs and surrogate motherhood. The Christmas eve rituals of childbirth.
+
 "We would never hurt you" to the young woman with the pregnancy gift in a stainless steel canister. 
 
 Throughout human history, tens of thousands of years and longer, pregnancy has been an extreme health risk to women. A pregnant woman is slowed down / pained / vulnerable. She needs special foods  / nutrition. She can bleed out or have a dead fetus inside her body. Coffin birth: https://en.wikipedia.org/wiki/Coffin_birth
@@ -71,5 +73,11 @@ She asks "Will it hurt" to the elders, childbirth if rarely painless for any hum
 
 * Young woman whose name means "River of Joy" in Quechua, is one of the few individuals who have not been absorbed into a global hivemind - one of the free-thinking 13 is manipulated by the { advertising, marketing, selling commutations and manipulation methods } of those in power in the world.
 
-Further, they have manipulated this young woman to go against the desires and wishes of another free individual, Carol. Turning a free person into an agent of abuse of another free person.
+~~Further, they have manipulated this young woman to go against the desires and wishes of another free individual, Carol. Turning a free person into an agent of abuse of another free person.~~
+
+&nbsp;
+
+The tear-down of the ritual, the ceremony is over. The power of human rituals to overcome fear.
+
+* "Then the little couple is pulled out and roasted and eaten that very evening. The ritual is the repetition of the original act of the killing of a god followed by the coming of food from the dead savior. In the sacrifice of the Mass, you are taught that this is the body and blood of the Savior. You take it to you, and you turn inward, and there he works within you."
 
