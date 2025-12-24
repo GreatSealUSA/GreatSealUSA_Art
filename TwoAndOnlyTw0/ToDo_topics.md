@@ -35,3 +35,12 @@ False labor, false "Southern Hospitality" of Deep South New Mexico stereotypes. 
 
 Carol's custom crafted ABQ hood. the hood built by Walter White Saul television California Apple //+ computer empire apps empire song empire iTunes money. https://old.reddit.com/r/pluribustv/comments/1p2mtjw/the_set_in_the_middle_of_private_property_in_the/ - like she sells books, on Apple book store money. **Carol's hood** values of homestead, and wearing a KKK police car driving hood to defend her suburban oasis hood against *aliens* / immigrants. She drinks Vodka red gun loving hood KKK Russian drink... not Tequila Mexico in New Mexico dominates. https://www.youtube.com/watch?v=aqQv3qef21A It's no fun being around Carol who bombs her guests and hugs the atomic bomb of Walter White science skills.   
 
+&nbsp;
+
+# Aliens as Kings
+
+https://old.reddit.com/r/todayilearned/comments/1puozoc/til_a_chinese_princess_told_her_brother_the_king/   
+
+Elvis King ruler at West Gate Vegas. Alien outer-space science fiction invaders declaring king over hive minds, king vs. king, king of king and Christmas Eve Christmas Day Episode 9 pointing to Revelation 19:16 - Steely Dan "King of the World" Santa Fe New Mexico, Ham Radio Shack. Sex as kingdom power over "the plurbs" plebs: "The Plurbs would know that they are expected to keep the body intact ... You always end up with an elite class ruling over the plebs (e.g. Soviet" https://boards.4chan.org/tv/thread/216724145/plurb-pluribus-general
+
+Honey Pot, Sex Pot, Lesbian Honey, Carol Drinks Vodka from *over there* and avoids Tequila (Old Mexico / White KKK values of white sheet white liquor). Reposado tequila, not that white stuff bland Russian Soviet drink Carol favors from the honey pot delivery / honey bear / lesbian partner bear.  The ABQ airport arrival to shave and clean "her bear". "Her bottom", her "bitch" tamed and domesticated alien. Yo, listen up, here is the story Kepler 22B B B B Blue world with oceans and Pale Blue Dot... https://www.youtube.com/watch?v=4iwHb189X84
