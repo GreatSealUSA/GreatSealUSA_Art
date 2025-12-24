@@ -266,3 +266,13 @@ Brandy is there at the hot lesbian ice bed with the Northern Lights port (booze)
 https://www.youtube.com/watch?v=DVx8L7a3MuE      
 69,795,849 views September 24, 2016     
 Looking Glass - Brandy (You're a Fine Girl) (Official Audio)    
+
+&nbsp;
+
+# Track: Another Scurvy Sister, Pirate
+
+Be born again you HiveMind, Carol's eggs birth / stem cells.    
+https://youtu.be/qaXgQ-MghwY?t=197     
+
+* The term "Scurvy Sister" appears to refer to the unnamed sister of the character Punk Scurvy from the fan-made One Piece World Wiki.
+
