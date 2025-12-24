@@ -81,3 +81,4 @@ The Chicks or their Eggs. **Alien abduction** / stem cell **alien probing** of C
 
 https://youtu.be/GTWQv8RsI6s?t=521 The Creation of Kings, King of Kings Christmas Story Eve Day Episode 9, has begun! In the Re-Beginning. Revelation 19:16 - the King Elvis on Air Force One with the Nuclear Football (brain damaging football / Tim + Helen ladder falls) who went to West Gate Elvis Suite.
 
+https://youtu.be/GTWQv8RsI6s?t=972 The hive mind helped Carol pick up Helen dead, your dead... out of her stolen (police state take over by Carol the police) truck... but she demanded they stop. They helped air-lift equipment to dig a hole for Helen. Taking out the dead. Join your voices in the Hellish Chorus. Carol Christmas ending.
