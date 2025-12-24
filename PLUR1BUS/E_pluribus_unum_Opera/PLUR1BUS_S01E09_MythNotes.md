@@ -199,3 +199,15 @@ Despite being Pirate Lady on phone (a familiar comfort voice / comfort sex), Car
 
 After 60 days, she can not penetrate what she considers the essential person. (ToDo: Little Prince quotes).
 
+&nbsp;
+
+# 00:30:30 Latin language "ToTo"
+
+Latin show title, go deeper on Spanish language to same meaning. *Todo* Spanish --> *ToTo* Latin
+
+The pet dog, house pet Zosia of Wizard of Oz Dorthy. 
+
+OPERA_A https://www.youtube.com/watch?v=_bmBYgGjkfQ 24,143 views July 24, 2021 Going to sell my house in town (ABQ). And i'll be there to shine in your world. Take me by the hand, show me!
+
+* "The band Toto's name has dual origins: initially a placeholder on demo tapes from The Wizard of Oz dog, but officially adopted from the Latin phrase "in toto," meaning "all-encompassing," reflecting their versatile musical style. While the dog inspired the initial scribble, the band embraced the Latin meaning to highlight their ability to play various genres like rock, pop, jazz, and R&B."
+
