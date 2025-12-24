@@ -143,7 +143,7 @@ CAMPBELL: Not at all.
 
 &nbsp;
 
-# 00:27:30 Abandoned for 40 days
+# 00:20:30 Abandoned for 40 days
 
 Christmas eve / Christmas day season ending. 
 
@@ -173,4 +173,23 @@ General Meaning of "40"
 * Testing & Trial: A common theme is that 40 days/years are a period where people are tested in solitude to see if they rely on God or worldly things.
 * Preparation: It's a time to prepare for a significant spiritual change, covenant, or new phase (like birth, as in 40 weeks of gestation, or a ruler's reign).
 * Completeness: It marks a complete cycle of testing, often preceding a breakthrough or divine intervention (e.g., after 40 days, the giant falls or the rain stops). 
+
+&nbsp;
+
+# 00:20:45 Carol's denial of love
+
+Manousos Oviedo asks: Why did they come back?
+
+Carol pauses like the hive mind does while thinking, lies through her teeth that she doesn't know why they came back after 40 days.
+
+Carol made a massive message in the circle in front of her house to invite them back, she begged them to come back after 40 days of fasting without them in ABQ. Carol sent out fireworks, Native American smoke signals, and messages to the sky / broadcasting her romance.
+
+OPERA_A https://www.youtube.com/watch?v=vLtmmFjxSoc 119,287,003 views April 18, 2019 Carol went all around town in her police car, trying to forget Pirate Lady...
+
+* Carol's denial of Love on season end Christmas. Bible verse Ephesians 4:25
+
+* "Native American messages in circles, primarily through Talking Circles, emphasize equality, respect, healing, and interconnectedness, using the circle to symbolize wholeness, life cycles, and unity, allowing everyone a voice through focused listening"
+
+
+
 
