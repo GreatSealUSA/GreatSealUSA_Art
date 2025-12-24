@@ -289,3 +289,13 @@ All this thrusts the Christmas December 25 season (Episode 9, season ending, Win
 Now inside the show, the title of the series as messages for the first time (that I have witnessed, maybe a dollar bill, and the Air Force One POTUS seal).
 
 The stem cells and "Pluri" invasion.
+
+&nbsp;
+
+# 00:50:00 We have to Fix You Lesbian
+
+"We have to do this because we love you" 
+
+Age 16 Lesbian internment camp against Carol by her parental figures / God forced by Catholic Church / Roman Empire (see notes on 00:31:30 earlier in this page), in a woods setting the the ski resort. The trap of the Catholic fertility forced { abortion, birth control } on women. Even if it is a "believer" woman partner, the independent free (USA Pluribus) woman stands up like Malala in Swat Valley Pakistan does for transgenders against the Mecca empire of Quran hive mind. https://assembly.malala.org/stories/how-using-trans-inclusive-language-benefits-us-all
+
+
