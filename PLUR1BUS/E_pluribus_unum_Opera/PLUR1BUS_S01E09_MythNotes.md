@@ -211,3 +211,49 @@ OPERA_A https://www.youtube.com/watch?v=_bmBYgGjkfQ 24,143 views July 24, 2021 G
 
 * "The band Toto's name has dual origins: initially a placeholder on demo tapes from The Wizard of Oz dog, but officially adopted from the Latin phrase "in toto," meaning "all-encompassing," reflecting their versatile musical style. While the dog inspired the initial scribble, the band embraced the Latin meaning to highlight their ability to play various genres like rock, pop, jazz, and R&B."
 
+&nbsp;
+
+# 00:31:30 Troubadour Love, R. O. M. A. empire
+
+Now we are getting extremely deep and serious about a lesson ignored and avoided in society since year 1988. Oh boy. West Gate hotel, Elvis. "The Gate to the West" that is in Vegas symbolism.
+
+The communal sleeping Zosia offered an orgy (ToDo: find episode timestamp, link GitHub location)
+
+Did they have a wedding? nope. Did Carol do a ritual, like "going steady", a ring, a promise of a marriage. NOPE! Carol tossed out all those rituals and threshold crossings!
+
+Now we are in the deep shit of Carol's parents and the age 16 Lesbian internment torture camp. Now it is all coming out about USA society reality. The ignored 1988 book! Vince Gilligan has done it! February 15, 2025 he named Darth Vader in a subtle way. He invoked Skywalker Ranch 1988 connections!
+
+Marriage and "monster state" society of ICE and Africa / Polish immigrant ownership. And how Carol's phone call in Spanish was to only curse-out and hate message. It is ALL coming out in the symbolism here. There is no real RNA message of 78 seconds in this fiction story, but this topic is NON-FICTION USA ABQ Vegas "West Gate" gate-keeping of understanding and compassion hotel and 1988 book lessons for science fiction audiences! Vince Gilligan has DONE IT NOW ON CHRISTMAS! I personally was married in Vegas, it is a popular marriage spot. Heartbreak Hotel Elvis. OPERA_A "Elvis performing "HEARTBREAK HOTEL" on Stage Show - March 17, 1956" - https://www.youtube.com/watch?v=MzRnKQrm61w 354,659 views December 30, 2018
+
+Oh boy, has Vince Gilligan dug deep!
+
+### Landing on 1988 Protest Very Dangerous
+
+The Catholic year 1210 hive mind protest! Roman empire! Levant John One One authoring! BIG SHIT!
+
+JOSEPH CAMPBELL: In the Middle Ages, that was the kind of marriage that was sanctified by the Church. And so the **troubadour idea of real person-to-person Amor was very dangerous.**
+
+MOYERS: Because it was heresy?
+
+CAMPBELL: Not only heresy, it was adultery, what might be called spiritual adultery. Since **the marriages were all arranged by society,** the love that came from the meeting of the eyes was of a higher spiritual value.
+
+For example, in the Tristan romance, Isolde is engaged to marry King Mark. They have never seen each other. Tristan is sent to fetch Isolde to Mark. Isolde’s mother prepares a love potion, so that the two who are to be married will have real love for each other. And this love potion is put in the charge of the nurse, who is to go with Isolde. The love potion is left unguarded, and Tristan and Isolde think it’s wine, and they drink it. They’re overtaken with love. But they had already been in love, they just didn’t know it. The love potion just touched it off. One remembers that kind of experience from one’s own youth.
+The problem from the troubadour point of view is that King Mark and Isolde, who are to be married, are not really qualified for love. They have never even seen each other. The true marriage is the marriage that springs from the recognition of identity in the other, and the physical union is simply the sacrament in which that is confirmed. It doesn’t start the other way around, with the physical interest that then becomes spiritualized. It starts from the spiritual impact of love—Amor.
+
+MOYERS: Christ spoke of “the adulterer at heart,” the violation of the union that takes place spiritually, in the mind and heart.
+
+CAMPBELL: And every marriage was such a violation when it was arranged by the society and not by the heart. That’s the sense of courtly love in the Middle Ages. It is in direct contradiction to the way of the Church. The word AMOR spelt backwards is ROMA, **the Roman Catholic Church, which was justifying marriages that were simply political and social** in their character. And so came this movement validating individual choice, what I call following your bliss.
+
+But there’s danger, too, of course. In the Tristan romance, when the young couple has drunk their love potion and Isolde’s nurse realizes what has happened, she goes to Tristan and says, “You have drunk your death.” And Tristan says, “By my death, do you mean this pain of love?” — because that was one of the main points, that one should feel the sickness of love. There’s no possible fulfillment in this world of that identity one is experiencing. Tristan says, “If by my death, you mean this agony of love, that is my life. If by my death, you mean the punishment that we are to suffer if discovered, I accept that. And if by my death, you mean eternal punishment in the fires of hell, I accept that, too.” Now, **that’s big stuff**.
+
+MOYERS: Especially for medieval Catholics, who believed in a literal hell. So what’s the significance of what Tristan was saying?
+
+CAMPBELL: What he was saying is that his love is bigger even than death and pain, than anything. **This is the affirmation** of the pain of life in a big way.
+
+MOYERS: And he would choose this pain of love now even though it might mean everlasting pain and damnation in hell.
+
+CAMPBELL: Any life career that you choose in following your bliss should be chosen with that sense—that nobody can frighten me off from this thing. And no matter what happens, this is the validation of my life and action.
+
+MOYERS: And in choosing love, too?
+
+CAMPBELL: In choosing love, too.
