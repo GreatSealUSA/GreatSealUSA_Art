@@ -44,3 +44,5 @@ Outer space alien angels impregnated December 24 / December 25 when Pluribus Sea
 Two lesbians getting pregnant story, and a 78 second human body message from Kepler 22B outer-space planet. There are parallels to this story if you shift the date to March 25 instead of December 25 and the 9 months to get frozen stem cells on ice to birth out of woman's body. A *rebirth* legend, story *born again* mythology of We The People, Pluribus.
 
 Are men *telling stories*? Did men write and share and author the *legendary story* of December 25?
+
+*Birds and Bees* lessons, wildlife returning to ABQ. But fiction storytelling outsells nonfiction learning.
