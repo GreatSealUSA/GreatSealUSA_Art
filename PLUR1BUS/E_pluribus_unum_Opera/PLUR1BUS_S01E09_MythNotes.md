@@ -317,3 +317,22 @@ On-screen countdown bomb timers every episode. Trinity Site in New Mexico, *Jorn
 ....
 
 Of course, "you win" isn't a win. Writing and poetry has only been played with a chapter from Carl's new writing. The Great Seal Eagle points to the olive branch, and Carol hasn't used lecturing very much / diplomacy very much. She turns to the man who uses the arrows and aggression of the Great Seal eagle first. He was reading books like a Walter White man of science and electronics, not spiritual storytelling and Joyce / Carol's books / etc. So that's likely the focus of the next season. Creating new laws and conventions of a "liberated" humanity, the culture of the Rebels against the Empire hive mind.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Ending of Season
+
+American Brinkmanship. Shipping relationship of an aggressive man to Carol's circle. New Mexico holy lands of the atomic bomb creation by mankind. Planetary defense rebels programming.
+
+Carol hasn't done the Halloween Germany reformation, maybe she will work on that and use an EMP to sever the hive mind / non-destructive space explosion to break the radio signals.
+
+Vince Gilligan has gone out of his way to assert that the story is about Carol being a good person. So injecting individual Troubadour year 1210 free love against the Roman Empire West Gate gatekeeping I think is the deep story here. Elvis music has been cooking on the side burner, and the Elvis artwork core has excellent thinking and communications talent with the hive mind. A true ambassador. And Elvis USA Rock and Roll can save our mortal soul if Carol brings that into the Trinity of those making The Stand against the Roman Levant mythos empire.
+
+New Mexico electromagnetic bomb, with the airwaves of wireless F.M. Radio. The Day the Music of the Hive Mind Died and Good old Elvis rose from the dead like Tim Finnegan! Rumors of Elvis not being dead is huge American mythos. Helen is dancing in her grave to James Joyce's writings! Go Carol, go! The marching band refused to yield, what is the yield on that Trinity Test New Mexico Electromagnetic Pulse music device?
+
+OPERA_A Carol still remembers maybe she can make those people dance. But February 15, 2025 WGA Vince Gilligan speech made me shiver about how bad the social media cesspool was. Something touched me deep inside, the day the Pluribus Great Seal metaphors died. https://www.youtube.com/watch?v=PRpiBpDy7MQ 
+63,477,337 views November 10, 2021 - did *you write* the book of Love, Carol? If The Bible is reformed? Now do you believe in Rock Music, Carol? Can you teach the hive mind how to dance real slow? Fallout shelter, bomb lyric.
