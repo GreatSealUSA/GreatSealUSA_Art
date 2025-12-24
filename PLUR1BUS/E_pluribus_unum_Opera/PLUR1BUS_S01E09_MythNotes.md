@@ -140,3 +140,37 @@ JOSEPH CAMPBELL: This is exactly T. S. Eliot’s The Waste Land that you are des
 MOYERS: You’re not against technology, are you?
 
 CAMPBELL: Not at all. 
+
+&nbsp;
+
+# 00:27:30 Abandoned for 40 days
+
+Christmas eve / Christmas day season ending. 
+
+A huge clue in this line about morality in the desert of ABQ. Carol seems avoidant / ignorant of Levant mythology (given her age 16 Christian torture camp of her parents, this makes sense). But ABQ is more Christian than Native American for a white suburban life. He is a man that seems to have Christian knowledge, both "new world" (South America / North America / Central America) year 1492 Spaniards / Christians. Different languages, but Roman Empire / Spain / England umbrella of Jesus Christmas Eve / Christmas Day age 3 indoctrination of parents with Santa and Jesus for both persons?
+
+They are sitting on an inheritance from the Levant and tower of Babel without recognizing it. And the smartphone, even in airplane mode, can translate for them. Yet, they do not seek out world peace without such global 78-second RNA circumstances. Very much Skywalker ranch "Power of Myth" messages about not keeping the good parts; MLK Jr's message of not keeping good ideas from Levant stories.
+
+Google Search summary: 2025-12-24 early morning USA (before sunrise)    
+
+<img width="2344" height="1494" alt="image" src="https://github.com/user-attachments/assets/8cf7420b-da61-44ac-a70b-2d8311eef68c" />
+
+"In the Torah and Bible, "40 days/years" signifies trials, testing, preparation, and spiritual cleansing, often leading to divine revelation or new beginnings, seen in Moses's fast on Sinai (Torah), the Israelites' 40 years in the desert (Torah/Bible), Elijah's 40-day journey (Bible), and Jesus's 40 days of temptation (Bible) before his ministry. It's a pattern showing how God refines people through hardship for a greater purpose, with 40 representing a complete period of testing before breakthrough."
+
+Torah (Old Testament) Examples
+
+* Moses on Sinai: Moses spent 40 days and nights fasting on Mount Sinai to receive the Torah (Ten Commandments) from God, a time of deep communion and preparation.
+* Israel's Wilderness Wandering: The Israelites wandered the desert for 40 years as a generation-long test after the spies explored Canaan for 40 days, a period of purification before entering the Promised Land.
+* Flood: The rain fell for 40 days and nights during Noah's flood, signifying a global cleansing and new start. 
+
+Bible (New Testament) Examples
+* Jesus's Temptation: Jesus fasted and was tempted by Satan in the wilderness for 40 days, overcoming what Israel failed to do, paving the way for his ministry.
+* Post-Resurrection Appearances: Jesus appeared to his disciples for 40 days after his resurrection before his ascension, a time of teaching and commissioning.
+* Elijah's Journey: The prophet Elijah traveled 40 days and nights to Mount Horeb (Sinai) after fleeing Jezebel, finding God in the quiet. 
+
+General Meaning of "40"
+
+* Testing & Trial: A common theme is that 40 days/years are a period where people are tested in solitude to see if they rely on God or worldly things.
+* Preparation: It's a time to prepare for a significant spiritual change, covenant, or new phase (like birth, as in 40 weeks of gestation, or a ruler's reign).
+* Completeness: It marks a complete cycle of testing, often preceding a breakthrough or divine intervention (e.g., after 40 days, the giant falls or the rain stops). 
+
