@@ -171,3 +171,8 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 65. "not see that coming" Reddit hive-mind downplays Nazi threats with joke-washing amusement-washing. The train full of human food that Carol wants to *see coming* and the Hive Mind says they did not see that part of Carol coming. The train passing ABQ with bodies. OPERA_A https://www.youtube.com/watch?v=K6PwUG283DU train tunnel escape. tunnel vision of mindsets / hive mind/ Teachers (Walter White teacher, Nazi poisoning society of ABQ weakness) 15,240,762 views  March 1, 2022  anti-poetry anti-Authoring of Carol / Helen - and Helen's post-doctorate thesis. "Another Brick in the Wall Pt. 2 (The Wall) - 1080p Remastered"
 
+&nbsp;
+
+# And also
+
+Just wanted to comment that a link-filled copy-pasta is an anti-copy pasta. Because anyone other than the author can't copy-paste embedded links (you have to "edit" to get the "source" markdown). So another person can't trivial copy it and paste it as is the naming of the social usage.
