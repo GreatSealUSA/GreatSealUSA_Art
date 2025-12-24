@@ -12,7 +12,7 @@ https://x.com/Puffindor/status/1989872107228905481
 
 "Sarah 🇵🇸 🐘💜🐘 Board Games in a Minute"     
 @Puffindor     
-#Pluribus seriously sucks. Was so excited that #VinceGilligan created a new show and I had high hopes, but this show is really dumb. It’s pretentious, the main character is really annoying, and there is no dark humor in it like it claims. So disappointing. 😩"
+#Pluribus seriously sucks. Was so excited that #VinceGilligan created a new show and I had high hopes, but this show is really dumb. It’s pretentious, the main character is really annoying, and there is no dark humor in it like it claims. So disappointing. 😩"      
 6:44 PM · Nov 15, 2025     
 
 https://x.com/Puffindor/status/1989873040272900543
