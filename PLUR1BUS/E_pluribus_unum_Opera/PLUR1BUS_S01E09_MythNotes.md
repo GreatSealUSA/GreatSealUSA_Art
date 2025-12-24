@@ -265,3 +265,18 @@ CAMPBELL: Any life career that you choose in following your bliss should be chos
 MOYERS: And in choosing love, too?
 
 CAMPBELL: In choosing love, too.
+
+&nbsp;
+
+&nbsp;
+
+&nbs;
+
+# 00:48:30 Carol's Egg Basket
+
+In build up to this scene, ice settings, like the Helen ice bed / ice hotel. Metaphors of state enforcement via northern police lights / ice / lesbian outlaws. The ski resort / lodge in the ice / lodging ice hotel / drinks.
+
+All this thrusts the Christmas December 25 season real-world to the real-world Easter Sunday "eggs" emphasis throughout the show. Omelets and Carol's frozen eggs. Carol uses the word "my eggs".
+
+[March 25 vs. December 25. Lady Day.](../Everything_Media_Ecology/Everything_is_Lady_Day.md) Who is the book author, story writer, of science fiction John 1:1 - womankind of outer-space messages from an alien planet?
+
