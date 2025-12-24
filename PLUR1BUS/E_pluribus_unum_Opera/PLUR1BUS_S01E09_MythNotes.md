@@ -336,3 +336,9 @@ New Mexico electromagnetic bomb, with the airwaves of wireless F.M. Radio. The D
 
 OPERA_A Carol still remembers maybe she can make those people dance. But February 15, 2025 WGA Vince Gilligan speech made me shiver about how bad the social media cesspool was. Something touched me deep inside, the day the Pluribus Great Seal metaphors died. https://www.youtube.com/watch?v=PRpiBpDy7MQ 
 63,477,337 views November 10, 2021 - did *you write* the book of Love, Carol? If The Bible is reformed? Now do you believe in Rock Music, Carol? Can you teach the hive mind how to dance real slow? Fallout shelter, bomb lyric.
+
+# Great Beyond
+
+If it makes it 4 seasons:
+
+The phone call again when the hive mind crashed I think shows this is going for global mythology. We have Elvis in the wings... Hindu / Buddhism. We were told Zosia lost someone, but not sure why she is in Africa dressed like Islam. The Peruvian woman represented native non-Levant cultures.
