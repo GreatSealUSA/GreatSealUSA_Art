@@ -122,3 +122,21 @@ Huge topic here of people and media ecology. The Minute 22 Episode One roots of 
 The whole situation of trusting a 78 second message from outer space, trusting a VHS tape delivered to the door. Trusting canned pet food in a storage unit. Where trust is placed, in content of a influencer (Carol) instead. Rats in a maze of advertising / marketing / product placement of billionaires story here.
 
 Testing the radio signal on his ham radio. Belief in signals but blocking out human persons. Metaphor of the Breaking Bad and Better Call Saul fandom who thinks bad guys are sexy role models. Who memorize and recite characters who murder and profit off human suffering of meth drugs. While the same people never bothered to memorize the liens printed in Latin on on the dollar bill. "Pluribus" and other foundation phrases of the nation unknown while Walter White and Saul dialog memorized as audience priorities. Glamorizing villains and killers who seek obscene wealth and poison our future. https://www.movieguide.org/news-articles/hollywood-writer-vince-gilligan-warns-against-glamorizing-villains.html
+
+&nbsp;
+
+# 19:00:30 Carol: "They are Still Human Beings"
+
+Carol has calmed down from her panics. Now she asserts the humanity even in alien species. 
+
+BILL MOYERS: Still, it’s feasible to me that these stories of heroes could become sort of a tranquilizer, invoking in us the benign passivity of watching instead of acting. And the other side of it is that **our world seems drained of spiritual values. People feel impotent. To me, that’s the curse of modern society, the impotence, the ennui that people feel, the alienation of people from the world order** around them. Maybe we need some hero who will give voice to our deeper longing.
+
+* Moyers: "the world order", the New World Order in Latin https://en.wikipedia.org/wiki/Novus_ordo_seclorum along with "Pluribus". Vince Gilligan and crew are "we need some kind of hero" to reform our monomyth stories and understandings of mythology inheritance. 
+
+JOSEPH CAMPBELL: This is exactly T. S. Eliot’s The Waste Land that you are describing, a sociological stagnation of inauthentic lives and living that has settled upon us, and that evokes nothing of our spiritual life, **our potentialities**, or even our physical courage — until, of course, it gets us into one of its **inhuman wars**.
+
+* They are the last of the free thinkers... standing in a dry wasteland visually during this peer to peer encounter. 
+
+MOYERS: You’re not against technology, are you?
+
+CAMPBELL: Not at all. 
