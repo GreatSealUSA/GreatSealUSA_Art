@@ -79,5 +79,5 @@ https://youtu.be/GTWQv8RsI6s?t=68 Part 2: Disease of alien invasion, Carol's chi
 
 The Chicks or their Eggs. **Alien abduction** / stem cell **alien probing** of Carol's genetic children / family tree (stem cells, stems from) of the Apple tree in Eden / Apple TV audience / Steve Jobs legacy. The pair of Stephen trees in the Garden of Eden - and seeds inside those apples. The pretender, alien invader, who took over Eden and planted that one trouble tree of knowledge devices / computing information systems.
 
-https://youtu.be/GTWQv8RsI6s?t=521 The Creation of Kings, King of Kings Christmas Story Eve Day Episode 9, has begun! In the Re-Beginning. Revelation 19:16 - the King Elvis on Air Force One with the Nuclear Warfare who went to West Gate Elvis Suite.
+https://youtu.be/GTWQv8RsI6s?t=521 The Creation of Kings, King of Kings Christmas Story Eve Day Episode 9, has begun! In the Re-Beginning. Revelation 19:16 - the King Elvis on Air Force One with the Nuclear Football (brain damaging football / Tim + Helen ladder falls) who went to West Gate Elvis Suite.
 
