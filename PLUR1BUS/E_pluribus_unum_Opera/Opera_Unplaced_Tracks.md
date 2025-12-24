@@ -276,3 +276,27 @@ https://youtu.be/qaXgQ-MghwY?t=197
 
 * The term "Scurvy Sister" appears to refer to the unnamed sister of the character Punk Scurvy from the fan-made One Piece World Wiki.
 
+&nbsp;
+
+# Ending Date, Birth concerns
+
+"Troll the ancient Yuletide carol"    
+
+Deck the Halls    
+
+Artist: Love to Sing    
+Album: Christmas For Kids    
+Released: 2012   
+
+Deck the halls with boughs of holly   
+'Tis the season to be jolly     
+Don we now our gay apparel (Lesbian)    
+Troll the ancient Yuletide carol (Matthew 4:19, Hive Mind trolling)     
+See the blazing Yule before us (Hot ice / blazing lights on for Carol)    
+Strike the harp and join the chorus (String the Hive Mind signals / radio devices)    
+Follow me in merry measure (Happy measured, but Ep 9 pitch from Pirate Lady is better saturated with more happy)     
+While I tell of Yuletide treasure     
+Fast away the old year passes   (Season One End)    
+Hail the new, ye lads and lasses     
+Sing we joyous all together  (Pluribus, We The People)    
+Heedless of the wind and weather    
