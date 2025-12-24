@@ -117,7 +117,7 @@ https://youtu.be/WoiJVkdDbOo?t=781
 
 ![HEARASAY IN PARADOX LUST, Coach with the Dix Insides 1964 Television](../Joyce/Coach_Six_Insides_HearASay_Paradise_Lust.png)
 
-Christmas 1964 December TV show, 2025 Pluribus TV show themes.      
+Christmas 1964 [December 13](https://www.imdb.com/title/tt31080053/) TV show, 2025 Pluribus TV show themes.      
 Hive Mind heresy. Christmas Eve Christmas Day [heresy](https://en.wikipedia.org/wiki/Heresy)!     
 James Joyce year 1923 Finn's Hotel heresy against the Roman Empire Clergy Rulers (and measures) of the Dublin *ABQ* hivemind.     
 
