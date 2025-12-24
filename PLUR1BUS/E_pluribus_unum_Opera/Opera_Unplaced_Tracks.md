@@ -300,3 +300,35 @@ Fast away the old year passes   (Season One End)
 Hail the new, ye lads and lasses     
 Sing we joyous all together  (Pluribus, We The People)    
 Heedless of the wind and weather    
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: Carol is a One-Way Motorway 
+
+Carol is independent, White Light nuclear fire bomb!
+
+It's times like these to you learn to teach romance love compassion again!    
+
+https://www.youtube.com/watch?v=cEiIN3e_QW0     
+Foo Fighters: Times Like These (Live) - SNL    
+3,496,114 views  November 8, 2020     
+
+Brand new sky, the STARS upon tonight! Kepler 22 B and Earth stands up against intergalactic hive mind manipulations.  Stay to the Hive Mind Pirate Lady or reboot / Nuke it / Leave it All Pluribus We behind in the ashes of pre-reboot?    
+
+Time and time again, the on-screen countdown Zero Hours and atomic detonation timelines.   
+
+Times like these again and again, Finnegans Wake Page 628, iterations. Did they do this song multiple times?
+
+* The Foo Fighters performed "Times Like These" on Saturday Night Live during their musical guest appearance on February 22, 2003, hosted by Christopher Walken, which was a memorable night featuring Jim Carrey joining them on stage for the performance. https://old.reddit.com/r/Foofighters/comments/1czjopg/foo_fighters_times_like_these_snl_2003_feat_jim/
+
+* Great Seal POTUS Seal, Air Force One Carol meeting symbolism before January 6, 2021 turning point. "On November 7, 2020, the Foo Fighters served as the musical guest on Saturday Night Live (Season 46, Episode 6). The episode was hosted by Dave Chappelle and aired hours after Joe Biden was declared the winner of the 2020 U.S. Presidential Election."
+  
+    * (November 7, 2013 is also when Trump flew to Moscow for Putin sex show of women / girls like Epstein / Putin values on TV display 2013 leadership of MAGA to follow Epstein style content leaders - keyword salad)
+    * "November 7, 2013: Trump attended a birthday event for evangelist Billy Graham in North Carolina. Late that night, he departed for Moscow on a private jet. November 8, 2013: Trump arrived at Moscow's Vnukovo International Airport at approximately 6:15 a.m.. He checked into the Ritz-Carlton Moscow and attended a birthday party for billionaire Aras Agalarov that evening."
+    * "Bombardier Global 5000 private jet owned by his business partner Phil Ruffin" Vegas showgirls partner.
+ 
+
+
+
