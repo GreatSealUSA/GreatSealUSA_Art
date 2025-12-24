@@ -77,4 +77,6 @@ https://youtu.be/GTWQv8RsI6s?t=68 Part 2: Disease of alien invasion, Carol's chi
 
 ... *huevo (or huevos) can be used vulgarly for "testicles" or in phrases like "¡A huevo!" meaning "Definitely!" or "¿Qué huevo?" meaning "What a drag!"*
 
-The Chicks or their Eggs.
+The Chicks or their Eggs. **Alien abduction** / stem cell **alien probing** of Carol's genetic children / family tree (stem cells, stems from) of the Apple tree in Eden / Apple TV audience / Steve Jobs legacy. The pair of Stephen trees in the Garden of Eden - and seeds inside those apples. The pretender, alien invader, who took over Eden and planted that one trouble tree of knowledge devices / computing information systems.
+
+
