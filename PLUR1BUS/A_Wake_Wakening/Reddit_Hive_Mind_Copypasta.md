@@ -171,6 +171,10 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 65. "not see that coming" Reddit hive-mind downplays Nazi threats with joke-washing amusement-washing. The train full of human food that Carol wants to *see coming* and the Hive Mind says they did not see that part of Carol coming. The train passing ABQ with bodies. OPERA_A https://www.youtube.com/watch?v=K6PwUG283DU train tunnel escape. tunnel vision of mindsets / hive mind/ Teachers (Walter White teacher, Nazi poisoning society of ABQ weakness) 15,240,762 views  March 1, 2022  anti-poetry anti-Authoring of Carol / Helen - and Helen's post-doctorate thesis. "Another Brick in the Wall Pt. 2 (The Wall) - 1080p Remastered"
 
+66. Tim Finnegan brick layer, thick as a brick song, audience thick as a brick to metaphors and poetry and mythology stories that end on Christmas Eve / Christmas Day about plucking apples to make hard cider to drink. Squeeze the apple, squeeze the milk, lesbian thick as a brick of the story metaphors of minute 22 Tim Finnegan brick. Audience "shits a brick" at any poetic writing or interpretation of the Latin clergy metaphors in the Great Seal of the United States of America year 250 in 2026 Pluribus "We The People" poetry. Shit a brick audience who flees to Walter White's grave site for comfort stories of Mr. White the raging toxic influencer. Tim lays bricks and goes high above on his ladder where angels fear to tread and builds his Tower of Babel on page 3 of Finnegans Wake book for Carol the book author to follow Helen's lead with the reformed Fall story of Dublin in ABQ.
+
+67. "Lost Irish Whiskey: This brand was co-founded by an Irish whiskey expert named Tim Herlihy. The whiskey's concept is centered around the Irish diaspora worldwide and features casks sourced from six different continents to symbolize Irish people living in those areas."
+
 &nbsp;
 
 # And also
