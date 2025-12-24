@@ -109,13 +109,13 @@ CAMPBELL: The wound is the wound of my passion and the agony of my love for this
 
 &nbsp;
 
-# Herasay in *Paradox Lust*
+# Hearasay in *Paradox Lust*
 
 https://youtu.be/WoiJVkdDbOo?t=781      
 2,398 views June 29, 2020     
 "a selection from **Jean Erdman's** "The Coach with the Six Insides" (based on James Joyce's Finnegans Wake) performed on CBS's "Camera Three" in December 1964"     
 
-![HERASAY IN PARADOX LUST, Coach with the Dix Insides 1964 Television](../Joyce/Coach_Six_Insides_HearASay_Paradise_Lust.png)
+![HEARASAY IN PARADOX LUST, Coach with the Dix Insides 1964 Television](../Joyce/Coach_Six_Insides_HearASay_Paradise_Lust.png)
 
 Christmas 1964 December TV show, 2025 Pluribus TV show themes.      
 Hive Mind heresy. Christmas Eve Christmas Day [heresy](https://en.wikipedia.org/wiki/Heresy)!     
