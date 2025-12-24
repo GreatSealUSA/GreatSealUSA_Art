@@ -49,3 +49,17 @@ Yo, listen up, here is the story Kepler 22B B B B Blue world with oceans and Pal
 
 "In the Apple TV+ series Pluribus, the main character Carol Sturka is portrayed by actress Rhea Seehorn, who has blue eyes." - White KKK more, blonde haired blue eye. (Like my own mother Charlotte, and me both) https://old.reddit.com/r/AskHistorians/comments/fnwtxg/why_was_the_nazi_aryan_race_blonde_hair_blue_eyes/ - and Sagan's "Pale Blue Dot" eyes (Campbell:  "so that we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s Word.” - and Campbell on Troubadour year 1210 motivation for Carol to get the bomb in Episode Nine, bonding, Bill Moyers: "think that’s the core of the question. If the eyes scout for the heart and bring back that which the heart passionately desires" (Pirate Lady biggest fandom, Carol) Song about spy. OPERA_A Behind blue eyes The Who
 
+&nbsp;
+
+# Thick as Brick
+
+Ok, the people who won't engage Campbell's 1988 book / Star Wars fandom / Science Fiction fandom book that Lucas wanted audiences to know and grasp about metaphors... people who are shallow and superficial MAGA December 2025 USA values (February 15, 2025: Social media cesspool - WGA presentation) ...
+
+For the intermediate all 9 episodes at once fast-forward second-screen behaviors and mindsets....
+
+Thick as a brick both parts, make a complete audience copypasta that ties to dialog / scenes / interpretations? Tim being a brick-layer as core Minute 22 Helen's post doc. "I hope you sit this one out, post-doc Helen at the Zero Hour in a Public House discussing James Joyce. Your clergy are thick as a brick"  
+Sold to society.. sold to advertising for Free Social media Reddit / Twitter / D.O.G.E. musk / sold-out Pluribus Latin "We The People" ideals of nation hive mind proposal, sold out to Russia 
+
+https://youtu.be/GTWQv8RsI6s?t=68 part 2: Disease of alien invasion, Carol's child egg basket taken from her: "with the discovery of his disease... We'll take the child from him, put it to the test" (lab testing lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" lab rat episode name of pilot).
+
+
