@@ -105,3 +105,20 @@ Tower of Babel has been my major concern before this show as ever announced. We 
 
 This whole scene has been depicting the alienation of language and strangers. Immigration. Calling to the April 2021 book by President George W. Bush https://en.wikipedia.org/wiki/Out_of_Many,_One:_Portraits_of_America%27s_Immigrants - as the USA created the Internet network, but we don't use the tools to come together, we are alienated and impatient with humans and block them / close our doors.
 
+&nbsp;
+
+# 19:00 "you are against them, no?"
+
+"You are against them, no?" ... "I watched your video"
+
+He believes in video tape message that could have been easily faked. But does not trust { their transportation, their food delivery, Carol's house }
+
+But he risked his life from a video that could have been altered and faked.
+
+Huge topic here of people and media ecology. The Minute 22 Episode One roots of Finnegans Wake media ecology.
+
+* University of Toronto professor: "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+The whole situation of trusting a 78 second message from outer space, trusting a VHS tape delivered to the door. Trusting canned pet food in a storage unit. Where trust is placed, in content of a influencer (Carol) instead. Rats in a maze of advertising / marketing / product placement of billionaires story here.
+
+Testing the radio signal on his ham radio. Belief in signals but blocking out human persons. Metaphor of the Breaking Bad and Better Call Saul fandom who thinks bad guys are sexy role models. Who memorize and recite characters who murder and profit off human suffering of meth drugs. While the same people never bothered to memorize the liens printed in Latin on on the dollar bill. "Pluribus" and other foundation phrases of the nation unknown while Walter White and Saul dialog memorized as audience priorities. Glamorizing villains and killers who seek obscene wealth and poison our future. https://www.movieguide.org/news-articles/hollywood-writer-vince-gilligan-warns-against-glamorizing-villains.html
