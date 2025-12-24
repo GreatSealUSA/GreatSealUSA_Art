@@ -104,3 +104,23 @@ CAMPBELL: Well, I wouldn’t be one to say. It’s a very mysterious thing, that
 MOYERS: Meaning?
 
 CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow.
+
+&nbsp;
+
+&nbsp;
+
+# Herasay in *Paradox Lust*
+
+https://youtu.be/WoiJVkdDbOo?t=781      
+2,398 views June 29, 2020     
+"a selection from **Jean Erdman's** "The Coach with the Six Insides" (based on James Joyce's Finnegans Wake) performed on CBS's "Camera Three" in December 1964"     
+
+![HERASAY IN PARADOX LUST, Coach with the Dix Insides 1964 Television](../Joyce/Coach_Six_Insides_HearASay_Paradise_Lust.png)
+
+Christmas 1964 December TV show, 2025 Pluribus TV show themes.      
+Hive Mind heresy. Christmas Eve Christmas Day [heresy](https://en.wikipedia.org/wiki/Heresy)!     
+James Joyce year 1923 Finn's Hotel heresy against the Roman Empire Clergy Rulers (and measures) of the Dublin *ABQ* hivemind.     
+
+Extracting the hive mind with lust and compassion. Minute 22 of Episode One of Pluribus is James Joyce's Finnegans Wake post-doc thesis of Helen in a *Public House*.     
+
+Lesbian parenting, paradoxes abound in this lust! [Carol's Libido over hive mind credo!](https://billmoyers.com/content/ep-5-joseph-campbell-and-the-power-of-myth-love-and-the-goddess-audio/)
