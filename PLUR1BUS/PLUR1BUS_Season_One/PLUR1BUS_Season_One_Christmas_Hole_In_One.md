@@ -1,0 +1,106 @@
+# Christmas Hole In One!
+
+Carol golfs.
+
+&nbsp;
+
+https://old.reddit.com/r/OneThingIs/comments/1pupq79/vince_gilligans_pluribus_plur1bus_the_greatest/
+
+**Vince Gilligan's Pluribus / PLUR1BUS - The Greatest Ever! Heart expanding Christmas landing. ▲ We is Us: "We are at this moment participating in one of the very greatest leaps of the human spirit"**
+
+&nbsp;
+
+Rest in peace Bill Moyers, who died this year. June 26, 2025 at the age of 91. May the force be with you, always! From year 1988:
+
+&nbsp;
+
+# .
+
+how are our imaginations to be nourished? By **Hollywood and made-for-TV** movies?
+
+Campbell was no pessimist. He believed there is a “point of wisdom beyond the conflicts of illusion and truth by which lives can be put back together again.”
+
+Finding it is the “prime question of the time.” In his final years he was striving for a new synthesis of science and spirit.
+
+“The shift from a geocentric to a heliocentric world view,” he wrote after the astronauts touched the moon, “seemed to have removed man from the center — and the center seemed so important. Spiritually, however, the center is where sight is. [Stand on a height and view the horizon](https://www.youtube.com/watch?v=0sU59BBSskY). Stand on the moon and view the whole earth rising — **even, by way of television**, in your parlor.”
+
+The result is an unprecedented expansion of horizon, one that could well serve in our age, as the ancient mythologies did in theirs, to cleanse the doors of perception “to the wonder, at once terrible and fascinating, of ourselves and of the universe.”
+
+He argued that it is not science that has diminished human beings or divorced us from divinity. On the contrary, the new discoveries of science “rejoin us to the ancients” by enabling us to recognize in this whole universe “a reflection magnified of our own most inward nature; so that we are indeed its ears, its eyes, its thinking, and its speech — or, in theological terms, God’s ears, God’s eyes, God’s thinking, and God’s Word.”
+
+The last time I saw him I asked him if he still believed — as he once had written — “that we are at this moment participating in one of the very greatest leaps of the human spirit to a knowledge not only of outside nature but also of our own deep inward mystery.”
+
+He thought a minute and answered, ***“The greatest ever!”***
+
+&nbsp;
+
+&nbsp;
+
+# .
+
+&nbsp;
+
+"Billy Don Moyers (June 5, 1934 – June 26, 2025) was an American journalist and political commentator who served as the eleventh White House Press Secretary from 1965 to 1967 during the Lyndon B. Johnson administration. He also served as the de facto White House Chief of Staff for a brief period from 1964 until 1965. Moyers was a director of the Council on Foreign Relations from 1967 to 1974. "       
+https://en.wikipedia.org/wiki/Bill_Moyers#Conflict_with_CPB_over_content
+
+You served the Great Seal of the United States of America spiritual values very well Mr. Moyers. May We the People, All of Us, Pluribus - save the world from the Hell that has been unleashed since year 2013.  Love to All, Merry Christmas.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# The Greatest Ever!
+
+&nbsp;
+
+“The shift from a geocentric to a heliocentric world view,” he wrote after the astronauts touched the moon, “seemed to have removed man from the center — and the center seemed so important. Spiritually, however, the center is where sight is. [Stand on a height and view the horizon](https://www.youtube.com/watch?v=0sU59BBSskY). Stand on the moon and view the whole earth rising — **even, by way of television**, in your parlor.”
+
+&nbsp;
+
+# .
+
+&nbsp;
+
+"Pluribus — The Loneliest Sound In The World | Scene | Apple TV"       
+38,776 views  December 19, 2025         
+https://www.youtube.com/watch?v=0sU59BBSskY    
+
+Something to do with the body's electric field.
+
+&nbsp;
+
+BILL MOYERS: So love is not love in general, it is love for that woman?
+
+CAMPBELL: For that one woman. That’s right.
+
+MOYERS: Why do you think we fall in love with one person and not another?
+
+CAMPBELL: Well, I wouldn’t be one to say. It’s a very mysterious thing, that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love, the sickness the doctors cannot cure, the wounds that can be healed only by the weapon that delivered the wound.
+
+MOYERS: Meaning?
+
+CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow.
