@@ -37,7 +37,13 @@ I.C.E. northern lights flashing above Helen and Carol's ice bed. This lad is *my
 
 &nbsp;
 
-# Pluribus Spiritual, We is Us
+# Pluribus Spiritual: *We is Us*
 
 This land is your land, not *my land* as Nina Paley illustrates and animates.
 
+https://www.youtube.com/watch?v=wxiMrvDbq3s      
+Woody Guthrie - This Land Is Your Land     
+9,706,661 views November 29, 2008      
+
+Message on guitar body: ["This Machine Kills](https://en.wikipedia.org/wiki/This_machine_kills_fascists) Dictators"     
+Art / Music of *We The People*, no special revelations required, is the key to dealing with killing-off hate domination that Nina Paley's video emphasizes.    
