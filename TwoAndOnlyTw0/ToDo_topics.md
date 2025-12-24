@@ -2,6 +2,8 @@
 
 Possible topics for this GitHub
 
+Coach with the Six Insides - any mention of Anna's last name that comes out similar to Latin "Pluribus"? Spend time and try to memorize the whole TV excerpt from the live play.
+
 13 symbolism running deep in North America    
 https://old.reddit.com/r/interestingasfuck/comments/1ou7lxk/the_criel_mound_in_west_virginia_constructed/
 
