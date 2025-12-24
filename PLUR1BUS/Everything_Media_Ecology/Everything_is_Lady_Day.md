@@ -24,3 +24,23 @@ Have our science teachers in high school been flipping the bits? https://theseth
 Does Mr. White not know his teachings and aspirational fandoms, *mantras*,  matter? Is the car-wash racket white-washing the situation of a military lab cooking up augmented outer-space RNA? How do we stop the fandom of mad scientists from wrecking *Us All* with their [crooked](https://youtu.be/1jeyIAH3bUI?t=574) Levant science fiction interpretations of *who* originated sin? https://www.The-Scientist.com/mirror-microbes-could-end-all-life-on-earth-how-do-we-stop-them-73425
 
 These paradoxes of *who* 1132 abounds and rebounds. Is Carol with pen and whiteboard in hand, standing upon the grave site of Mr. White's science [fix](https://youtu.be/1jeyIAH3bUI?t=691)ations?
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Legendary Science Fiction
+
+Outer space alien angels impregnated December 24 / December 25 when Pluribus Season One ends symbolically.
+
+![Medical errors, false pregnancy non-fiction learning](Images/faksepegnancy.webp)
+
+&nbsp;
+
+Two lesbians getting pregnant story, and a 78 second human body message from Kepler 22B outer-space planet. There are parallels to this story if you shift the date to March 25 instead of December 25 and the 9 months to get frozen stem cells on ice to birth out out of woman's body.
+
+Are men *telling stories*? Did men write and share and author the legendary story of December 25?
