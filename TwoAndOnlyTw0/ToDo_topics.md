@@ -15,5 +15,8 @@ Hateful hostility if your intimate family doesn't go the way you want. Honor kil
 https://old.reddit.com/r/interestingasfuck/comments/1oznre1/this_photo_of_tyler_hadley_at_his_2011_house/npctzgf/
 
 Now that the ending is out.    
-Implosion / Explosion. Outer space, inner reaches. Airburst Spaceburst (EMP). Detonation / pre-detonation / pre-production / post-production hive mind arranging the fallout. Carols Fireworks and circle X marking spots. Mine as much New Mexico science lore into the fiction science lore.     
+Implosion / Explosion. Outer space, inner reaches. Airburst Spaceburst (EMP). Detonation / pre-detonation / pre-production / post-production hive mind arranging the fallout. Carols Fireworks and circle X marking spots. Mine as much New Mexico science lore into the fiction science lore. Church Stained Glass / parking lot glass bomb aftermath of Trinity site.     
 
+&nbsp;
+
+This GitHUb project name "\_Art" - Thou Art That book title. Art symbolism of the Founding Fathers 1776 language comprehension John One One. The Bible has no drawings of birds and arrows. It's all black and white words in modern print, stripped of the clergy hand-copied labors. "Before the printing press (mid-15th century), Christian clergy, primarily monks in monasteries, painstakingly hand-copied Bibles and other sacred texts onto parchment or vellum in scriptoria, a laborious process taking years per book, making them extremely rare, costly, and mostly accessible only to the Church, wealthy elites, or universities, with visual aids like stained glass telling stories to the largely illiterate populace."
