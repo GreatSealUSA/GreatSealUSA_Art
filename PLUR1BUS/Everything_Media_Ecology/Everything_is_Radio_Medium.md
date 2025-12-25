@@ -86,3 +86,32 @@ CAMPBELL: Yes, but you don’t understand it **if you think it is a he or a she*
 MOYERS: Do you think there was such a place as the Garden of Eden?
 
 CAMPBELL: Of course not. 
+
+&nbsp;
+
+&nbsp;
+
+# Finn's Hotel year 1923
+
+Tune into the Finn's Hotel year 1923 onward broadcast streaming book publishing 2024 serially. "Work in Progress.
+
+ASSERT: Minute 22 of Episode One. Helen's post-doc thesis on Finnegans Wake from Irish writer.
+
+### The best description ever for Finnegans Wake
+
+https://youtu.be/Qyw3OHJHVTI?t=1125
+
+1. Workdchoice  encryption
+2. Spellchoie encryption
+3. Puncutation encryption (including title, Finnegans plural / pluribus vs Tim's song about one)
+ 
+Finnegans Wake tries to untangle Torah, Bible, Quran in the mind and free / WAKE a person to outer-reality of authorship of the Bible / Quran poetry and singsong. That's what James Joyce is doing. Demonstrating John 1:1 with the directive of Romans 11:32 to meme harder, and encrypt hard with Romans 11:33 depths. Subconscious depth charges is Joyce's work.
+
+Microcode and firmware decoding and rebirth / rewriting / write modify to firmware microcode of society and individual brain interfacing to the Pluribus of the Levant science fiction trilogy and the techniques of the clergy / protestant vs. catholic divide / Shia vs. Sunni vs. Sufi trinity.
+
+
+
+
+
+
+ToDo: locate the 2025 YouTube video that called Finnegans Wake a Radio Show in book form.
