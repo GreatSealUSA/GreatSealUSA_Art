@@ -90,3 +90,26 @@ https://youtu.be/GTWQv8RsI6s?t=972 The hive mind helped Carol pick up Helen dead
 Expired eggs. Menopause ladies. Frozen for safe keeping beyond the expiration date of the egg maker. 
 
 Egg piracy sounds like ex expire date, dating, courting Pirate Lady, she stole my egg basket. On and on.
+
+&nbsp;
+
+# Choice marriage
+
+A lot could be mapped out in metaphors of a goodness choice marriage
+
+1. Moving from bed to couch. Carol has been sleeping on the couch and symbolic return to marriage bed in season one.
+
+2. The hive mind moves out of ABQ but does NOT block store and forward messaging (email / Twitter / Facebook / voice mail). https://en.wikipedia.org/wiki/Store_and_forward
+
+3. Martin Luther in Germany on Halloween used store and forward messaging delivery, cork board, tree, BBS system metaphors. He was a man of the clergy, knew how to speak, but changed communications channels
+
+4. The virus is spread peer to peer kissing at the vending machine, marriage 1st base progression metaphors. Kiss and tell, immediate dialog, intercourse dialog metaphors. That is blocked by the hive mind moving to ABQ. Also going to air delivery of the virus on the Zero Hour.
+
+5. Leaving books and script notes behind to your lover. Helen to Carol, and the constriction of Pirate Lady incarnate as a script note to the author.
+
+6. Moving into a hotel room / when violence. Carol put the immigrant man in the ambulance over to the guest house.
+
+7. MLK Jr on *the system* but not defeating *the person*. How the hive mind changes systems by moving out, but does not unlove Carol or prevent her from communicating.
+
+8. MLK Jr on liking a person vs. love and the choice to love not being a choice at all in the long run. OPERA_A The Eagles Long Run
+
