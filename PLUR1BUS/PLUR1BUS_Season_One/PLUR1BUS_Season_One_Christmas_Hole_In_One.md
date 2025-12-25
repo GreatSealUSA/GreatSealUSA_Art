@@ -95,7 +95,7 @@ Something to do with the body's electric field.
 
 BILL MOYERS: So love is not love in general, it is love for that woman?
 
-CAMPBELL: For that one woman. That’s right.
+JOSEPH CAMPBELL: For that one woman. That’s right.
 
 MOYERS: Why do you think we fall in love with one person and not another?
 
@@ -105,6 +105,10 @@ MOYERS: Meaning?
 
 CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow.
 
+&nbsp;
+
+Interview George Lucas filmed at Skywalker Ranch California for science fiction audiences. [I think page 243 perfectly describes](https://www.google.com/books/edition/The_Power_of_Myth/cM5vDwAAQBAJ?hl=en&gbpv=1&dq=%22The+wound+is+the+wound+of+my+passion+and+the+agony+of+my+love+for+this+creature.%22&pg=PA243&printsec=frontcover) why Carol has gone back to her house at the end of the season to start the Rebels against the Empire. What Carol is standing up for, person to person love, not just generic love. This is the **Minute 22** Episode One [post-doc Helen's skeleton key to the hive mind penetration?](https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake)
+ 
 &nbsp;
 
 &nbsp;
