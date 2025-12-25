@@ -112,6 +112,11 @@ Microcode and firmware decoding and rebirth / rewriting / write modify to firmwa
 
 
 
+&nbsp;
+
+&nbsp;
 
 
 ToDo: locate the 2025 YouTube video that called Finnegans Wake a Radio Show in book form.
+
+ToDo: Study Michael G. Coney's Primary Series
