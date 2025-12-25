@@ -30,3 +30,12 @@ Songs:
 4. We Built This City, we lost the beat
 
 5. The stars above the Eagle on the Great Seal, the 13 steps of dancing up the pyramid, the Great Seal Experience dances (link /Pluribus_Experience/ project)
+
+6. https://youtu.be/Qyw3OHJHVTI?t=470 - The Who, Getting in Tune
+
+7. The Who, Join Together
+
+8. Enter Shikari, It hurts when the signal falls / Finn Fall / channel falls / signal drift of frequency.
+
+9. Songs about "Rick"?
+
