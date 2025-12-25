@@ -337,3 +337,27 @@ Times like these again and again, Finnegans Wake Page 628, iterations. Did they 
 
 Ross's Game Dungeon: Normality    
 https://youtu.be/2W0zDKCEsYg?t=2176     
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: In the John 1:1 We Recall 
+
+https://youtu.be/BwAu9S_UBPo?t=105     
+
+"In the beginning we recall that the word was hurled! Barrytown people got to be from another world"
+
+
+1. "In the Beginning" - John 1:1 Bible verse about "the word was hurled"
+
+2. "We" - Pluribus, "We The People", All of us
+
+3. "Recall" ... lost, before modern Apple TV+ streaming show of late year 2025.
+
+4. "Recall" the message, the 78 second message and virus, virus recall
+
+5. "the word was hurled" - the 78 second message was broadcast to Earth from Kepler 22B. The John 1:1 *word* science fiction story Torah / Bible verse Exodus 3:2 - where a bush listening device antenna on the top of a mountain gets an outer-space signal to Moses in a story.
+
+6. People from "another world" lyrics. Different fandom of a different science fiction outer space message. Torah vs. Upanishads, Bible science fiction stories vs. New Mexico Navajo Pollen Path science fiction stories.
+
