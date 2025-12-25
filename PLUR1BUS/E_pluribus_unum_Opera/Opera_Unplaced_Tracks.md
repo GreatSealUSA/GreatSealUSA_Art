@@ -413,3 +413,16 @@ https://youtu.be/z-LNdngb7Co?t=149
 Kill Bill Contrats     
 68,436 views  December 21, 2025    
 Kill Bill is a PERFECT ALLEGORY     
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: The Sky is Crying
+
+Likely episode one, humanity crying   
+Looking for Helen    
+
+https://www.youtube.com/watch?v=6s9M-52fRGU    
+The Sky Is Crying- Stevie Ray Vaughan     
+
