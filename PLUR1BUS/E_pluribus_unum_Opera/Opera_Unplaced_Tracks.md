@@ -398,3 +398,18 @@ We won't save you (We is Us, Pluribus)
 https://www.youtube.com/watch?v=jPeheoBa2_Y      
 björk : army of me (HD)     
 12,936,536 views  September 30, 2019      
+
+&nbsp;
+
+# TRACK: Carol's Family Planning
+
+Once stem cells were already taken, that was the turning point for Carol.
+
+The Eagle of the Great Seal turned head to the arrows.
+
+ToDo: upload great seal eagle image of heat to Eagles military.  
+
+https://youtu.be/z-LNdngb7Co?t=149    
+Kill Bill Contrats     
+68,436 views  December 21, 2025    
+Kill Bill is a PERFECT ALLEGORY     
