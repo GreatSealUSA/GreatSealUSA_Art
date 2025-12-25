@@ -60,7 +60,7 @@ For the intermediate all 9 episodes at once fast-forward second-screen behaviors
 Thick as a brick both parts, make a complete audience copypasta that ties to dialog / scenes / interpretations? Tim being a brick-layer as core Minute 22 Helen's post doc. "I hope you sit this one out, post-doc Helen at the Zero Hour in a Public House discussing James Joyce. Your clergy are thick as a brick"  
 Sold to society.. sold to advertising for Free Social media Reddit / Twitter / D.O.G.E. musk / sold-out Pluribus Latin "We The People" ideals of nation hive mind proposal, sold out to Russia 
 
-https://youtu.be/GTWQv8RsI6s?t=68 part 2: Disease of alien invasion, Carol's child egg basket taken from her: "with the discovery of his disease... We'll take the child from him, put it to the test" (lab testing lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" lab rat episode name of pilot).
+https://youtu.be/GTWQv8RsI6s?t=62 part 2: Disease of alien invasion, Carol's child egg basket taken from her: "with the discovery of his disease... We'll take the child from him, put it to the test" (lab testing lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" lab rat episode name of pilot).
 
 
 &nbsp;
@@ -73,7 +73,7 @@ From the top with the Title (not released until a week before, confirm?)...
 
 *La Chica* or ...      
 
-https://youtu.be/GTWQv8RsI6s?t=68 Part 2: Disease of alien invasion, Carol's child egg basket taken from her: **"with the discovery of his disease... We'll take the child from him, put it to the test"** (stem cells, lab testing white lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" take child from free independent Carol). Egg piracy.
+https://youtu.be/GTWQv8RsI6s?t=62 Part 2: Disease of alien invasion, Carol's child egg basket taken from her: **"with the discovery of his disease... We'll take the child from him, put it to the test"** (stem cells, lab testing white lab rats opening Episode One, "WE will take", Pluribus will take, "We is Us" take child from free independent Carol). Egg piracy.
 
 ... *huevo (or huevos) can be used vulgarly for "testicles" or in phrases like "¡A huevo!" meaning "Definitely!" or "¿Qué huevo?" meaning "What a drag!"*
 
