@@ -383,3 +383,16 @@ This is a Deism / Humanist song, Founding Fathers values of USA.
 
 * "**These men did not believe in a Fall**. They did not think the mind of man was cut off from God. The mind of man, cleansed of secondary and merely temporal concerns, beholds with the radiance of a cleansed mirror a reflection of the rational mind of God. Reason puts you in touch with God. Consequently, for these men, there is no special revelation anywhere, and none is needed, because the mind of man cleared of its fallibilities is sufficiently capable of the knowledge of God. All people in the world are thus capable because **all people in the world are capable** of reason. All men are capable of reason. That is the fundamental principle of democracy. Because everybody's mind is capable of true knowledge, you don't have to have a **special authority, or a special revelation telling you** that this is the way things should be." - Skywalker Ranch lessons for science fiction audiences, "Power of Myth", 1988
 
+&nbsp;
+
+# TRACK: Carol, Army of Me 
+
+Me / individualism / Army military of one    
+Police car   
+Nuclear bomb   
+Hand Grenade   
+Shot gun    
+
+https://www.youtube.com/watch?v=jPeheoBa2_Y      
+björk : army of me (HD)     
+12,936,536 views  September 30, 2019      
