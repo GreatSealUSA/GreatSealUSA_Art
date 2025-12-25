@@ -361,3 +361,20 @@ https://youtu.be/BwAu9S_UBPo?t=105
 
 6. People from "another world" lyrics. Different fandom of a different science fiction outer space message. Torah vs. Upanishads, Bible science fiction stories vs. New Mexico Navajo Pollen Path science fiction stories.
 
+&nbsp;
+
+&nbsp;
+
+# TRACK: Carol is a Stand Up Lady!
+
+Carol, the Stand Up Lady!
+
+https://youtu.be/RhJ0q7X3DLM?t=79    
+"Have the story has not been told", Carol is misinformed, but she is learning and authoring.    
+
+https://youtu.be/RhJ0q7X3DLM?t=114    
+Most people think that a RNA 78-second message will come from Kepler 22B and make everyone "feel high" and happy.    
+
+The Inner Reaches of Outer Space. 1986 book. https://en.wikipedia.org/wiki/The_Inner_Reaches_of_Outer_Space
+
+You can fool some people, but you can't fool Carol.
