@@ -38,5 +38,9 @@ Star Wars Fans on Reddit don't quote it, that's for sure!
 TODO: I speed wrote this, lots of rework, I may not finish it ever
 
 ToDo: Moyers came back after Campbell's death to re-assert the need for people to cite / focus on the 1988 Power of Myth book, but still ignored by directors and fandom in favor of crediting "Monomyth" to Campbell and not Joyce (page 581 Finnegans Wake, Campbell credited to Joyce). Joyce Star Wars Day 1939 too much to stomach as inception for directors and fandom both! Without Joyce, there would be no Campbell lifetime of teaching...
+   * "The Influence of James Joyce: As you note, Campbell explicitly credits James Joyce with coining the term "monomyth" in Finnegans Wake (specifically, page 581). Campbell acknowledged Joyce as a primary inspiration for his own work and often discussed the deep structural influence of Joycean literature on his mythological studies."
+
+&nbsp;
+
 
 TODO: LOTS OF REWRITE. I'm tossing in big ideas without the digestion of hours it needs.
