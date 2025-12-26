@@ -14,7 +14,7 @@ remarkable, timely interventions, often attributed to divine providence, especia
 
 Ada comes before BASIC and C++        
 
-Another day in the park, I think it was the Forth of July, People smalltalking, people really smiling! And and singing For Us All, Pluribus, will you help him *git change* the World Wide Web... Slow motion riders... the colors of the day... Tell stories his own way! All PLuribus is not Lost!
+Another day in the park, I think it was the Forth of July, People smalltalking, people really smiling! And and singing For Us All, Pluribus, will you help him *git change* the World Wide Web... Slow motion riders... fly the colors of the day... Tell stories his own way! All Pluribus is not Lost!
 
 Ada before BASIC before C++     
 
