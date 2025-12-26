@@ -39,7 +39,7 @@ If you see something like 13 stars...
 
    *  "from actor Michael J. Pollard, who wrote the phrase in Jim Capaldi's notebook while they were together in Morocco; it represented Pollard's rebellious spirit (wearing cowboy boots) and the era's underground energy, while "low spark" suggested a street-level intensity"
 
-We The People, [Pluribus, were children once](/Pluribus_for_Littles).... *playing with toys*... from the { prophet / profit } he made off your nation's [Public Dreams](/American_Dream/American_Dream_Machine.md)!
+We The People, [Pluribus, were children once](/Pluribus_For_Littles).... *playing with toys*... from the { prophet / profit } he made off your nation's [Public Dreams](/American_Dream/American_Dream_Machine.md)!
 
 These GitHub Pages are ... don't worry to much, it will happen!
 
