@@ -43,7 +43,7 @@ JUST MARRIED!
 
 * ... "Ace to ace": On page 19 of Joyce's *Woke*, the phrase "Upwap and dump em, ace to ace!" appears, likely a pun on a card game or intimate physical closeness.
 
-* Hive mind radio broadband, baby! "ear of Fionn Earwicker" is linked to a "broadcaster with wicker local jargon for an ace's patent" suggesting a type of early "wireless" technology
+* Hive mind radio broadband, baby! "ear of Fionn Earwicker" is linked to a "broadcaster with wicker local jargon for an ace's patent" suggesting a type of early "wireless" technology.  Trademark of RCA Victor (dog listening to record player – with his ears - and hearing “His Master’s Voice”). Hive mind remastering the singsongs, show programming.
 
 * Who is the Author, Carol? Hello World! John One One source, outer space John 1:1 or Pale Blue Dot Pride? Irish word for the numeral 'one' is aon, which sounds like "ain" or "ace" in some contexts. Connecting "ace" to ideas of unity or the beginning... (John One One - [In the Beginning...](https://www.youtube.com/watch?v=M1pmEy6oNvc) the *word* was hurled fro outer space invader!)
 
