@@ -84,3 +84,18 @@ The vile cesspools of social media. Disarming { Breaking Bad, Better Call Saul }
 &nbsp;
 
 Vince Gilligan and crews, will you defeat them, disarm the bombs and plans they have made with Breaking Bad Ass male leadership signals? https://www.youtube.com/watch?v=RRKJiM9Njr8 399,335,250 views October 26, 2009
+
+&nbsp;
+
+&nbsp;
+
+# News of the dash 13 variant
+
+Newsweek News    
+https://www.newsweek.com/maps-show-new-nuclear-bomb-blast-compared-old-model-1840463     
+
+Manhattan Project, New Mexico USA       
+
+"The B61-13 would be far more destructive. A visual representation created using Nukemap, an online tool created by historian of science and nuclear technology Alex Wellerstein, shows that a B61-13 bomb exploding over New York City at maximum yield would completely destroy a significant portion of **Manhattan** and melt the skin of those miles away from the initial blast."
+
+... *Everything is Explosives Render Safe Procedures* ...
