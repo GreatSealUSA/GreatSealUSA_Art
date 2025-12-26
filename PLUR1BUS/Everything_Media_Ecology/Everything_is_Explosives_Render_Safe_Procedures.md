@@ -99,3 +99,5 @@ Manhattan Project, New Mexico USA
 "The B61-13 would be far more destructive. A visual representation created using Nukemap, an online tool created by historian of science and nuclear technology Alex Wellerstein, shows that a B61-13 bomb exploding over New York City at maximum yield would completely destroy a significant portion of **Manhattan** and melt the skin of those miles away from the initial blast."
 
 ... *Everything is Explosives Render Safe Procedures* ...
+
+*  B61-13 ... "Estimated Warhead Weight: The internal nuclear device is speculated by some sources to weigh about 290 pounds (130 kg), which is a significant portion of the total weight, but this is an unofficial estimate and includes non-fissile parts of the warhead assembly."
