@@ -41,7 +41,7 @@ If you see something like 13 stars...
 
 We The People, [Pluribus, were children once](/Pluribus_For_Littles).... *playing with toys*... from the { prophet / profit } he made off your nation's [Public Dreams](/American_Dream/American_Dream_Machine.md)!
 
-These GitHub Pages are ... don't worry to much, it will happen!
+These GitHub Pages are ... don't worry [two much](/TwoAndOnlyTw0), it will happen!
 
 &nbsp;
 
