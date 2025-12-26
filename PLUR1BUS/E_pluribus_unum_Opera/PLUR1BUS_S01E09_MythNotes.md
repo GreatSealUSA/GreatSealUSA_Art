@@ -405,7 +405,7 @@ https://www.hollywoodreporter.com/tv/tv-features/pluribus-finale-cliffhanger-cre
 
 "The exact weight that the helicopter can carry for "lifting and drop" (external load operations) with two adults in the front seats depends heavily on which specific Bell model it is (likely a 206L or 407), its specific configuration, and environmental conditions like altitude and temperature."
 
-ChatGPT instead of Google: 
+ChatGPT (not logged in) instead of Google: 
 
 "From the underside and in-flight details, the helicopter can be identified with high confidence.
 
