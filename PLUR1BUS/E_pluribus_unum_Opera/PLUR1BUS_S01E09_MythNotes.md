@@ -397,6 +397,60 @@ https://www.hollywoodreporter.com/tv/tv-features/pluribus-finale-cliffhanger-cre
 
 &nbsp;
 
+<img width="2219" height="1180" alt="image" src="https://github.com/user-attachments/assets/f5885241-733c-4b31-9595-a484eec329fd" />
+
+&nbsp;
+
+"The actress who plays Carol Sturka in Pluribus is Rhea Seehorn, and she is approximately 5 feet 4½ inches (1.64 m) tall. The helicopter appears to be a Bell 206, 406, or 407 model, as indicated by search results featuring similar aircraft with "COASTAL" livery."
+
+"The exact weight that the helicopter can carry for "lifting and drop" (external load operations) with two adults in the front seats depends heavily on which specific Bell model it is (likely a 206L or 407), its specific configuration, and environmental conditions like altitude and temperature."
+
+ChatGPT instead of Google: 
+
+"From the underside and in-flight details, the helicopter can be identified with high confidence.
+
+🚁 Helicopter Identification (confirmed)    
+Model: Bell 412 (very likely a Bell 412EP)     
+
+Key visual features that confirm it:
+
+Twin-engine exhausts on top of the cabin (blurred by rotor wash)
+→ rules out Bell 206 / 407 (single-engine)     
+Skid landing gear with the characteristic Bell 412 geometry    
+Wide, boxy fuselage (much broader than AS350/H125)    
+Rectangular cabin windows and cockpit window shape typical of the 412    
+“FIRE” marking on the belly — common on municipal fire/rescue aircraft    
+Belly-mounted equipment port (often camera, searchlight, or sensor)    
+Tail boom and proportions match the 412 exactly"    
+
+&nbsp;
+
+<img width="1566" height="870" alt="image" src="https://github.com/user-attachments/assets/a1ec6dc8-0b2f-4a89-b9d3-9b128eca8276" />
+
+&nbsp;
+
+OPERA_A Carol has "nothing to lose, fire away, fire away!" https://youtu.be/JRfuAukYTKg?t=121
+
+&nbsp;
+
+Another stab with ChatGPT logged-in:  
+
+"The overall proportions of the cabin and tail boom, plus the fire-specific belly marking, strongly match an Airbus AS350 (modern designation: H125) rather than a Bell 206. This is the exact model most fire departments, contractors, and productions rely on because it:
+
+Carries more payload     
+Handles heat and altitude better    
+Is extremely common in real-world fire operations (especially in the US)"        
+
+&nbsp;
+
+&nbsp;
+
+
+
+&nbsp;
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
