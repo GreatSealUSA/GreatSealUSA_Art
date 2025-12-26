@@ -1,4 +1,4 @@
-# Copypast TNG0
+# Copypasta TNG0
 
 The next generation Copy Past
 
