@@ -34,4 +34,20 @@ Who died before he finished, like Tim Finnegan, and you bring the story and deve
 
 * Book II, Chapter 1 of James Joyce's Finnegans Wake, page 220 https://www.finnegansweb.com/wiki/index.php/Page_220 "something, until they adumbrace a pattern of somebody else or other, after which they are both car-ried off the set and brought home to be well soaped, sponged and scrubbed again by ANN" - Pluribus, Annie Pluribus, the rivverun cleaning of the Pirate Lady ABQ landing rebirth washing.
 
+&nbsp;
 
+# Carol ACEBABY 
+
+ACEBABY license plate   
+JUST MARRIED!     
+
+* ... "Ace to ace": On page 19 of Joyce's *Woke*, the phrase "Upwap and dump em, ace to ace!" appears, likely a pun on a card game or intimate physical closeness.
+
+* Hive mind radio broadband, baby! "ear of Fionn Earwicker" is linked to a "broadcaster with wicker local jargon for an ace's patent" suggesting a type of early "wireless" technology
+
+* Who is the Author, Carol? Hello World! John One One source, outer space John 1:1 or Pale Blue Dot Pride? Irish word for the numeral 'one' is aon, which sounds like "ain" or "ace" in some contexts. Connecting "ace" to ideas of unity or the beginning... (John One One - [In the Beginning...](https://www.youtube.com/watch?v=M1pmEy6oNvc) the *word* was hurled fro outer space invader!)
+
+* Carol meets her lover baby Pirate Lady... Ace to Ace meeting, Toe to Toe standing, TOW-Missile Missile-toe! There's a bounty on your face, Godwhacker's on the case! Trusty angel girls!
+
+    * "often seen in pop culture like Futurama (Robot Santa's weapon) and Plants vs. Zombies (a plant that shoots icy projectiles)"
+ 
