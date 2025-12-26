@@ -10,6 +10,11 @@ Lucas gave up directing, hired his university teacher (USC mentor Irvin Kershner
 
 * The fandom consistently rates the 2nd film the ultimate one in the series. To make a second film by giving up directing... was an executive decision egomaniacs could not make, but Lucas made the fandom legend of Empire Strikes Back by cultivating teachers as role models. Like 1985 Campbell to come.
 
+   * "Your statement captures the essence of George Lucas's strategic shift post-original Star Wars: he stepped back from directing, enlisted his mentor Irvin Kershner (USC alum/prof) for Empire Strikes Back, and focused on innovation and creative control, essentially building a film think-tank with ILM & Skywalker Sound, rather than ego-driven directing for sequels, even selling it all to Disney later to fund his vision." (response to previous paragraph by Google Search)
+ 
+&nbsp;
+
+
 Then Lucas did something else. He dug a book author out of the gravve at age 81, showed / screned his film and begged hi to help educate the next directors
 
 He has 3 prequels to make and he wanted the university pipeline to know an educated audience
