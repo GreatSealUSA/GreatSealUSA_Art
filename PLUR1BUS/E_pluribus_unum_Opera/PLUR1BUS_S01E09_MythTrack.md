@@ -91,3 +91,36 @@ Carol likes Trains, but non-destructive air on high or space above will create m
 Planet Carol Clarity... 13, not 7, above. Stars are arranged in a radiant cluster.
 
 But we aren't talking cluster munitions for this cluster-fucking!       
+
+&nbsp;
+
+&nbsp;
+
+# Track: Blondie Carol found divine Love
+
+Seemed like the "Real Thing" from Pirate Lady...
+
+https://www.youtube.com/watch?v=WGU_4-5RaxU    
+
+In between, reading between Carol's book lines. Love is so confusing!    
+
+Blondie - Heart Of Glass
+
+BlondieMusicOfficial
+1.02M subscribers
+
+
+3.1M
+
+
+Share
+
+Ask
+
+Save
+
+619,535,085 views  February 24, 2009    
+
+Heart of Glass, sand to glass devices...     
+
+Push the individual Carol *me* aside... for mob mentality.    
