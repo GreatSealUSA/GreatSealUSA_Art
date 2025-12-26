@@ -19,3 +19,15 @@ Another day in the park, I think it was the Forth of July, People smalltalking, 
 Ada before BASIC before C++     
 
 Forth the interpreter or reader to be "alphabet-minded" or open to the book's unconventional use of ECMAScript languages.
+
+&nbsp;
+
+&nbsp;
+
+# कल्प
+
+Cosmic cycle (Kalpa / कल्प)     
+
+Fhiannaíocht     
+
+Great Seal of the United States of America, oh can you read by the overnight Dublin tale, the dawning light, of page 628 to page 3 कल्प iterations?
