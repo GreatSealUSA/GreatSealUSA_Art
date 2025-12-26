@@ -1,6 +1,6 @@
 # *Experience* Linguistic Diversity
 
-Out of the Nile river the pyramid on the great seal flows, riverrun, to the Pale Blue Dot.
+Out of the Nile river the pyramid on the Great Seal flows, riverrun, to the Pale Blue Dot focal points.
 
 &nbsp;
 
