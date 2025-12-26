@@ -465,7 +465,7 @@ Where is this show going after Season One, with the Hive Mind fleeing ABQ? Carol
 
 I think with 4 seasons of the show, the story is going to be about the 13 free being essential to the hive mind. They / We / All / Pluribus already treat Carol like a commander in chief on Air Force One to the hive.
 
-II think Carol is going to reprogram the hive mind, rebels against the empire. There ain't no bad guy... just teaching / learning / book writing / book authoring / schooling to do about love and peering from Carol. https://www.youtube.com/watch?v=h16DmdQvxB0
+II think Carol is going to reprogram the hive mind, rebels against the empire. There ain't no bad guy... just teaching / learning / book writing / book authoring / schooling to do about love and peering from Carol. https://www.youtube.com/watch?v=h16DmdQvxB0 3,769,700 views May 3, 2013
 
 &nbsp;
 
