@@ -337,6 +337,74 @@ New Mexico electromagnetic bomb, with the airwaves of wireless F.M. Radio. The D
 OPERA_A Carol still remembers maybe she can make those people dance. But February 15, 2025 WGA Vince Gilligan speech made me shiver about how bad the social media cesspool was. Something touched me deep inside, the day the Pluribus Great Seal metaphors died. https://www.youtube.com/watch?v=PRpiBpDy7MQ 
 63,477,337 views November 10, 2021 - did *you write* the book of Love, Carol? If The Bible is reformed? Now do you believe in Rock Music, Carol? Can you teach the hive mind how to dance real slow? Fallout shelter, bomb lyric.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Air Force One / Air Force Thirteen
+
+1. An air lift helicopter drop vs. truck was used to drop the bomb at Carol's circle / driveway. Drone drop of trash / flying camera monitoring the ambulance arrival in Episode Nine themes abound.
+
+2. Air spreading at the Zero Hour minute 22 of Episode One. Carol commenting on the air delivery of the alien invasion message to physical bodies. Absorbing the alien 78 second message in weaponized form in New Mexico.
+
+3. Air Force One nuclear football dialog, command and control meeting, where Carol said "pod people" and alien invasion and turning off all recording and listening devices.
+
+4. 13, the Great Seal of the United States of America and 13.
+
+5. Time frame of Episode Nine... Christmas 2025 / magical outer-space prengancy from a baby-daddy on planet Eden or beyond.
+
+&nbsp;
+
+"the number 13 relates to hydrogen bombs through the new **U.S.** B61-13 gravity bomb, a modern thermonuclear weapon **announced in 2023 and with its first unit completed in 2025**, designed for increased yield and targeting hardened sites, though it's a gravity bomb (air-dropped)"
+
+"The B61-13 is a high-yield strategic nuclear bomb and, if detonated at high altitude, it would produce a high-altitude electromagnetic pulse (HEMP) capable of disrupting or damaging unprotected electronics and power grids over a large area. The specific characteristics of the EMP (such as its voltage per meter) depend on the altitude and yield setting used at the time of detonation, information that is generally classified.  The B61-13 itself is a variable-yield ("dial-a-yield") weapon with a maximum yield reportedly around 360 kilotons (kT)."
+
+"the B61-13 nuclear gravity bomb is heavily tied to New Mexico forces, specifically Sandia National Laboratories and Los Alamos National Laboratory (LANL), which lead the design, engineering, and critical components for the weapon, working alongside the Air Force and other national facilities to bring this modern, higher-yield bomb to production for the U.S. nuclear deterrent"
+
+"The first B61-13 unit was assembled in May 2025 at the Pantex Plant in Amarillo, Texas"
+
+"The B61-13, a new US gravity nuclear bomb, has had its first unit assembled at Pantex (near Amarillo, TX) in May 2025, with delivery (likely by specialized air transport, not routine helicopters) to bases like Kirtland AFB (ABQ) for deployment, but specific helicopter transport details aren't public; while the B61-12 weighs about 825 lbs, the B61-13 is expected to be similar or slightly heavier, a manageable load for heavy-lift military helicopters, though exact weights are classified."
+
+"Kirtland AFB (ABQ) is central to the B61-13 nuclear gravity bomb program, as the Air Force Nuclear Weapons Center (AFNWC) headquartered there manages its development and integration, working with Sandia/Los Alamos labs on design and production"
+
+"In the Apple TV+ show Pluribus, Zosia (Karolina Wydra) pilots a ** UH-60 Black Hawk helicopter** in Episode 9 to transport a virus payload, a detail highlighted by the actress learning to fly military aircraft" 
+
+&nbsp;
+
+<img width="1684" height="1004" alt="image" src="https://github.com/user-attachments/assets/b3b00ffb-3f50-4285-82ca-f76f4881c244" />
+
+&nbsp;
+
+"The image shows a Bell 412 utility helicopter, a twin-turbine aircraft developed from the Bell 212 model. Key features and information include:  It is identified as a "FIRE" helicopter, likely used for firefighting operations.  The helicopter features a composite four-blade main rotor system, which improves performance and reduces noise compared to its predecessor.  It has a maximum speed of 259 km/h (161 mph) and a range of 745 km (463 miles)."
+
+"The Agusta-Bell AB412 can carry a substantial external load of up to 5,000 lbs (2,268 kg), which is typically used for dropping water during firefighting operations. This capacity is more than sufficient to accommodate the weight of two adult women in the cabin and a significant amount of cargo dropped from below."
+
+"From Albuquerque (ABQ) to Kirtland AFB, the helicopter distance is very short, essentially just a few miles as Kirtland is located within the greater ABQ area, serving as a major air hub for training and operations"
+
+&nbsp;
+
+Did you pilot the helicopter that drops off the A-bomb?
+
+GILLIGAN No, I’m pretty proud of my piloting skills, but I am in awe of our two different pilots. In episode two, a pilot named Greg dropped off that excavator, and man, that guy’s a pro. Then there was **a pilot named Ken who dropped off the atom bomb in the final episode**. I am humbled by those guys. I could have brought that thing in and set it down within 10 feet of where it was supposed to go, but those guys make me look like I don’t even know what I’m doing. I couldn’t have done it over and over again like those guys. They nailed it to the exact spot time and time again. Those guys made it look easy, and that’s beyond my skillset.
+
+SMITH I thought Karolina \[Wydra\] was piloting. Was it not Karolina? 
+
+GILLIGAN (Laughs.) It looked like it was her, didn’t it? That’s the magic of movies. She really looked like she was flying that thing. It was very well done. 
+
+https://www.hollywoodreporter.com/tv/tv-features/pluribus-finale-cliffhanger-creator-vince-gilligan-interview-1236455087/
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
+
 # Great Beyond
 
 If it makes it 4 seasons:
