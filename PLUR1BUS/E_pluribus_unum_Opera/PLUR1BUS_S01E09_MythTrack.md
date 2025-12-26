@@ -100,26 +100,13 @@ But we aren't talking cluster munitions for this cluster-fucking!
 
 Seemed like the "Real Thing" from Pirate Lady...
 
-https://www.youtube.com/watch?v=WGU_4-5RaxU    
-
 In between, reading between Carol's book lines. Love is so confusing!    
 
-Blondie - Heart Of Glass
 
-BlondieMusicOfficial
-1.02M subscribers
-
-
-3.1M
-
-
-Share
-
-Ask
-
-Save
-
-619,535,085 views  February 24, 2009    
+https://www.youtube.com/watch?v=WGU_4-5RaxU    
+Blondie - Heart Of Glass     
+BlondieMusicOfficial 1.02M subscribers    
+619,535,085 views  February 24, 2009      
 
 Heart of Glass, sand to glass devices...     
 
