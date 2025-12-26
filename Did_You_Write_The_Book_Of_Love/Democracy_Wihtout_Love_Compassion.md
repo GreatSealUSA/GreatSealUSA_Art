@@ -112,4 +112,4 @@ Now how do We The People get this into the public domain? Copyrights and control
 
 We don't need sponsorships, we need to dig deeper, { Unrestricted, Uncut, Public Domain licensing gems }
 
-"Who give more than they take" - Vince Gilligan, February 2025
+"Who give more than they take" - Vince Gilligan on February 15, 2025
