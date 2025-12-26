@@ -32,4 +32,4 @@ Fhiannaíocht
 
 Great Seal of the United States of America, oh can you read by the overnight Dublin tale, the dawning light, of page 628 to page 3 कल्प iterations? Jean Erdman dance moves around the six insides ritualized Great Seal of the USA?
 
-Great Seal stepping up and down, those wake dances?     
+Great Seal stepping up and down, those wake dances? Erdman used stylized movements — including "stepping up and down" that echoed "wake dances" — to represent the fall and resurrection of the protagonist.   
