@@ -6,7 +6,7 @@ George Lucas tried to save the world.
 
 After the massive success of A New Hope, Star Wars 1977, George Lucas did something nobody could imagine.
 
-Lucas gave up directing, hired his university teacher. He went back to school after making the best received California independent film in human history.
+Lucas gave up directing, hired his university teacher (USC mentor Irvin Kershner, U.S.C. as in *University*). He went back to school after making the best received California independent film in human history, "A New Hope". Instead of egoism, he promoted university think-tank ideals!
 
 Then Lucas did something else. He dug a book author out of the gravve at age 81, showed / screned his film and begged hi to help educate the next directors
 
