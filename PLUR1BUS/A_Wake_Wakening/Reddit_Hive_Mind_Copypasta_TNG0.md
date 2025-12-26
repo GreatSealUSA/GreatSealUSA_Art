@@ -6,7 +6,9 @@ George Lucas tried to save the world.
 
 After the massive success of A New Hope, Star Wars 1977, George Lucas did something nobody could imagine.
 
-Lucas gave up directing, hired his university teacher (USC mentor Irvin Kershner, U.S.C. as in *University*). He went back to school after making the best received California independent film in human history, "A New Hope". Instead of egoism, he promoted university think-tank ideals!
+Lucas gave up directing, hired his university teacher (USC mentor Irvin Kershner, U.S.C. as in *University*... School of Cinematic Arts). He went back to school after making the best received California independent film in human history, "A New Hope". Instead of egoism, he promoted university think-tank ideals!
+
+* The fandom consistently rates the 2nd film the ultimate one in the series. To make a second film by giving up directing... was an executive decision egomaniacs could not make, but Lucas made the fandom legend of Empire Strikes Back by cultivating teachers as role models. Like 1985 Campbell to come.
 
 Then Lucas did something else. He dug a book author out of the gravve at age 81, showed / screned his film and begged hi to help educate the next directors
 
@@ -28,4 +30,8 @@ But nobody wanted to read the Bill Moyers interview.
 
 Star Wars Fans on Reddit don't quote it, that's for sure!
 
-TODO: I speed wrote this, lots of rework, I may not finish it evver
+TODO: I speed wrote this, lots of rework, I may not finish it ever
+
+ToDo: Moyers came back after Campbell's death to re-assert the need for people to cite / focus on the 1988 Power of Myth book, but still ignored by directors and fandom in favor of crediting "Monomyth" to Campbell and not Joyce. Joyce Star Wars Day 1938 too much to stomach as inception for directors and fandom both!
+
+TODO: LOTS OF REWRITE. I'm tossing in big ideas without the digestion of hours it needs.
