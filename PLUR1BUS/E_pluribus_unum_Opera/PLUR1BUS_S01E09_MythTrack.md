@@ -67,3 +67,27 @@ Invisible touch, the radio waves aren't so visible as they touch the Pluribus.
 
 * "Original single cover parodying 1963's With the Beatles." Deep media ecology diving. https://en.wikipedia.org/wiki/Land_of_Confusion
 
+&nbsp;
+
+&nbsp;
+
+# TRACK: B61-13 for 13
+
+13 for 13, a knockout blonde, angry at her jilted lover's hive minded ideals.
+
+Military package metaphors abound.
+
+B61-13 has no rocket, needs airlifted, but even atypical *firefight*ing a helicopter can take this, no B-52 required!
+
+Planet Carol, Pale Blue Dot PRIDE on the ABQ Homestead! Gadgets!      
+
+https://www.youtube.com/watch?v=uaXtqSmUlxA     
+3,306,626 views April 11, 2015      
+
+Carol likes Trains, but non-destructive air on high or space above will create more a radio signal than destruction!
+
+"No one has a head... Some say she's from Mars... Or one of the seven stars that shine after three-thirty in the morning"
+
+Planet Carol Clarity... 13, not 7, above. Stars are arranged in a radiant cluster.
+
+But we aren't talking cluster munitions for this cluster-fucking!       
