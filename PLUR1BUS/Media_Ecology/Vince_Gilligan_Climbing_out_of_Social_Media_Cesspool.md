@@ -129,6 +129,8 @@ First Time Hearing The Eagles - Hotel California
 https://youtu.be/ysZqyqf3lEQ?t=986     
 93,090 views  November 10, 2025      
 
+* November 10... "Vince Gilligan's new series *Pluribus* first aired on Friday, November 7, 2025, releasing its first two episodes ("We Is Us" & "Pirate Lady") on Apple TV"
+
 We haven't had that listening spirit here since 1969...
 
 * "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - Vince Gilligan. February 15, 2025. Writing television. Student of New York University. World famous NYU for media studies of Neil Postman.
