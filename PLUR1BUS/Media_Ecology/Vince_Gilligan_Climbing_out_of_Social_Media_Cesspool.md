@@ -125,11 +125,13 @@ OPERA_A Why is the Jesus Cross / Roman Empire still hanging people / All Roads L
 
 # "actually listening" - Vince Gilligan
 
+First Time Hearing The Eagles - Hotel California    
 https://youtu.be/ysZqyqf3lEQ?t=986     
+93,090 views  November 10, 2025      
 
 We haven't had that listening spirit here since 1969...
 
-* "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - Vince Gilligan. February 15, 2025. Writing television.
+* "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - Vince Gilligan. February 15, 2025. Writing television. Student of New York University. World famous NYU for media studies of Neil Postman.
 
 18:30     
 why I love doing these breakdowns and
