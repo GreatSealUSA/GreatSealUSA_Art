@@ -12,9 +12,9 @@ Fixated on Dogma:
 
 2. 9/11, September 11, ONE AND ONLY ONE PERFECT BOOK story, The Bible.
 
-3. ONE AND ONLY ONE PERFECT SCIENCE FICTION BOOK: Book of Mormon
+3. ONE AND ONLY ONE PERFECT SCIENCE FICTION BOOK: Book of Mormon. Translated by Joseph Smith from golden plates and published in year 1830.
 
-4. ONE AND ONLY ONE PERFECT BOOK: Scientology. L. Ron Hubbard
+4. ONE AND ONLY ONE PERFECT BOOK: Scientology. L. Ron Hubbard. Year 1950 bestseller, Dianetics: The Modern Science of Mental Health.
 
 5. [Cherry Picking of the entire Public Library](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md), Library of Alexandria, Library of Congress
 
