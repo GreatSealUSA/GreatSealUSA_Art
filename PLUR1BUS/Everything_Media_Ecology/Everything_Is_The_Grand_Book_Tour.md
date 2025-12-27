@@ -107,7 +107,7 @@ https://mashable.com/article/pluribus-finale-the-left-hand-of-darkness-rhea-seeh
 
 * Lessons for science fiction audiences filmed by George Lucas at Luke Skywalker Ranch Claifornia, published in book "Power of Myth" 1988 page 122:  "BILL MOYERS: What about those others who are ordinary, those who are not poets or artists, or who have not had a transcendent ecstasy? How do we know of these things? JOSEPH CAMPBELL: I’ll tell you a way, a very nice way. **Sit in a room and read — and read and read. And read the right books** by the right people. Your mind is brought onto that level, and you have a nice, mild, **slow-burning rapture** all the time."
 
-     * I strongly believe the argument could be made that this exerpt from a book explaisn the entire season one Pluribus point being made. Why Carol is "Woke" and the Minute 22 Episode One "Wake the Finnegans" reference.
+     * I strongly believe the argument could be made that this exerpt from a book explains the entire season one Pluribus point being made (topic focus). Why Carol is "Woke" and the Minute 22 Episode One "Wake the Finnegans" reference.
  
  
 &nbsp;
