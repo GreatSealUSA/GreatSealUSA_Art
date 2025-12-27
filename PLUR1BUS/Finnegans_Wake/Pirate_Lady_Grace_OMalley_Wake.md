@@ -74,3 +74,9 @@ Was it a Saturday, a man selling ice cream?
 
 Power of Myth, 1988: "is to identify yourself not with the body, which is falling away, but with the consciousness of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?"
 
+https://youtu.be/v3ph4WP4iQk?t=684     
+After the heart emotions attack, why can't they fix her?     
+
+"CAMPBELL: that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love, the **sickness the doctors cannot cure**, the wounds that can be healed only by the weapon that delivered the wound. MOYERS: Meaning? CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow."
+
+The clergy can not fix. 
