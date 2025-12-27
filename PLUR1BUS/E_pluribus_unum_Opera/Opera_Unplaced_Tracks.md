@@ -426,3 +426,17 @@ Looking for Helen
 https://www.youtube.com/watch?v=6s9M-52fRGU    
 The Sky Is Crying- Stevie Ray Vaughan     
 
+&nbsp;
+
+# TRACK Freedom: Orinoco *Flow*
+
+Pirate Lady Author, Pirate Lady Character, Riding the Ocean Waves....
+
+https://www.youtube.com/watch?v=LTrk4X9ACtw
+
+"Orinoco Flow", also released as "Orinoco Flow (Sail Away)", is a song by Irish singer-songwriter Enya from her second studio album, Watermark (1988)
+
+* 1988... Same year as Power of Myth, filmed by George Lucas for science fiction fandoms. Power of Myth covers: the legendary Irish pirate queen Grace O'Malley (Gráinne Ní Mháille), who appears in Book I, Chapter 1, often referenced playfully as "her grace o'malice" or the "prankquean", embodying powerful, cunning womanhood and Irish defiance. Finnegans Wake was published on Star Wars Day 1939. May 4.
+
+* “I love everything that flows,” said the great blind Milton of our times. I was thinking of him this morning when I awoke with a great bloody shout of joy: I was thinking of his rivers and trees and all that world of night which he is exploring. Yes, I said to myself, I too love everything that flows: rivers, sewers, lava, semen, blood, bile, words, sentences. I love the amniotic fluid when it spills out of the bag. I love the kidney with its painful gallstones, its gravel and what-not; I love the urine that pours out scalding and the clap that runs endlessly; I love the words of hysterics and the sentences that flow on like dysentery and mirror all the sick images of the soul; I love the great rivers like the Amazon and the Orinoco, where crazy men like Moravagine float on through dream and legend in an open boat and drown in the blind mouths of the river. I love everything that flows, even the menstrual flow that carries away the seed unfecund. I love scripts that flow, be they hieratic, esoteric, perverse, polymorph, or unilateral. I love everything that flows, everything that has time in it and becoming, that brings us back to the beginning where there is never end: the violence of the prophets, the obscenity that is ecstasy, the wisdom of the fanatic, the priest with his rubber litany, the foul words of the whore, the spittle that floats away in the gutter, the milk of the breast and the bitter honey that pours from the womb, all that is fluid, melting, dissolute and dissolvent, all the pus and dirt that in flowing is purified, that loses its sense of origin, that makes the great circuit toward death and dissolution. The great incestuous wish is to flow on, one with time, to merge the great image of the beyond with the here and now. A fatuous, suicidal wish that is constipated by words and paralyzed by thought.” ― Henry Miller, Tropic of Cancer. Famously banned in the U.S. for obscenity
+
