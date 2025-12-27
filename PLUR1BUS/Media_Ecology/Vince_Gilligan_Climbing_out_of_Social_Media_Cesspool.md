@@ -117,3 +117,49 @@ https://old.reddit.com/r/CringeTikToks/comments/1pt3n2o/us_border_officer_road_r
 
 OPERA_A Why is the Jesus Cross / Roman Empire still hanging people / All Roads Lead to { WGA February 15, 2025 speech about Cesspools of Social Media / Information Superhighways }. I know this USA Superhighway, why is the Jesus Cross Pirate Ship mast the hanging? My USA *Civic Ditty* https://www.youtube.com/watch?v=j0IO-S6nTUY 44,629 views December 4, 2018 - Guess Vince Gilligan is the *lucky one*, you think you have heard this one before. 
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# "actually listening" - Vince Gilligan
+
+https://youtu.be/ysZqyqf3lEQ?t=986     
+
+We haven't had that listening spirit here since 1969...
+
+* "I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other" - Vince Gilligan. February 15, 2025. Writing television.
+
+18:30     
+why I love doing these breakdowns and
+diving in and like **truly listening to
+something actively** and listening to the
+lyrics because I never realized you had
+such dark, twisted, interpretive
+storytelling. 
+
+Hotel California can be a
+sanctuary for some. It can be a prison
+for others. It can allude to fame. Can
+allude to hedonism. Can allude to
+society as a whole. It can allude to our
+own minds being prisoners of our own
+past, our own ghosts within our own
+heads and just wanting to forget can be
+that escapism. And for me, that ultimate
+escapism is what happens here with the
+music, right? We stop with the lyricism
+now. And like we've we've said enough
+about never leaving. And then you just
+give into the night and you give into
+the sounds and you give into the music.
+And instead of overthinking this with
+logic, you just close your eyes and you
+give into the emotions and just forget.
+
+And wow, I I'm I'm so impressed with
+with the lyricism of that. I'm I'm I'm
+like stuttering here because I something
+**I've never ever realized** or appreciated.
+I've really enjoyed that. 
