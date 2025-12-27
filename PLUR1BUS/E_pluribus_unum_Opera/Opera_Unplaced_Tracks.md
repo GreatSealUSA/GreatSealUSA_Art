@@ -475,3 +475,18 @@ Carol trying to cage a member of the hive mind, women trying to cage
 
 Beautiful loser... Pirate lady at sea "He wants to live like a sailor at sea
 Beautiful loser, where you gonna fall?" lyrics. Helen's fall / Tim ladder fall.
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: Carol alone in the city
+
+"Off By One Again" is a track by the indie/emo band The Ritornello Form, released in 2025. According to the band's songwriter, Abigail (Abby) Walker, the lyrics explore the personal and emotional challenges of growing up and the cycle of repeating past errors. 
+
+"Lyrical Therapy: The band views the track as a form of therapy, using the songwriting process to deal with internal struggles and resonate with listeners who may feel similarly stuck"
+
+https://old.reddit.com/r/Emo/comments/1pec33y/the_ritonello_form_off_by_one_again_ffo_braid/      
+December 4, 2025     
+
+* "BILL MOYERS: You say that’s the beginning of humanity. But in these stories, that’s **the moment when gods are born**. The virgin birth — it’s a god who emerges. CAMPBELL: And do you know who that god is? It’s you. All of these symbols in mythology refer to you. **You can get stuck** out there, and think it’s all out there. So you’re thinking about Jesus with all the sentiments relevant to how he suffered — out there. But that suffering is what ought to be going on in you. Have you been spiritually reborn? Have you died to your animal nature and come to life as a human incarnation of compassion?" - [1988 book, "Power of Myth", Page 219](https://books.google.com/books?id=cM5vDwAAQBAJ&pg=PA219&dq=%22So+you%E2%80%99re+thinking+about+Jesus+with+all+the+sentiments+relevant+to+how+he+suffered%22&hl=en&newbks=1&newbks_redir=1&sa=X)
