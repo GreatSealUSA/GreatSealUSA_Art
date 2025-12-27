@@ -1,6 +1,7 @@
 # Deism Creating God Metaphors 
 
-https://www.youtube.com/watch?v=np6n_95u-kk
+https://www.youtube.com/watch?v=np6n_95u-kk     
+89,154 views December 2, 2025     
 
 "Are We Waking Up a New God? - Agrippa's Diary"
 
