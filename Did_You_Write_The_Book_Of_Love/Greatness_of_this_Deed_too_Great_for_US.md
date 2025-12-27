@@ -6,7 +6,7 @@
 
 Again, in another way, stored inband, outband. Is this *deed* from the founding fathers too great for the USA and Pale Blue Dot?
 
-![Greatness of this deed too GREAT for U.S. ?](Greatness_of_This_Great_Seal_Climb_too_Great_for_US.png)
+![Greatness of this deed too GREAT for U.S. ? See the ladder on lower left of image? Tim Finnegan's ladder climb to high above](Greatness_of_This_Great_Seal_Climb_too_Great_for_US.png)
 
 &nbsp;
 
