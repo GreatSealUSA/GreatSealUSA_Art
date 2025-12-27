@@ -464,7 +464,7 @@ Yha, hear what I say... Girl.... Vince Gilligan on February 15, 2025 spoke of pe
 
 # TRACK: Wealthy Soul
 
-https://www.youtube.com/watch?v=96PiX9tnMwE   
+https://www.youtube.com/watch?v=96PiX9tnMwE    
 2,031,075 views  May 25, 2018     
 
 Hive mind runs when Carol gets too crazy    
@@ -472,3 +472,6 @@ Hive mind runs when Carol gets too crazy
 Freedom, traveling, going, love when you can    
 
 Carol trying to cage a member of the hive mind, women trying to cage   
+
+Beautiful loser... Pirate lady at sea "He wants to live like a sailor at sea
+Beautiful loser, where you gonna fall?" lyrics. Helen's fall / Tim ladder fall.
