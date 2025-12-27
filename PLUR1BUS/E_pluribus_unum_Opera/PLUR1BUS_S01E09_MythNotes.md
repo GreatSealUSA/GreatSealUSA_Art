@@ -488,6 +488,6 @@ Carol the book writer, the true writer, the author of John 1:1 that Carol is bec
 
 The lesbian *erotic* authoring irony    
 The erotic irony of shipping pirate ladies      
-Killing your partner with hand grenades and nukes. Your new wife needs a tank and an aeroplane for B61-13 gravity delivery! OPERA_A https://www.youtube.com/watch?v=4UZuNZRgukA Donna Murphy. 3,651 views May 25, 2009
+Killing your partner with hand grenades and nukes. Your new wife needs a tank and an aeroplane for B61-13 gravity delivery! OPERA_A https://www.youtube.com/watch?v=4UZuNZRgukA Donna Murphy. 3,651 views May 25, 2009 Carol's had too much booze to drink! But she will still be alive. Now the laws of the hive mind picked up on Carol's eggs!
 
 * "The perfect human being is uninteresting — the Buddha **who leaves the world**, you know. It is the imperfections of life that are lovable. And when **the writer sends a dart** of the true word, it hurts. But it goes with love. This is **what Mann called “erotic irony,” the love for that which you are killing** with your cruel, analytical word." - 1988 book George Lucas filmed for science fiction story fandoms. ["Power of Myth" year 1988, page 3](https://www.google.com/books/edition/The_Power_of_Myth/2GOIGuh5GJ4C?hl=en&gbpv=1&dq=%22The+perfect+human+being+is+uninteresting%E2%80%94the+Buddha&pg=PA3&printsec=frontcover)
