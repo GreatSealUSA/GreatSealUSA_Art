@@ -17,4 +17,4 @@ https://youtu.be/np6n_95u-kk?t=232
 Are We Waking Up a New God? - Agrippa's Diary      
 After Skool     
 
-* "We cannot change the world. But we can change ourselves...and that will change the world. The goal of this channel is to empower the individual and deliver profound ideas through art. Everyone is welcome to contribute. If you have a good idea for an animation please send them to Mark at AfterSkool100@gmail.com "
+* "We cannot change the world. But we can change ourselves...and that will change the world. The goal of this channel is to empower the individual and deliver profound ideas through art. Everyone is welcome to contribute. If you have a good idea for an animation *please send them to Mark* at AfterSkool100@gmail.com "
