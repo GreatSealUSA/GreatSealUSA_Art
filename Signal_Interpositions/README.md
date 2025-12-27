@@ -18,7 +18,7 @@ Another day in the park, I think it was the Forth of July, People smalltalking, 
 
 Ada before BASIC before C++     
 
-Forth the interpreter or reader to be "alphabet-minded" or open to the book's unconventional use of ECMAScript languages.
+Forth the interpreter or reader to be "alphabet-minded" or open to the book's unconventional use of ECMAScript languages. "[Subroutines called *words*](https://en.wikipedia.org/wiki/Forth_\(programming_language\))" of John 1:1.
 
 &nbsp;
 
