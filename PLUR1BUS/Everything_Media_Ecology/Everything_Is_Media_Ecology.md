@@ -172,3 +172,17 @@ Product placement / meme viral. Samsung makes Android cosmos phones, in competit
 "The controversy began when a Reddit user shared an image of a smart fridge displaying the message: WE’RE SORRY WE UPSET YOU, CAROL. The user alleged that this personalized message triggered a severe mental health crisis, leading to hospitalization."
 
 Is this hoax story a hoax? prank, bro? Joycean media ecology, University of Toronto?
+
+&nbsp;
+
+&nbsp;
+
+# Streaming vs. Offline
+
+"GILLIGAN I like owning the thing. I don’t like renting it through the ether until it just goes away one day. I want to own the Blu-ray or the DVD or 4K Ultra blah, blah. I love that stuff. So we definitely want to have a physical version of this show; that is absolutely our intention. It’s Sony’s department. We’re going to do our level best to make that happen, and maybe we’ll put that \[temp scene\] on there. I don’t know. It’d feel kind of self-serving, and it’s really not that good. There’s a reason John Cena is John Cena, and there’s a reason I’m behind the camera all the time, not in front of it."      
+https://www.hollywoodreporter.com/tv/tv-features/pluribus-finale-cliffhanger-creator-vince-gilligan-interview-1236455087/#:~:text='Pluribus'%20Star%20Carlos%2DManuel,Definitely%20not.%E2%80%9D
+
+"Yeah, it’s going to frustrate some folks, just to be honest. We work at the speed we work at, much like glaciers melt at the speed that they melt at. For my own sake, as much as anybody, selfishly, I wish we could get this job done quicker because I don’t know how many years I’ve got left. I still want to do more things, but I go slower than I used to. So it’s going to be a while between seasons; it just is. Unless we invent a time machine or figure out how to stop time, it’s just the nature of the beast."
+
+* "what is unfortunate for us is that a lot of the people who write these stories do not have the sense of their responsibility. These stories are making and breaking lives. But the movies are made simply to make money. The kind of responsibility that goes into a priesthood with a ritual is not there. That is one of our problems today." - Skywalker Ranch lessons for fandoms / science fiction audiences, published 1988 ... Breaking Bad lives.
+
