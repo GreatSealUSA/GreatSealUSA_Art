@@ -58,3 +58,19 @@ ACEBABY license plate, marriage license, divorce licensing, jurisdictional polic
 ACEBABY a Son is Born on Season One Holiday Season. a Sun is born, a nuclear fire! A Sunshine device is born on Episode Nine ending. "B61-13 is a thermonuclear weapon (colloquially known as a hydrogen bomb) that uses isotopes of hydrogen" December 24 / December 25. Blow it to *Kingdom Come*, the eggs and the story of space-fertilization of a virgin woman. Blow it all back to March 25, [Lady Day](../Everything_Media_Ecology/Everything_is_Lady_Day.md), Carol! Pirate Lady author, you wield the pen of the author of John 1:1 
 
 
+&nbsp;
+
+&nbsp;
+
+# Man selling Ice Cream
+
+Identity piracy. Identity theft.    
+
+https://youtu.be/v3ph4WP4iQk?t=472     
+Pirate Lady's favorite: Old Man Freedom-giving   
+
+Was it a Saturday, a man selling ice cream?    
+"1972 song "Saturday in the Park" by the band Chicago, inspired by a real July 4th celebration"    
+
+Power of Myth, 1988: "is to identify yourself not with the body, which is falling away, but with the consciousness of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?"
+
