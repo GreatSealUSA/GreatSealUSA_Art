@@ -99,7 +99,7 @@ Forest for Trees, Context Assertion: { Minute 22 / Kepler 22 } Episode One Zero 
 
 &nbsp;
 
-# 1968 book ambisexual
+# 1969 book; alien ambisexual
 
 https://mashable.com/article/pluribus-finale-the-left-hand-of-darkness-rhea-seehorn
 
@@ -110,3 +110,29 @@ https://mashable.com/article/pluribus-finale-the-left-hand-of-darkness-rhea-seeh
      * I strongly believe the argument could be made that this exerpt from a book explaisn the entire season one Pluribus point being made. Why Carol is "Woke" and the Minute 22 Episode One "Wake the Finnegans" reference.
  
  
+&nbsp;
+
+&nbsp;
+
+# Not just any university, any city
+
+"Vince Gilligan graduated from Lloyd C. Bird High School in 1985, in Chesterfield County, Virginia, before heading to **New York University** for his college education."
+
+Joseph Campbell is from New York... taught at Sarah Lawrence College in New York. Campbell lectured to public at Cooper Union in New York. And the final interviews in year 1987, year of his death, for Power of Myth were held in New York museum...
+
+"**New York University** is highly regarded for media studies, ranking 9th worldwide for communication and media studies in 2021 rankings. The program's scholarly roots trace back to **Neil Postman's founding of the Media Ecology program**."
+
+&nbsp;
+
+&nbsp;
+
+# Notes of some kind
+
+this needs placed elsewhere and edited. Like everything here. David Foster Wallace end-notes or whatever. Exhausted by New York City real estate land lord media ecology, New York City Fox News Rupert Murdoch media ecology... exhausted doesn't even begin to describe my mind.
+
+* See Also: Howard Bloom, New York City, "Global Brain" book year 2000 and before that Bloom's internet postings. https://www.psychologytoday.com/us/contributors/howard-bloom - I find Howard Blooms insights from his August 2000 book rather interesting because he has real world experience shaping the fandoms of rock music: Styx, Prince, Billy Joel, etc.
+
+    * And I've been a serious fan of Steely Dan's NYC vs. West Coast media ecology since the 1990's and have traveled to see Steely Dan live (jazz music often differs from show to show, city to city) on east coast (Florida), west Coast (California), Texas, Colorado, Chicago. OPERA_A Not just casual songs from Steely Dan, but taking upon the Torah / Bible / Quran science fiction trilogy. "Everything Must Go" (Echoing New Yorker in Power of Myth 1988 book "disqualified" from the future). Response to NYC September 11, 9/11... https://www.youtube.com/watch?v=M1pmEy6oNvc
+  
+    *   My father worked as as an executive and scientist / chemist for RKO entertainment New York, empire and Pepsi corporation in New York. In high school, I got to go on a special VIP attendance of Michael Jackson in Detroit, Motown music center of culture, for a concert when Pepsi (indoctrinating children https://www.youtube.com/watch?v=po0jY4WvCIc ) was integrated with his soda-pop pop music. I later worked in media systems for the Popular Culture museum... https://en.wikipedia.org/wiki/Museum_of_Pop_Culture
+
