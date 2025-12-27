@@ -10,7 +10,7 @@ Fixated on Dogma:
 
 1. ONE and ONLY ONE true perfect science fiction story. The Bible.
 
-2. 9/11, [September 11](https://www.lemonde.fr/disparitions/article/2007/03/06/l-esprit-du-terrorisme-par-jean-baudrillard_879920_3382.html), ONE AND ONLY ONE PERFECT BOOK story, The Holy Quran, the year 635 story. The Mecca geogrpahy.
+2. 9/11, [September 11](https://www.lemonde.fr/disparitions/article/2007/03/06/l-esprit-du-terrorisme-par-jean-baudrillard_879920_3382.html), ONE AND ONLY ONE PERFECT BOOK story, The Holy Quran, the year 635 story. The Mecca geography.
 
 3. ONE AND ONLY ONE PERFECT SCIENCE FICTION BOOK: Book of Mormon. Translated by Joseph Smith from golden plates and published in year 1830.
 
