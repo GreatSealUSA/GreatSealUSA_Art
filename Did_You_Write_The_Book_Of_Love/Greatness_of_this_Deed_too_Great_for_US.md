@@ -23,3 +23,27 @@ After Skool
 
 "Significant climate shifts did occur in Africa around that time (the end of the Younger Dryas period, about 11,600 years ago), which led to the desiccation of the Sahara and drew populations towards the Nile Valley, forming the basis of later Egyptian civilization."     
 On the Great Seal of the United States of America, plants grow on the front side of the pyramid, on the Nile River. Context assertions, climbing the ladder higher, climbing the pyramid higher with our minds. Working together to peer to peer public dreams together. OPERA_A Pushing the barrier. https://www.youtube.com/watch?v=bVYXWVs0Prc Chanting the Mantra of the left claw of the eagle on the Great Seal of the United States of America. Lifting the veil of the Tree of Knowledge, some call it the Search for The Grail... and you know that for sure! 24,078,143 views December 18, 2016 ... published on YouTube in holiday seasons. Projecting out images in space and time.
+
+&nbsp;
+
+&nbsp;
+
+# Too deep?
+
+Too deep of a divining diving of John 1:1 Bible verse mastery?
+
+"The **neatschknee** Novgolosh. How the spinach ruddocks are being tatoovatted up for **the second comings**"     
+https://www.finnegansweb.com/wiki/index.php/Page_346    
+Page 346, Finnegans Wake, James Joyce     
+
+* "scene is set in a pub, where the "Butt and Taff" television skit is recounting the story of How Buckley Shot the Russian General."
+
+* "a chaotic, cold scene—likely a camp or a tavern in the Crimean War—where "everybody" (HCE) is dressing and undressing, merging identities and nationalities in the "muck" of historical conflict."
+
+* the "Second Coming of the Antichrist" localized to Irish politics (anti-green)
+
+* "phonetic similarity to Nietzsche is intentional. Joyce frequently weaves the philosopher's name into the text (e.g., "Nietzsch" or "Nichevo"), often pairing him with ideas of the "Second Coming" or "Antichrist" (Antigreenst) mentioned in the next line"
+
+also:
+
+https://old.reddit.com/r/Nietzsche/comments/wuso14/nietzsche_in_fiction_james_joyces_dubliners_1914/   
