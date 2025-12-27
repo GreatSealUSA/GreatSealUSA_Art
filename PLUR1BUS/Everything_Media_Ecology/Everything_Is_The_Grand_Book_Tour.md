@@ -93,3 +93,20 @@ In the "Telemachus" and "Lotus Eaters" episodes of Ulysses, the characters obser
 
 Forest for Trees, Context Assertion: { Minute 22 / Kepler 22 } Episode One Zero Hour, in a *Public House* before the singsong begins, Helen delivers a post-doctorate thesis on James Joyce authoring. The world ends at minute 22.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# 1968 book ambisexual
+
+https://mashable.com/article/pluribus-finale-the-left-hand-of-darkness-rhea-seehorn
+
+"Published in 1969, The Left Hand of Darkness introduces the frigid alien planet of Gethen, whose inhabitants are ambisexual. Every month, they undergo a period known as kemmer, during which they develop sexual characteristics. The Gethenians' unique gender and sexuality has created a world vastly different from our own, impacting everything from war (there is none) to child-rearing (everyone chips in). The novel won both the Hugo and Nebula Awards for Best Novel, the second to do so after Frank Herbert's Dune."
+
+* Lessons for science fiction audiences filmed by George Lucas at Luke Skywalker Ranch Claifornia, published in book "Power of Myth" 1988 page 122:  "BILL MOYERS: What about those others who are ordinary, those who are not poets or artists, or who have not had a transcendent ecstasy? How do we know of these things? JOSEPH CAMPBELL: I’ll tell you a way, a very nice way. **Sit in a room and read — and read and read. And read the right books** by the right people. Your mind is brought onto that level, and you have a nice, mild, **slow-burning rapture** all the time."
+
+     * I strongly believe the argument could be made that this exerpt from a book explaisn the entire season one Pluribus point being made. Why Carol is "Woke" and the Minute 22 Episode One "Wake the Finnegans" reference.
+ 
+ 
