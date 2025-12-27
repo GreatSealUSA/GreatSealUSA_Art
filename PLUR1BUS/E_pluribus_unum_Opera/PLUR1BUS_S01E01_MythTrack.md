@@ -218,3 +218,13 @@ On a night... Finnegans Wake dreams of night have started for Carol at the Publi
 And Helen isn't the way Carol found her. When you marry, you do not know the future, you do not know if war will break out in Ukraine in year 2012 at your wedding... you have made an *eternal pledge* of all billions of years of the cosmos.. and you DO NOT KNOW if being Jewish in Germany in 1935 changes your future of your marriage.
 
 Helen  is waiting for Carol to polish her book, the bitter birth of editing and refining the "Work in Progress" unpublished book.
+
+&nbsp;
+
+# Christmas 2025
+
+https://youtu.be/HquI1GtrHrY?t=508     
+
+More about a breakup that happened at Christmas, Episode 9, Carol gave it away...   
+
+Ski lodge, just like Carol and Pirate Lady breakup     
