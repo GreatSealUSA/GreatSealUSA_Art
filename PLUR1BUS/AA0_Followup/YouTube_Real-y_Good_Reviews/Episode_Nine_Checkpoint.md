@@ -127,7 +127,7 @@ Tuesday, November 11, 2025 comment date
 ## Four Stars Missing
 
 Four-Star Generals symbolism?    
-Four stars, to the right of the eagle's head, are missing from the HDTV image In Pluribus. Not only is the Eagle's head and claws reversed, but only 9 stars out of 13 are under control of the Eagle. Why have the PLUR1BUS television show creators left out those 4 stars, what is the meaning? Doctored image / 78-second VLA message manipulation?
+Four stars, to the right of the eagle's head, are missing from the HDTV image In Pluribus. Not only is the Eagle's head and claws reversed, but only 9 stars out of 13 are under control of the Eagle. Why have the PLUR1BUS television show creators left out those 4 stars, what is the meaning? Doctored image / 78-second VLA message manipulation? Has the hive mind group-think removed those 4 stars because there is some intergalactic war hearts and minds going on with 13 outer-space systems and 4 out of 13 planetary star systems have already been conquered? 
 
 &nbsp;
 
