@@ -56,7 +56,7 @@ Looking to the Kepler 22 stars, this is Eden?.... looking to the moon.
 https://youtu.be/BfrUQA2tb6M?t=136    
 31,107,319 views July 31, 2018       
 
-* "Come and join the Hive Mind Party dressed *to kill*" individuality and ITS HARD freedom.
+* "Come and join the Hive Mind Party dressed *to kill*" individuality and [IT'S HARD](https://en.wikipedia.org/wiki/It%27s_Hard) freedom.
 
 * "The girls smile And people forget The snow packs as the skier tracks"
 
