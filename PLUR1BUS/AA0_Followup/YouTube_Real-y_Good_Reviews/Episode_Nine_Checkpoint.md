@@ -82,3 +82,8 @@ Caution! Echoland!
 
 <img width="2163" height="1238" alt="image" src="https://github.com/user-attachments/assets/344011f7-53ba-483b-822e-228ba7f4ce97" />
 
+&nbsp;
+
+I personally drew attention to this in public on this Reddit social media comment: https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobtdlf/    
+Tuesday, November 11, 2025 comment nobtdlf
+
