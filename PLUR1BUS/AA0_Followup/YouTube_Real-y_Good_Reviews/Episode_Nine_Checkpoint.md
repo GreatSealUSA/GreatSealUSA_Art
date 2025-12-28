@@ -126,6 +126,14 @@ Tuesday, November 11, 2025 comment date
 
 ## Four Stars Missing
 
+* "The Crest Distribution: There are nine stars arranged in an arc/cluster directly above the eagle's head."
+
+* "The Side Distribution: There are four stars placed below that main cluster, typically seen on the eagle's right (dexter) side or nestled near the head/wings, totaling 13 stars in that central area."
+
+* "Eagle's Right (Dexter) Side: The official seal used by President Trump in 2025 has the eagle facing its right (toward the olive branch)."
+
+* "The "Pluribus" Side: The scroll usually curves so that "E Pluribus" is on the eagle's right (near the olive branch) and "Unum" is on the left (near the arrows)."
+
 Four-Star Generals symbolism?    
 Four stars, to the right of the eagle's head, are missing from the HDTV image In Pluribus. Not only is the Eagle's head and claws reversed, but only 9 stars out of 13 are under control of the Eagle. Why have the PLUR1BUS television show creators left out those 4 stars, what is the meaning? Doctored image / 78-second VLA message manipulation? Has the hive mind group-think removed those 4 stars because there is some intergalactic war hearts and minds going on with 13 outer-space systems and 4 out of 13 planetary star systems have already been conquered? 
 
