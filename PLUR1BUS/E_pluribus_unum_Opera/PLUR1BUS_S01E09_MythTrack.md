@@ -58,9 +58,11 @@ https://youtu.be/BfrUQA2tb6M?t=136
 
 * "Come and join the Hive Mind Party dressed *to kill*" individuality and [IT'S HARD](https://en.wikipedia.org/wiki/It%27s_Hard) freedom.
 
-* "The girls smile And people forget The snow packs as the skier tracks"
+* "The girls smile and [people](Great_Seal_We_The_People_Opera.md) forget! The snow packs as the skier tracks..."
 
 * The Hive Mind girls smile to Girly Girl Carol, together the smile and forget!
+
+* "Drinks flow... people forget" lyrics.. Oh Carol the ABQ author is always boozing like James Joyce in Paris!
 
 &nbsp;
 
