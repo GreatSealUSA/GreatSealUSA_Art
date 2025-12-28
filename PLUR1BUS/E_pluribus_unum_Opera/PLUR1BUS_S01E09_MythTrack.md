@@ -115,6 +115,8 @@ But we aren't talking cluster munitions for this cluster-fucking!
 
 &nbsp;
 
+&nbsp;
+
 # Track: Blondie Carol found divine Love
 
 Seemed like the "Real Thing" from Pirate Lady...
@@ -130,3 +132,37 @@ BlondieMusicOfficial 1.02M subscribers
 Heart of Glass, sand to glass devices...     
 
 Push the individual Carol *me* aside... for mob mentality.    
+
+&nbsp;
+
+&nbsp; 
+
+&nbsp;
+
+# TRACK: Will you net Pirate Lady in the Middle?
+
+Sister Golden Hair (America) - Pirate Lady isn't ready for the wedding alter or sacrificial alter to free thinking. But she can't get Carol off her mind
+
+https://youtu.be/4gibSb1_GGw?t=31         
+**America** - Sister **Golden Hair** (Official Audio)     
+4,859,887 views  May 21, 2019     
+
+Will *they* meet in the middle? The middle path?
+
+George Lucas filmed lessons for science fiction fans in the future (Pluribus future) [published in 1988 book "Power of Myth"... Page 244](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA244&dq=%22One+early+writer+says+that+the+Grail+was+brought+from+heaven+by+the+neutral+angels%22&hl=en&newbks=1&newbks_redir=1&sa=X):
+
+CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow. That’s a motif that appears in symbolic form in many medieval stories of the lance that delivers a wound. It is only when that lance can touch the wound again that the wound can be healed.
+
+BILL MOYERS: Wasn’t there something of this idea in the legend of the Holy Grail?
+
+CAMPBELL: In the monastic version of the story, the Grail is associated with Christ’s passion. The Grail is the chalice of the Last Supper and the chalice that received Christ’s blood when he was taken from the cross.
+
+MOYERS: What does the Grail represent then?
+
+CAMPBELL: There’s a very interesting statement about the origin of the Grail. One early writer says that the Grail was brought from heaven by the neutral angels. You see, during the war in heaven between God and Satan, between good and evil, some angelic hosts sided with Satan and some with God. The Grail was brought **down through the middle by the neutral angels. It represents that spiritual path** that is between pairs of opposites, between fear and desire, between good and evil.
+
+The theme of the Grail **romance is that the land, the country, the whole territory of concern has been laid waste**. It is called a wasteland. And what is the nature of the wasteland? It is a land where everybody is living an inauthentic life, doing as other people do, **doing as you’re told, with no courage for your own life**.
+
+&nbsp;
+
+https://youtu.be/4gibSb1_GGw?t=138 "Will you meet me in the Middle?"
