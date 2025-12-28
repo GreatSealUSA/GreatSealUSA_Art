@@ -6,6 +6,8 @@ Carol is a hard-core skeptic.
 
 Carl Sagan's Contact story abounds.
 
+Carol / Carl - gender swap. Both two-syllable names.
+
 &nbsp;
 
 # Magical Alien Encounters
