@@ -186,3 +186,7 @@ Remastered Release premiered on [Lady Day Eve, the egg day](../Everything_Media_
 3. Only if you ride the Tide, Pirate Lady on ships of the ocean, relation-ship waves. ALP waves, Annie Pluribus waves!
 
 4. "Leave, but don't leave me" - leave the hive mind, but don't leave Carol!
+
+5. Pink Floyd often [depicts the pyramid of the Great Seal of the United States of America symbolism. The eye at step 13 that sees white light](https://old.reddit.com/r/pinkfloyd/comments/x0o5cf/hello_there_can_someone_give_me_exact/) as prism spectrum. "We The People" of Pale Blue Dot, "Pluribus", *All* of Us. ... "The other thing was the triangle. I think the triangle, which is a symbol of thought and ambition, was very much a subject of Roger’s lyrics. So the triangle was a very a useful – as we know, obviously – was a very useful icon to deploy and making it into the prism – you know, the prism belonged to the Floyd."
+
+6. The Enlightenment, year 1776 foundations of the Great Seal United States of America foundations. Science thinking. "created by the art group Hipgnosis (specifically Storm Thorgerson and Aubrey Powell), was inspired by a photograph of a prism in a physics textbook and the band's elaborate light shows during their concerts."
