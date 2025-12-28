@@ -166,3 +166,23 @@ The theme of the Grail **romance is that the land, the country, the whole territ
 &nbsp;
 
 https://youtu.be/4gibSb1_GGw?t=138 "Will you meet me in the Middle?"
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: Pirate Lady, Don't Leave Carol
+
+https://youtu.be/k9ynZnEBtvw?t=144     
+Pink Floyd - The Dark Side Of The Moon (50th Anniversary) [2023 Remaster] {Full Album}
+38,926,426 views  Premiered **March 24**, 2023    
+
+Remastered Release premiered on [Lady Day Eve, the egg day](../Everything_Media_Ecology/Everything_is_Lady_Day.md) for Christmas Eve ending of Season One!
+
+1. Look around, choose your own individual personal ground
+
+2. Run rabbit run, don't take my fertility eggs, Pirate Lady!
+
+3. Only if you ride the Tide, Pirate Lady on ships of the ocean, relation-ship waves. ALP waves, Annie Pluribus waves!
+
+4. "Leave, but don't leave me" - leave the hive mind, but don't leave Carol!
