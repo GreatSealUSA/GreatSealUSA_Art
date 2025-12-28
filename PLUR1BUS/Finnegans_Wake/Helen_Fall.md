@@ -72,8 +72,8 @@ Woke, wake, Finnegan's Woke. [*"Zero Hour serves as a metaphor for awakening"...
 
 &nbsp;
 
-As always, raw and unedited, needs editing, editing, editing. Like Carol's Bitter Coming out of Closet book, 4.5 years of writing and still needs polish ad edit. The Minute 22 scene of Episode One ;)
+PUBLIC HOUSE NOTE, DEAR GITHUB CHECKING-OUT PARSERS AND COMPILERS: As always, raw and unedited, needs editing, editing, editing. Like Carol's Bitter Coming out of Closet book, 4.5 years of writing and still needs polish and edit. The Minute 22 scene of Episode One ;)
 
 ToDo: https://youtu.be/xtsTB3U8AeE?t=300 the Finnegans Wake representing the more oral society vs. [Roman Catholic / British Empire of men's laws and God-ordained Kingdom and Pope and Bishop rule](https://en.wikipedia.org/wiki/Divine_right_of_kings). Helen's Fall into the laws of the hive mind Tree of Knowledge Eden invasion from outer-space God (Bible verse Genesis 3:8, *strolls* [The Pretender God](https://youtu.be/2ROK1-VvOQ0?t=139), who takes tender away from women and makes men [harsh Apple //+ knowledge tree plucking paywalling / walled garden](https://old.reddit.com/r/pluribustv/comments/1pjd2mi/what_not_just_ask_carol_to_remove_the_apples_from/) rules and commandments)
 
-ToDo: Pirate Lady and her Poland home ice create vendor children tie into Bible verse Genesis 3:8 cool man selling / vending for free that the kids wait for mythos. https://youtu.be/2ROK1-VvOQ0?t=132
+ToDo: Pirate Lady and her Poland home ice create vendor children tie into Bible verse Genesis 3:8 cool man selling / vending for free that the kids wait for mythos. https://youtu.be/2ROK1-VvOQ0?t=132 4,208,697 views  September 12, 2015
