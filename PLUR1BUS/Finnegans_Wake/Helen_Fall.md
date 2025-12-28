@@ -88,4 +88,5 @@ ToDo: September 19, 1977 - age 24 and under. Are the TV (Betty White / Golden Gi
 
 ToDo: Some Greater Awakening. Pluribus Awakening of the Founding Fathers hive mind Free Mason dreams of climbing higher than 13 original states and to Heaven itself. The veterans dream of the war fighting, fast asleep at the traffic light. https://youtu.be/2ROK1-VvOQ0?t=54 Amen to Christmas Evening Apple TV+ show Episode Nine atomic quantum entangled tales of [James Joyce / Eden Eve metaphors. Pluribus show title associations on page 104 of Finnegans Wake at the Zero Hour](Public_House.md).
 
-* More ToDo: *Caught* by sirens singing of the hive mind aliens. https://youtu.be/2ROK1-VvOQ0?t=103 "Struggle for the Legal Tender" lyrics. Pluribus show title is printed on the Dollar Bill currency, legal tender. "Wink of an eye" the Great Seal USA pyramid eye. https://youtu.be/2ROK1-VvOQ0?t=85
+* More ToDo: *Caught* by sirens singing of the hive mind aliens. https://youtu.be/2ROK1-VvOQ0?t=103 "Struggle for **the Legal Tender**" lyrics. Pluribus show title is printed on the Dollar Bill currency, legal tender. "Wink of an eye" the Great Seal USA pyramid eye. https://youtu.be/2ROK1-VvOQ0?t=85 (Struggle for the *Legal* tender, fire-starting of Better Call Saul actress and Vince Gilligan's hopes and dreams of fandom going beyond worship of bad-guy leaders February 15, 2025)
+
