@@ -55,6 +55,22 @@ Try posting in complete sentences and explain your thought process. Alternately,
 
 &nbsp;
 
+## Keeps attacking like Truth Social Leader does
+
+Drug pusher USA MAGA RFK Jr. USA values. RFK Jr. USA CDC December 2025 values. "Tylenol medication causes autism" ignorance of USA social media consumers on YouTube USA Apple TV+ USA society.
+
+<img width="1624" height="598" alt="image" src="https://github.com/user-attachments/assets/19ede4e1-0e23-456f-ab6c-f73953198ad1" />
+
+"For you, how about "more ability to make your posts have some kind of logical flow through them, instead of these poorly-written fragmented pieces of nothing that make no sense. Again: please start taking your medication." 
+
+I quoted a non-fiction book from Joseph Campbell *word for word* and they claim the writing isn't good enough. This is the words they claim aren't good enough: >>> "Power Of Myth" filmed by George Lucas for science fiction fandoms: "CAMPBELL: that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love, the sickness the doctors cannot cure, the wounds that can be healed only by the weapon that delivered the wound. BILL MOYERS: Meaning? CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow." <<< for context of the message thread on YouTube. They won't discuss the Apple TV+ story and the 1988 book, they fixate on social media users in the cesspool of commenting social media.
+
+It is all MAGA December 2025 USA dog-whistle that immigrants *like Zosia* from Poland / Africa should not be in USA social media [with any difference communications than hive mind USA Trumpism / Murdoch "Speak American FOX News MAGA" language usage](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/).
+
+&nbsp;
+
+&nbsp;
+
 # Great Seal Great Reminder
 
 POTUS Great Seal *Free Masons* reminder         
@@ -85,5 +101,5 @@ Caution! Echoland!
 &nbsp;
 
 I personally drew attention to this in public on this Reddit social media comment: https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobtdlf/    
-Tuesday, November 11, 2025 comment nobtdlf
+Tuesday, November 11, 2025 comment date
 
