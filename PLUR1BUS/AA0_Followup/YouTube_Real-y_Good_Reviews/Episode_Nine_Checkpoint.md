@@ -72,9 +72,9 @@ It is all MAGA December 2025 USA dog-whistle that immigrants *like Zosia* from P
 
 &nbsp;
 
-# Can't Read Bill Moyers / Campbell
+## Can't Read Bill Moyers / Campbell
 
-Just look at the context of what they reply to!
+Just look at the context of what they reply to! A book quote turns people on the warpath against langauge.
 
 <img width="950" height="1282" alt="image" src="https://github.com/user-attachments/assets/b0ae282f-90c4-4d60-8fcc-26f4ce3a69ed" />
 
@@ -110,6 +110,7 @@ My reply, related to Carol's drug use in the show and this YouTube pill pushing:
 
 &nbsp;
 
+&nbsp;
 
 &nbsp;
 
