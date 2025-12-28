@@ -135,7 +135,7 @@ The Eagle points opposite direction?
 
 <img width="2878" height="1485" alt="image" src="https://github.com/user-attachments/assets/30d0e10f-b62a-4daf-9437-5571cb28ad40" />
 
-# Episode Two 37:55 
+## Episode Two 37:55 
 
 "Cool plane! Really!" (Reality, Real, Nonfiction)      
 Episode Two of Pluribus, released at same time as Episode One.    
