@@ -62,10 +62,14 @@ Burial ritual of Helen in back-40 (spouse in [Intersteller 2014 *science fiction
 
 # Zero Hour Fall
 
-Fall of free will, free thinking, post-Eden. The new Minute 22 Episode One Eden takes lesbian Helen and Troubadour year 1210 AMOR protest against backwards-spelled ROMA - the Catholic Church.
+Fall of free will, free thinking, post-Eden. *Exception... women*. Eve gets blamed for all of Adam's corruption. The new Minute 22 Episode One *Eden takes lesbian Helen* and (along with her) Troubadour year 1210 AMOR protest against backwards-spelled ROMA - the Catholic Church.
 
 * "Zero Hour serves as a metaphor for awakening and awareness, pushing readers to confront societal issues and consider their role in effecting change." https://fiveable.me/key-terms/introduction-contemporary-literature/zero-hour     
 
 Woke, wake, Finnegan's Woke. [*"Zero Hour serves as a metaphor for awakening"...*](https://fiveable.me/key-terms/introduction-contemporary-literature/zero-hour) The same way Helen dies, backwards fall and broken skull. The aftermath of invoking in a Public House the James Joyce book **without taking a drink as Carol requested. No booze, no immunity**. 
 
 * University of Toronto, expert on James Joyce, Marshall McLuhan: "I think you get a certain immunity, just as you get **a certain immunity from booze** by literacy. The literate man can **carry his liquor**, the tribal man cannot. That’s why in the Muslim world or in the native world booze is impossible. It’s the demon rum. However, literacy also makes us very accessible to ideas and propaganda. The literate man is the natural sucker for propaganda. You cannot propagandize a native. You can sell him rum" - September 19, 1977 https://www.organism.earth/library/document/mcluhan-mcmanus  .. ... ... Pirate men and ladies with a bottle of rum dominate the seas between tribes. Seamen and virgin ladies with frozen eggs metaphors abound for the literate ABQ West Gate Vegas metaphors ;) 
+
+&nbsp;
+
+As always, raw and unedited, needs editing, editing, editing. Like Carol's Bitter Coming out of Closet book, 4.5 years of writing and still needs polish ad edit. The Minute 22 scene of Episode One ;)
