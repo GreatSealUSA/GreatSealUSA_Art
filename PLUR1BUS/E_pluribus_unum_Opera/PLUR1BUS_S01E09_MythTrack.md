@@ -49,6 +49,23 @@ Looking to the Kepler 22 stars, this is Eden?.... looking to the moon.
 
 &nbsp;
 
+&nbsp;
+
+# TRACK: The Snow Ski Tracks
+
+https://youtu.be/BfrUQA2tb6M?t=136    
+31,107,319 views July 31, 2018       
+
+* "Come and join the Hive Mind Party dressed *to kill*" individuality and ITS HARD freedom.
+
+* "The girls smile And people forget The snow packs as the skier tracks"
+
+* The Hive Mind girls smile to Girly Girl Carol, together the smile and forget!
+
+&nbsp;
+
+&nbsp;
+
 # TRACK: Drinking and Driving *The Pluribus*
 
 Carol lives in the *land of confusion* over her deep emotional loss of Helen to the Public House minute 22 fall. Carol boozes, heavily, drinking away her rational mind systems to get the liquid courage flowing inside. Carol has the trigger and the device at the end sitting in her front house. Does the bomb have a DUI breathalyzer on it?
