@@ -139,7 +139,7 @@ Push the individual Carol *me* aside... for mob mentality.
 
 &nbsp;
 
-# TRACK: Will you net Pirate Lady in the Middle?
+# TRACK: Will you *meet* Pirate Lady in the Middle?
 
 Sister Golden Hair (America) - Pirate Lady isn't ready for the wedding alter or sacrificial alter to free thinking. But she can't get Carol off her mind
 
