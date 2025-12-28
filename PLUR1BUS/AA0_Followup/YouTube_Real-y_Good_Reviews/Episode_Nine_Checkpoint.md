@@ -71,3 +71,14 @@ vs.
 The Eagle points opposite direction?
 
 <img width="2878" height="1485" alt="image" src="https://github.com/user-attachments/assets/30d0e10f-b62a-4daf-9437-5571cb28ad40" />
+
+# Episode Two 37:55 
+
+"Cool plane! Really!" (Reality, Real, Nonfiction)      
+Episode Two of Pluribus, released at same time as Episode One.    
+37:55 into episode (countdowns abound in-show content)      
+Carols Hands Held to tell us to stop, pause, look!    
+Caution! Echoland!    
+
+<img width="2163" height="1238" alt="image" src="https://github.com/user-attachments/assets/344011f7-53ba-483b-822e-228ba7f4ce97" />
+
