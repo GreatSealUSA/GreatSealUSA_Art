@@ -14,3 +14,23 @@ https://youtu.be/v3ph4WP4iQk?t=1021
 
     * Repeating "as it were, the Christ, come before us" - Episode One is "We Is Us", come before *Us* (alien birth of Jesus / Kepler 22 alien people), the Christ. With the ending of Season One Episode Nine on Christmas Eve Day. Christ-day. Also note that this one 1988 book also covers the Latin meaning of "Pluribus" meaning of trans-gender inclusion.
  
+&nbsp;
+
+&nbsp;
+
+# YouTube can't read books by Joyce
+
+<img width="1854" height="1164" alt="image" src="https://github.com/user-attachments/assets/cbeb336f-e32f-46b4-af23-15b40817174d" />
+
+https://www.youtube.com/watch?v=v3ph4WP4iQk&t=682s   
+
+Reply to me:
+
+YouTube @coordinatezero      
+"Yeah, yeah, Campbell, Power of Myth, Hero's Journey, etc etc. This is basic story-writing stuff and has been for decades. So what? The Lucas name-drop is meaningless here and is a failed attempt at some kind of "flex"."
+
+Calling James Joyce "basic story-writing". [Celebration of Ignorance USA December 2025 society](https://www.goodreads.com/quotes/8745418-the-dumbing-down-of-america-is-most-evident-in-the). Anti-literacy, anti-book, anti-nonfiction learning in favor of Apple iPhone / iPad / YouTube Apple TV+ fandom of Breaking Bad / Better Call Saul television tube addiction.
+
+https://www.goodreads.com/quotes/8745418-the-dumbing-down-of-america-is-most-evident-in-the   
+
+YouTube [commenting social media cesspool experience that February 15, 2025 Vince Gilligan called out](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md) with social media experience of audiences in USA.
