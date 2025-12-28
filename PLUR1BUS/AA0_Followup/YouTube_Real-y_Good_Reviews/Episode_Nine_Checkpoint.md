@@ -126,6 +126,20 @@ Tuesday, November 11, 2025 comment date
 
 &nbsp;
 
+## On aircraft image
+
+![POTUS Great Seal on aircraft. Pima Air and Space Museum, Tucson, Arizona, USA. February 21, 2008](/Media/POTUS_Great_Seal_on_aircraft_Pima_Air_Space_Museum_Tucson_Arizona.jpg)
+
+Douglas VC-118A Liftmaster (1947-)      
+Pima Air and Space Museum, Tucson, Arizona, USA      
+February 21, 2008      
+
+More than 100 of these aircraft were produced.  This is the type of aircraft which transported President Kennedy when he first entered office, to be replaced by the VC-137. This aircraft had a crew of 5 and carried 24 passengers.
+
+http://airandground.org/aircraft-and-space-museums/pima-air-and-space-museum/douglas-vc-118a-liftmaster.html
+
+&nbsp;
+
 ## WhitHouseHistory . org
 
 https://www.WhiteHouseHistory.org/a-brief-history-of-the-presidential-seal    
