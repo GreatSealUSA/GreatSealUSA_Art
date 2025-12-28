@@ -34,3 +34,22 @@ Calling James Joyce "basic story-writing". [Celebration of Ignorance USA Decembe
 https://www.goodreads.com/quotes/8745418-the-dumbing-down-of-america-is-most-evident-in-the   
 
 YouTube [commenting social media cesspool experience that February 15, 2025 Vince Gilligan called out](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md) with social media experience of audiences in USA.
+
+&nbsp;
+
+## Same user anti-book mocking 1988 book
+
+<img width="1840" height="1404" alt="image" src="https://github.com/user-attachments/assets/8289a9d4-53f8-41cc-a921-ff591cbdd98f" />
+
+&nbsp;
+
+YouTube @coordinatezero      
+
+"Power of Myth" is by Joseph Campbell, not George Lucas. What are you talking about?
+
+"REPEATING"... repeating what? What are you talking about?
+
+Your "REMINDER" makes no logical or grammatical sense.
+
+Try posting in complete sentences and explain your thought process. Alternately, if it's the case, please post in your first language and let YouTube translate it.Your entire post makes no sense.
+
