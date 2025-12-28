@@ -124,3 +124,13 @@ Caution! Echoland!
 I personally drew attention to this in public on this Reddit social media comment: https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobtdlf/    
 Tuesday, November 11, 2025 comment date
 
+&nbsp;
+
+## WhitHouseHistory . org
+
+https://www.WhiteHouseHistory.org/a-brief-history-of-the-presidential-seal    
+2025-12-28 afternoon USA quotes     
+ 
+* "This design was used until 1945 when President Harry Truman authorized the redesign of the seal, flag, and coat of arms."
+
+* "Two days after the order was issued, the flag was first publicly flown on October 27, 1945, when the U.S.S. Franklin D. Roosevelt was commissioned at Brooklyn Navy Yard; this flag was later given to the White House Historical Association by Mr. Elsey himself. The presidential flag remains the same today except for the addition of two stars to represent Alaska and Hawaii. President Dwight Eisenhower updated the seal in May 1959 with Executive Order 10823 and again with Executive Order 10860 in February 1960. These orders offered specific design details for the coat of arms that appear on the Presidential Seal and the Presidential Flag, and each added an additional star to represent the newly admitted states of Hawaii and Alaska."
