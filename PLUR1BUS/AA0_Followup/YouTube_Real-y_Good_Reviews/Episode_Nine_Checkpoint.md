@@ -61,11 +61,32 @@ Drug pusher USA MAGA RFK Jr. USA values. RFK Jr. USA CDC December 2025 values. [
 
 <img width="1624" height="598" alt="image" src="https://github.com/user-attachments/assets/19ede4e1-0e23-456f-ab6c-f73953198ad1" />
 
+YouTube @coordinatezero      
+
 "For you, how about "more ability to make your posts have some kind of logical flow through them, instead of these poorly-written fragmented pieces of nothing that make no sense. Again: please start taking your medication." 
 
 I quoted a non-fiction book from Joseph Campbell *word for word* and they claim the writing isn't good enough. This is the words they claim aren't good enough: >>> "Power Of Myth" filmed by George Lucas for science fiction fandoms: "CAMPBELL: that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love, the sickness the doctors cannot cure, the wounds that can be healed only by the weapon that delivered the wound. BILL MOYERS: Meaning? CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow." <<< for context of the message thread on YouTube. They won't discuss the Apple TV+ story and the 1988 book, they fixate on social media users in the cesspool of commenting social media.
 
 It is all MAGA December 2025 USA dog-whistle that immigrants *like Zosia* from Poland / Africa should not be in USA social media [with any difference communications than hive mind USA Trumpism / Murdoch "Speak American FOX News MAGA" language usage](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/).
+
+
+&nbsp;
+
+# Can't Read Bill Moyers / Campbell
+
+Just look at the context of what they reply to!
+
+<img width="950" height="1282" alt="image" src="https://github.com/user-attachments/assets/b0ae282f-90c4-4d60-8fcc-26f4ce3a69ed" />
+
+YouTube @coordinatezero      
+
+"Why do you have so much trouble constructing a sentence with proper punctuation and grammar formation? No-one has any idea what you're talking about because you don't present a well-written and cogent paragraph."
+
+&nbsp;
+
+* "When conformity enforcers overwhelm **diversity generators, all of us are in trouble**. Spartans --fundamentalists, militia groups, fascists, and ultra-nationalists -- can freeze the machinery of collective mind. A shutdown of urban diversity devastates that exercise of collective acumen we call an economy. Christian Fundamentalism has been shown by the research of sociologists Alfred Darnell and Darren E. Sherkat to retard the learning of children raised within its grasp. Darnell and Sherkat sum up a common Fundamentalist attitude in the following words: "No schooling is better than secular schooling." Then there's the paralysis of thought which outright battle brings. When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by \[even\] the best intellects, their obduracy, their inaccessibility to the most forcible arguments." Such **closings of the mind may explain why authoritarians** are prone to ignore it when their approaches flop. They often goose-step from one year to another rigidly glued to backfiring ways." - Book: ["Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century"](https://books.google.com/books?id=3HruEAAAQBAJ&pg=PT199&dq=%22are+prone+to+ignore+it+when+their+approaches+flop.+They+often+goose-step+from+one+year+to+another+rigidly+glued+to+backfiring+ways%22&hl=en&newbks=1&newbks_redir=1&sa=X). Chapter: The Kidnap of Mass Mind. Page: 203-204. Author: Howard Bloom. Published: August 14, 2000 (notably before September 11, 2001)
+
+&nbsp;
 
 &nbsp;
 
