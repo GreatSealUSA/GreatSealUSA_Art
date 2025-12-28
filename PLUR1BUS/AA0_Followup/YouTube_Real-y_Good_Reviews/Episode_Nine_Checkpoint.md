@@ -88,6 +88,31 @@ YouTube @coordinatezero
 
 &nbsp;
 
+## More drug messages
+
+<img width="940" height="854" alt="image" src="https://github.com/user-attachments/assets/9dfe5ca8-4b60-4b65-b4f3-86f0aa726db2" />
+
+YouTube @coordinatezero     
+
+"You really, really, really need to start taking your medication again. I'm not attacking you, I'm pointing out that your posts only make sense to you and that you're not explaining your thought processes clearly. You know nothing about me and your epithets are laughable. I left the US because of Trump, for a start, so... don't know where you're getting any of that. You're just embarrassing yourself."
+
+* Does not discuss the TV show Pluribus
+* Does not discuss Bill Moyers or Joseph Campbell writing that I posted
+* [negging / harassing. Just like Trump does](https://www.wmagazine.com/story/donald-trump-comments-about-angelina-jolie) on Truth Social USA December 2025.
+
+&nbsp;
+
+My reply, related to Carol's drug use in the show and this YouTube pill pushing:
+
+<img width="720" height="1204" alt="image" src="https://github.com/user-attachments/assets/5786c29a-b819-4741-86a2-384e01a09b5c" />
+
+&nbsp;
+
+&nbsp;
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
