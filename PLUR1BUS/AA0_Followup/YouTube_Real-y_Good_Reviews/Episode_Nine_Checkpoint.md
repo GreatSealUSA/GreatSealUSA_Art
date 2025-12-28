@@ -57,7 +57,7 @@ Try posting in complete sentences and explain your thought process. Alternately,
 
 ## Keeps attacking like Truth Social Leader does
 
-Drug pusher USA MAGA RFK Jr. USA values. RFK Jr. USA CDC December 2025 values. "Tylenol medication causes autism" ignorance of USA social media consumers on YouTube USA Apple TV+ USA society.
+Drug pusher USA MAGA RFK Jr. USA values. RFK Jr. USA CDC December 2025 values. ["Tylenol medication causes autism" ignorance (anti-neurodiversity / anti-immigrant anti-diversity messaging celebration)](https://www.bloomberg.com/opinion/articles/2025-09-23/trump-s-tylenol-and-autism-briefing-peddled-junk-science) of USA social media consumers on YouTube USA Apple TV+ USA society. Year 2025 USA followers of Putin/Trump.
 
 <img width="1624" height="598" alt="image" src="https://github.com/user-attachments/assets/19ede4e1-0e23-456f-ab6c-f73953198ad1" />
 
