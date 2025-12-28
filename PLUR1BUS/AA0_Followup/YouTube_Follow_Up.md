@@ -106,6 +106,7 @@ ASSERT_BIG_PICTURE: Are we breeding a founding MOTHERS mythology for the Great S
 # Industry shows / Cast Interviews
 
 https://www.youtube.com/watch?v=kFrffEktluo
+17,529 views November 13, 2025      
 
 PaleyFest New York 2025 kicked off on November 7 with the highly anticipated Apple TV series Pluribus.
 
@@ -118,7 +119,14 @@ Tricky as hell, though as hell.
 You walk the way you walk.   
 Does not want to tell audience meaning. https://youtu.be/kFrffEktluo?t=1845    
 Zombie movies, you do not want to become zombie. Deliberate intelligent.   
-Writer reluctantly tasked with saving the world.  https://youtu.be/kFrffEktluo?t=2714     
+Writer reluctantly tasked with saving the world.  https://youtu.be/kFrffEktluo?t=2714    
+
 No one less equipped to save the world than a writer.   
 Carol's name is from Twilight Zone.  "3rd from the sun" https://youtu.be/kFrffEktluo?t=2894    
-While the Tatanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read. https://youtu.be/kFrffEktluo?t=3243 booze cruise for drinking while on space tourism - original intelectual property. https://youtu.be/kFrffEktluo?t=3315 EVERY GENERATION DESERVES THIER OWN MYTHS, MYTHOLOGY!!!!
+While the Titanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read. https://youtu.be/kFrffEktluo?t=3243 booze cruise for drinking while on space tourism - original intellectual property. https://youtu.be/kFrffEktluo?t=3315 EVERY GENERATION DESERVES THEIR OWN MYTHS, MYTHOLOGY!!!!
+
+Clip of the Antarctica Four Seasons trip with sushi and meeting penguins    
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pxe1va/banana_teasertheory/nwajj20/     
+In larger https://youtu.be/kFrffEktluo?t=3018    
+
+Episode 3 titled "Grenade," aired on Apple TV on Friday, November 14, 2025 she is describing luxury ice hotel in November 7 interview.   
