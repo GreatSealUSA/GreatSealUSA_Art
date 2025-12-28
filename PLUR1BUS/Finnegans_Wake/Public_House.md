@@ -24,7 +24,7 @@ Page 104: https://www.finnegansweb.com/wiki/index.php/Page_104
 
 1. "Bringer of Plurabilities" - Helen is the one who brings Finnegans Wake to the Public House boozing
 
-2. "haloed be her eve" death halo. Angel from heaven, Helen. She dies on that eve at the Public House saloon with Carol at the Minute 22 Zero Hour.
+2. "haloed be her eve" death halo. Angel from heaven, Helen. She dies on that eve at the Public House saloon with Carol at the Minute 22 Zero Hour. The phrase is an adaptation of ["hallowed be thy name" from the Lord's Prayer](https://en.wikipedia.org/wiki/Lord%27s_Prayer). (Christmas Eve "her eve" ending of the season emphasis, punchline. [December 24 holiday of Apple TV+ airing of Episode Nine. With a Christmas Star nuclear star](https://en.wikipedia.org/wiki/Star_of_Bethlehem) device on Carol's Driveway)
 
 3. "her singtime sung" there is live music singing at the Zero Hour boozing / watering of life hole. There is a microphone tapping to emphasize the Minute 22 importance of Episode One where Helen delivers her post-doc thesis about Finnegans Wake book / literary thesis graduate studies.
 
