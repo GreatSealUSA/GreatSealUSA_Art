@@ -53,3 +53,21 @@ Your "REMINDER" makes no logical or grammatical sense.
 
 Try posting in complete sentences and explain your thought process. Alternately, if it's the case, please post in your first language and let YouTube translate it.Your entire post makes no sense.
 
+&nbsp;
+
+# Great Seal Great Reminder
+
+POTUS Great Seal *Free Masons* reminder         
+https://youtu.be/v3ph4WP4iQk?t=800    
+Image at 799 / 800 seconds into video.   
+
+Nobody notices the image has been doctored in this Tube video?    
+Wikipedia: https://en.wikipedia.org/wiki/Seal_of_the_president_of_the_United_States    
+
+<img width="500" height="501" alt="image" src="https://github.com/user-attachments/assets/0de8a274-6cb0-4600-9af1-8d42f3886c9c" />
+
+vs.
+
+The Eagle points opposite direction?
+
+<img width="2878" height="1485" alt="image" src="https://github.com/user-attachments/assets/30d0e10f-b62a-4daf-9437-5571cb28ad40" />
