@@ -124,6 +124,11 @@ Caution! Echoland!
 I personally drew attention to this in public on this Reddit social media comment: https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobtdlf/    
 Tuesday, November 11, 2025 comment date
 
+## Four Stars Missing
+
+Four-Star Generals symbolism?    
+Four stars, to the right of the eagle's head, are missing from the HDTV image In Pluribus. Not only is the Eagle's head and claws reversed, but only 9 stars out of 13 are under control of the Eagle. Why have the PLUR1BUS television show creators left out those 4 stars, what is the meaning? Doctored image / 78-second VLA message manipulation?
+
 &nbsp;
 
 ## On aircraft image
