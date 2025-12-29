@@ -90,3 +90,27 @@ ToDo: Some Greater Awakening. Pluribus Awakening of the Founding Fathers hive mi
 
 * More ToDo: *Caught* by sirens singing of the hive mind aliens. https://youtu.be/2ROK1-VvOQ0?t=103 "Struggle for **the Legal Tender**" lyrics. Pluribus show title is printed on the Dollar Bill currency, legal tender. "Wink of an eye" the Great Seal USA pyramid eye. https://youtu.be/2ROK1-VvOQ0?t=85 (Struggle for the *Legal* tender, fire-starting of Better Call Saul actress and Vince Gilligan's hopes and dreams of fandom going beyond worship of bad-guy leaders February 15, 2025)
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Fall of year 1998
+
+> Who did Helen interact with? Only Carol.
+
+There are traces of real-wold dinner locations ... "Remember your trip to The Inn at Little Washington, fall of 1998? They served that pepper bacon you still talk about. We flew it in for you. And your favorite crispy brioche from Les Crayères." (France)
+
+&nbsp;
+
+* "In the fall of 1998, Vince Gilligan was working as a writer and co-executive producer for the sixth season of The X-Files, and his film Home Fries was released"
+
+
+I've done a lot of travel in this world, and I see a story with deep footprints. They are making a point to go back to "the fall" of 1998 (Finnegans Wake is all about the Fall, Helen's fall backwards, Tim's ladder fall - in this Reddit thread reply context).
+
+
+&nbsp;
+
+. OPERA_A "Well I've been around the world... And I've been in the Washington Zoo. And in all my travels as the facts unravel I've found this to be true" ... *Dirty Logic* ... https://www.youtube.com/watch?v=a_1HRTJ5Hv8 Lyrics: Booze they need... 
+
