@@ -55,6 +55,12 @@ Back to 1951 book
 
 The "Collective Public Mind" is another phrase for Pluribus of the USA Great Seal Latin proposal. 
 
+OPERA_A https://www.youtube.com/watch?v=9wfpXI5PKlw 42,806,317 views March 7, 2009 Lyrics: "When you're feelin' sad and low. We will take you where you gotta go! Smilin', dancin', everything is free
+All you need is positivity! Colours of the world, Spice up your life! Every boy and every girl, Spice up your life. People of the world"; "Tribal Spaceman... And All that's in between" - Pluribus choose your flavor of spice. Mechanical brides for all. No more sadness, they will take you away.
+
+OPERA_A 1969 Tina Turner will turn you into the Pluribus, make your independent isolated thinking join the society. https://www.youtube.com/watch?v=Gbzph7d5V80 Sex shop, mechanical bride machine in the room with her one night. Acid / LSD https://www.LazyWake.com (Minute 22 Episode One of Pluribus, McLuhan is big Joyce) 76,552 views April 9, 2020 (Pandemic COVID-2019 in bloom)
+
+
 &nbsp;
 
 # Pluribus Assertions
