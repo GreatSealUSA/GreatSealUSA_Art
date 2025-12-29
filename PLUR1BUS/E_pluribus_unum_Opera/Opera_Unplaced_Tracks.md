@@ -490,3 +490,16 @@ https://old.reddit.com/r/Emo/comments/1pec33y/the_ritonello_form_off_by_one_agai
 December 4, 2025     
 
 * "BILL MOYERS: You say that’s the beginning of humanity. But in these stories, that’s **the moment when gods are born**. The virgin birth — it’s a god who emerges. CAMPBELL: And do you know who that god is? It’s you. All of these symbols in mythology refer to you. **You can get stuck** out there, and think it’s all out there. So you’re thinking about Jesus with all the sentiments relevant to how he suffered — out there. But that suffering is what ought to be going on in you. Have you been spiritually reborn? Have you died to your animal nature and come to life as a human incarnation of compassion?" - [1988 book, "Power of Myth", Page 219](https://books.google.com/books?id=cM5vDwAAQBAJ&pg=PA219&dq=%22So+you%E2%80%99re+thinking+about+Jesus+with+all+the+sentiments+relevant+to+how+he+suffered%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+&nbsp;
+
+# TRACK: Which Individual Spice?
+
+"individuality and friendship, emphasizing that to be with one of them, you must accept all their friends and their different styles/needs ("zig-a-zig-ah")."
+
+https://www.youtube.com/watch?v=gJLIiF15wjQ      
+701,889,502 views March 7, 2009        
+
+* "Saint Pancras is a saint because he was a young Christian martyr, beheaded around age 14 in early 4th-century Rome for refusing to renounce his faith under Emperor Diocletian, becoming an inspiration for steadfastness and a patron for children, jobs, and health. His name, meaning "invincible" or "all-conquering," reflects his spiritual victory over paganism, and devotion grew significantly in England after his relics arrived, leading to churches and landmarks, like London's St Pancras Station"
+
+ToDo: I haven't checked if this track is already in this GitHub gumbo.
