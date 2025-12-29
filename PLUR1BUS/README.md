@@ -20,12 +20,12 @@ So what am I saying? One quote to rule them all.
 
 # Sober books
 
-* "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**"
+* "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**" - June 1949 book
 
-* "Why attempt to make plausible, or even interesting, to men and women consumed with passion, the experience of transcendental bliss? As dreams that were momentous by night **may seem simply silly in the light of day**, so the poet and the prophet can discover themselves playing the idiot **before a jury of sober eyes**. The easy thing is to commit the **whole community**"
+* "Why attempt to make plausible, or even interesting, to men and women consumed with passion, the experience of transcendental bliss? As dreams that were momentous by night **may seem simply silly in the light of day**, so the poet and the prophet can discover themselves playing the idiot **before a jury of sober eyes**. The easy thing is to commit the **whole community**" - [June 1949 book, page 189](https://www.google.com/books/edition/The_Hero_with_a_Thousand_Faces/I1uFuXlvFgMC?hl=en&gbpv=1&dq=%22playing+the+idiot+before+a+jury+of+sober+eyes.+The+easy+thing+is+to+commit+the+whole+community%22&pg=PA189&printsec=frontcover).
 
 Earwicker Public House, Helen trust Carol into *Finnegans Wake* drunk shoved... while Helen fell back and hit her head on the concrete and *died* like Tim Finnegan. Except Helen keeps communicating messages from the afterlife.
 
-That's the perspective of this Git Hub take on PLUR1BUS Apple TV+ show about a drunk author as part of 13 against the cosmic invasion.
+That's the perspective of this Git Hub take on PLUR1BUS Apple TV+ show about a drunk author as part of 13 against the cosmic hearts and minds invasion.
 
-Oh yha, Annie's last name in Joyce's book, ALP, sounds a lot like "Pluribus" title of the show. And Finnegans Wake is mind-blowing about sound-alike word choices.
+Oh yha, Annie's last name in Joyce's book, ALP, sounds a lot like "Pluribus" title of the show. And Finnegans Wake *is mind-blowing about sound-alike word* choices.
