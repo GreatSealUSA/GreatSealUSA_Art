@@ -199,3 +199,15 @@ https://www.WhiteHouseHistory.org/a-brief-history-of-the-presidential-seal
 Water planet, biological radio   
 
 https://www.youtube.com/watch?v=Q86BVlLrx-Q   
+
+https://youtu.be/Q86BVlLrx-Q?t=374 science fiction stories of 60 years ago. What about The { Torah, Bible, Quran } science fiction. The ending on Christmas Eve Day? December 24 / December 25 science fiction story about a planet Eden that sends a message to planet Earth - our planet, received through a burning bush by Moses? What about the download of orders and commandments, the 10 Commandments science fiction story of outer space aliens and space angels?
+
+* "Moses received the Ten Commandments around 1446 BCE, shortly after the Israelites left Egypt, as part of the Sinai Covenant, though scholarly views vary, placing them anywhere from the 16th to 13th centuries BCE or even later"
+
+The 1988 book Power of Myth on science fiction stories:    
+
+BILL MOYERS: So many of the religions began with their own hero stories. The whole of the Orient has been blessed with the teaching of the good law brought back by Buddha, and the **Occident has been blessed by the laws Moses brought back from Sinai**. The tribal or local heroes perform their deeds for a single folk, and universal heroes like Mohammed, Jesus, and Buddha bring the message from afar. These heroes of religion came back with the wonder of God, not with a blueprint of God,
+
+CAMPBELL: Well, you find an awful lot of laws in the Old Testament.
+
+Which the Pluribus idea, in Latin, does not honor. Jesus / Moses are not mentioned in the Constitution of the United States of America / Deceleration of Independence writings (agreements). "Pluribus" Latin language is part of the Africa Nile river values of the Great Seal of the United States of America...
