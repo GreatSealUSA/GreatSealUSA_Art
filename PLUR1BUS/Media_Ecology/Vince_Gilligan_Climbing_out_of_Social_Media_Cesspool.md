@@ -9,8 +9,8 @@ https://youtu.be/TkteSxVIM1A?t=648
 there's no simple answer for how *we* might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each other
 
 11:07        
-But I don't know how to make that happen. So, I'll stick to my wheelhouse as
-a writer speaking to a room full of writers. I have a proposal.
+But I don't know how to make that happen. So, I'll stick to my wheelhouse. As
+a writer speaking to a room full of writers, I have a proposal...
 
 &nbsp;
 
