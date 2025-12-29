@@ -229,3 +229,7 @@ Oh, she skips nonfiction about science fiction. From a **June 1949** book. She s
 
 
 Repeating: "all things with equal regard, beholds himself in all beings and all beings in himself" - that's the meaning of the Apple TV+ show title, "Pluribus". To pacify. 
+
+&nbsp;
+
+https://youtu.be/Q86BVlLrx-Q?t=777 ("lucky number" 777 seconds, like 13 is lucky!) "Earth is just a relay station" - hence why I point out Minute 37 of Episode Two is missing 4 stars (already relayed?), the hive mind has manipulated the POTUS Seal ... which is the year 1776 origins of the Latin phrase "Pluribus". Why are so many Breaking Bad / Better Call Saul fandoms afraid to discuss year 1776 and stop at 1953 science fiction and not real-world USA multi-generation blueprint of symbolism in the POTUS seal / Great Seal of USA?
