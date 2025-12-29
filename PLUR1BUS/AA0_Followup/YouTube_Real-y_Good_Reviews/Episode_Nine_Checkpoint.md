@@ -200,6 +200,7 @@ https://www.WhiteHouseHistory.org/a-brief-history-of-the-presidential-seal
 Water planet, biological radio   
 
 https://www.youtube.com/watch?v=Q86BVlLrx-Q   
+Sunday, December 28, 2025 morning USA    
 
 https://youtu.be/Q86BVlLrx-Q?t=374 science fiction stories of 60 years ago. What about The { Torah, Bible, Quran } science fiction. The ending on Christmas Eve Day? December 24 / December 25 science fiction story about a planet Eden that sends a message to planet Earth - our planet, received through a burning bush by Moses? What about the download of orders and commandments, the 10 Commandments science fiction story of outer space aliens and space angels?
 
@@ -212,3 +213,13 @@ BILL MOYERS: So many of the religions began with their own hero stories. The who
 CAMPBELL: Well, you find an awful lot of laws in the Old Testament.
 
 Which the Pluribus idea, in Latin, does not honor. Jesus / Moses are not mentioned in the Constitution of the United States of America / Deceleration of Independence writings (agreements). "Pluribus" Latin language is part of the Africa Nile river values of the Great Seal of the United States of America...
+
+&nbsp;
+
+https://youtu.be/Q86BVlLrx-Q?t=697 Arthur C. Clarke saw this coming in year 1953.
+
+Oh, she skips nonfiction about science fiction. From a **June 1949** book. She stops at year 1953 going back.
+
+* "Bodhisattva is a large one; and the departure from the world is regarded not as a fault, but as the first step into that noble path at the remotest turn of which illumination is to be won concerning the deep emptiness of the universal round. Such an ideal is well known, also, to Hinduism: the one freed in life (jīvan mukta), **desireless**, compassionate, and wise, “with the heart concentrated by yoga, viewing **all things with equal regard, beholds himself in all beings and all beings in himself**. In whatever way he leads his life, that one lives in God.” The story is told of a Confucian scholar who besought the twenty-eighth Buddhist patriarch, Bodhidharma, “**to pacify** his soul.” Bodhidharma retorted, “Produce it and I will pacify it.” The Confucian replied, “That is my trouble, I cannot find it.” Bodhidharma said, “Your wish is granted.” The Confucian understood and departed in peace." - [Page 142, book published in June 1949](https://books.google.com/books?id=I1uFuXlvFgMC&pg=PA142&dq=%22Bodhisattva+is+a+large+one;+and+the+departure+from+the+world+is+regarded+not+as+a+fault,+but+as+the+first+step+into+that+noble+path%22&hl=en&newbks=1&newbks_redir=1&sa=X). ... "On June 26th, 1949 The New York Times published a review of Hero which consisted of mostly snide remarks" - [NYE 2023 commentary](https://www.jcf.org/post/the-hero-with-a-thousand-faces-a-modern-marvel)
+
+Repeating: "all things with equal regard, beholds himself in all beings and all beings in himself" - that's the meaning of the Apple TV+ show title, "Pluribus". To pacify. 
