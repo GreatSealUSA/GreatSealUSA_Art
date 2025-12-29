@@ -99,6 +99,7 @@ YouTube @coordinatezero
 * Does not discuss the TV show Pluribus
 * Does not discuss Bill Moyers or Joseph Campbell writing that I posted
 * [negging / harassing. Just like Trump does](https://www.wmagazine.com/story/donald-trump-comments-about-angelina-jolie) on Truth Social USA December 2025.
+* Drug dealer? Thinks you should get high on drugs to watch science fiction outer-space stories?
 
 &nbsp;
 
