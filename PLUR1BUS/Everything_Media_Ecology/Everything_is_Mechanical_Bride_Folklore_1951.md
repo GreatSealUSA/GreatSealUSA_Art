@@ -4,6 +4,8 @@
 
 The Mechanical Bride: Folklore of Industrial Man (1951) is a study of popular culture by Marshall McLuhan, treating newspapers, comics, and advertisements as poetic texts.
 
+&nbsp;
+
 # Vince Gilligan: 1950
 
 ""Third from the Sun" is the fourteenth episode of the American television anthology series The Twilight Zone. It is based on a short story of the same name by Richard Matheson which first appeared in the first issue of the magazine Galaxy Science Fiction in October 1950."
