@@ -47,3 +47,7 @@ OPERA_A Substitute, Pirate Lady body with loaded techniques of sex memories from
 
 * [year 1988 Power of Myth book, page 243](https://books.google.com/books?id=cM5vDwAAQBAJ&pg=PA243&dq=%22So+love+is+not+love+in+general,+it+is+love+for+that+woman?%22&hl=en&newbks=1&newbks_redir=1&sa=X) ... BILL MOYERS: So love is not love in general, it is love for that woman? CAMPBELL: For **that one** woman. That’s right. MOYERS: Why do you think we fall **in love with one person and not another**? CAMPBELL: Well, I wouldn’t be one to say. It’s a very mysterious thing, that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love...
 
+Back to 1951 book
+
+* "Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside **the collective public mind**," McLuhan writes in his preface to the book. He believes the modern "helpless state engendered by prolonged mental rutting is the effect of many ads and **much entertainment** alike."
+
