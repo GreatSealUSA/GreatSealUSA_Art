@@ -64,7 +64,9 @@ OPERA_A 1969 Tina Turner will turn you into the Pluribus, make your independent 
 
 &nbsp;
 
-"That passionate dream of unlimited monopolistic power still carries over into the new age of relativity physics. But the dream of relativity physics is not of centralism but of pluralism. It is not-centralist but distributist in the matter of power and control. And to see this new vision at work side by side with the old one is to permit the reformer a sure method of diagnosis and therapeutic suggestion. It permits the reformer to co-operate with the same forces that have produced the disease, in order to point the way to health" - Mechanical Bride, year 1951, Page 22
+### Distributist
+
+"That passionate dream of unlimited monopolistic power still carries over into the new age of relativity physics. But the dream of relativity physics is not of centralism but of pluralism. It is not-centralist but distributist in the matter of power and control. And to see this new vision at work side by side with the old one is to permit the reformer a sure method of diagnosis and therapeutic suggestion. It permits the reformer to co-operate with the same forces that have produced the disease, in order to point the way to health. Thus, as passivity becomes extreme in the bulk of society, a sizable segment of citizens detaches itself from the dream-locked majority." - Mechanical Bride, year 1951, Page 22
 
 * "Pluralism is the concept that multiple, diverse groups, beliefs, and powers coexist and thrive in a society, emphasizing dialogue, mutual respect, and shared understanding rather than assimilation or mere tolerance, especially in politics where power is dispersed among various interest groups, and in philosophy, where multiple truths or realities are acknowledged. It's about active engagement with differences, seeing diversity as a strength for solving complex problems, and ensuring various viewpoints influence public life." - Google Search summary 2025-12-29 morning USA
 
