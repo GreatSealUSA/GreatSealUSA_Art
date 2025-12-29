@@ -109,6 +109,22 @@ My reply, related to Carol's drug use in the show and this YouTube pill pushing:
 
 &nbsp;
 
+# Pill pusher, obsessed YouTube user
+
+<img width="1532" height="1332" alt="image" src="https://github.com/user-attachments/assets/bc533fec-5dc5-4ac8-9df3-d55ff65a8474" />
+
+YouTube @coordinatezero      
+
+"How am I "anti-book" and "anti-literacy" when you are posting things without any care towards being coherent? I love books and I love reading. Where did you get that from? Are there pills you were taking a few weeks ago that you've stopped taking? You need to take them again."
+
+&nbsp;
+
+Quote Carl Sagan nonfiction about the problem of celebration of Ignorance that media has become. Highly relevant to YouTube. Mention Vince Gilligan's criticism of social media and they start talking about pills. Is the Breaking Bad fandom obsessed with meth drugs and pills as the answer to all problems with religions vs. religion conflicts? Is Israel and Palestine terrorism a matter of pills and drug use to this fan of Better Call Saul and Breaking Bad? The YouTube end-user can't seem to even tell whose writing they are criticizing. Joseph Campbell and Bill Moyers is what they complain makes no sense. They have such serious context blindness and identity loss from YouTube media environment. 
+
+Rupert Murdoch Fox News audience isn't fixed by handing out pills and recreational drugs. I really think it's the meth themes of Breaking Bad that draws these mindsets.
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
