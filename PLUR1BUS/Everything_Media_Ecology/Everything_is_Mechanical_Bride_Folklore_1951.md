@@ -51,3 +51,4 @@ Back to 1951 book
 
 * "Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside **the collective public mind**," McLuhan writes in his preface to the book. He believes the modern "helpless state engendered by prolonged mental rutting is the effect of many ads and **much entertainment** alike."
 
+The "Collective Public Mind" is another phrase for Pluribus of the USA Great Seal Latin proposal. 
