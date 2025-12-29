@@ -44,4 +44,5 @@ Oh yha, Annie's last name in Joyce's book, ALP, sounds a lot like "Pluribus" tit
 
 Minute 22... Rejoyce the book that Helen introduced at the Zero Hour countdown in a Public House. For Christmas Eve Day ending of Season One of the Pluribus TV show. One goddess, a unity Helen and Carol marriage, in two aspects.
 
+"When man is in the service of society, you have a monster state, and that’s what is threatening the world at this minute." - year 1987
 
