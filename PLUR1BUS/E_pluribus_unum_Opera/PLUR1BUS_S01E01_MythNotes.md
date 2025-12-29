@@ -18,3 +18,8 @@ In another Time Zone, across the ocean, smoke break opening of this video
 
 https://www.youtube.com/watch?v=YdizZtOddC8
 
+&nbsp;
+
+# Viral video clips from viral musicians
+
+Some of the Pluribus opening scenes are right out of viral video clips from viral musicians. https://www.youtube.com/watch?v=0kDAzYjbugo "TMZ got their hands on a video of singer Ariana Grande appearing to lick a donut that she didn't pay for, just seconds before proclaiming that she hates America." A woman was even the one in the Vince Gilligan TV show...
