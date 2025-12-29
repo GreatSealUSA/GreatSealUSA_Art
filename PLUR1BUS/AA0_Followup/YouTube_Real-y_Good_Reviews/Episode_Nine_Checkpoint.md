@@ -233,3 +233,7 @@ Repeating: "all things with equal regard, beholds himself in all beings and all 
 &nbsp;
 
 https://youtu.be/Q86BVlLrx-Q?t=777 ("lucky number" 777 seconds, like 13 is lucky!) "Earth is just a relay station" - hence why I point out Minute 37 of Episode Two is missing 4 stars (already relayed?), the hive mind has manipulated the POTUS Seal ... which is the year 1776 origins of the Latin phrase "Pluribus". Why are so many Breaking Bad / Better Call Saul fandoms afraid to discuss year 1776 and stop at 1953 science fiction and not real-world USA multi-generation blueprint of symbolism in the POTUS seal / Great Seal of USA?
+
+https://youtu.be/Q86BVlLrx-Q?t=936 The signal converts US (We) to peaceful workers. Well, is Walter White and Saul Goodman and Kim Wexler the kind of hard-working USA Dollar Bill chasing "Pluribus" (on currency) world of founding fathers we need? Poisoning the legal system with Saul his and her law practice? Science teachers like Walter White who fuck over children's parents with meth? I think the YouTube video is overlooking the "Water of Life" scene of the hive mind. **"Very similar to the Latin aqua vitae"** - which rocket fuel can be made from booze.
+
+* Fiction learning... "in October Sky (both book and film), the boys use alcohol (moonshine) from a local bootlegger as a key liquid binder/stabilizer for their homemade rocket fuel"
