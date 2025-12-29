@@ -76,5 +76,12 @@ OPERA_A 1969 Tina Turner will turn you into the Pluribus, make your independent 
 
 # Pluribus Assertions
 
-1. Ravi (Laxmi's son): child, he is 9 years old. Ravi is not immune and has been "Joined". She loudly makes the point that her child is still her child because the body is the same. Physical body. Episode Two at the Air Force One (POTUS Seal) in-person physical meetings.
+1. Ravi (Laxmi's son): child, he is 9 years old. Ravi is not immune and has been "Joined". She loudly makes the point that her child is still her child because the body is the same. Physical body. Episode Two at the Air Force One (POTUS Seal) in-person physical meetings. The mechanical child body parts...
 
+Baby dolls, toys, are a common global experience. 
+
+Some observations of where ideas come from, Earthbound ideas and ritual experiences.
+
+* "Cannibalism was practiced by some groups in New Guinea, often as part of funerary rites, such as among the Fore people. This endocannibalism (eating members of one's own group) was considered a mark of respect for the deceased."
+
+* "While discussions referencing Joseph Campbell's The Power of Myth mention a gruesome ritual involving children and consumption, this specific account appears to be unsubstantiated or highly distorted compared to authoritative sources on New Guinea cannibalism." - I mean, let's be serious here... Campbell did put myth into the stories of mythology. Inception and all. The [Chief Seattle story (Page 62)](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA42&dq=%22Chief+Seattle+wrote+a+marvelous+letter+in+reply.+His+letter+expresses+the+moral,+really,+of+our+whole+discussion.%22&hl=en&newbks=1&newbks_redir=1&sa=X) that Bill Moyers really seemed to like should be an Errata on the Wikipedia page of the Power of Myth 1988 book. Once, long ago, I think I added it, somewhere in that Wiki page history. https://www-formal.stanford.edu/jmc/progress/fake.html
