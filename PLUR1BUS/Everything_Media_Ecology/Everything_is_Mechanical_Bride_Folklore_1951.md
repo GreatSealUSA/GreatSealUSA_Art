@@ -59,5 +59,5 @@ The "Collective Public Mind" is another phrase for Pluribus of the USA Great Sea
 
 # Pluribus Assertions
 
-1. Ravi (Laxmi's son): child, he is 9 years old. Ravi is not immune and has been "Joined". She loudly makes the point that her child is still her child because the body is the same. Physical body. Episode Two at the Air Force One (POTUS Seal) meatings.
+1. Ravi (Laxmi's son): child, he is 9 years old. Ravi is not immune and has been "Joined". She loudly makes the point that her child is still her child because the body is the same. Physical body. Episode Two at the Air Force One (POTUS Seal) in-person physical meetings.
 
