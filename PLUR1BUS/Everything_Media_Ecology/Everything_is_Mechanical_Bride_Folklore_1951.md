@@ -12,10 +12,12 @@ The Mechanical Bride: Folklore of Industrial Man (1951) is a study of popular cu
 
 Vince Gilligan has made this year 1950 connection in public interviews: https://youtu.be/kFrffEktluo?t=2894
 
-# Carol: Pod People
+# Carol: Pod People 1956
 
 Episode Two (released along with, paired Episode One Pilot)   
 "Meanwhile, everybody everywhere else has turned into some kind of fucking pod person. Right?" ... "I… I’ve seen this movie. We’ve all seen this movie. And we know it does not end well."
+
+* "This 1956 science-fiction classic, and its subsequent remakes, tells the story of an alien invasion where plant-based lifeforms (pods) create emotionless duplicates of humans, effectively replacing them and erasing their individuality. The term "pod people" became a common slang expression referring to these duplicates. The creators of Pluribus explicitly used the film as a major reference point for the show's hive-mind concept"
 
 ## Casket people: Funeral Wake
 
@@ -28,6 +30,10 @@ James Joyce's Finnegans Wake book is introduced as graduate work by Helen.
 This is at the very time of "00:00:00:00" countdown that the show keeps emphasizing time in every episode. There is even microphone tapping, a storytelling technique, that audience should really pay attention to this scene at minute 22.
 
 Helen dies the same way as Tim Finnegan. She falls backwards and her brain is damaged. You can see in Helen's eyes that blood is pooling and they are turning dark. And then Carol finds out the next day that "dead" Helen is not really dead, all her memories and experiences are in a magical outer-space place. Is Helen really dead? That is the story of Tim Finnegan that James Joyce expounds upon.
+
+Year 1923, "Finn's Hotel" book
+
+&nbsp;
 
 # Title of this page
 
