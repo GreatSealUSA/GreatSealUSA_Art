@@ -22,6 +22,8 @@ So what am I saying? One quote to rule them all.
 
 * "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**"
 
+* "Why attempt to make plausible, or even interesting, to men and women consumed with passion, the experience of transcendental bliss? As dreams that were momentous by night **may seem simply silly in the light of day**, so the poet and the prophet can discover themselves playing the idiot **before a jury of sober eyes**. The easy thing is to commit the **whole community**"
+
 Earwicker Public House, Helen trust Carol into *Finnegans Wake* drunk shoved... while Helen fell back and hit her head on the concrete and *died* like Tim Finnegan. Except Helen keeps communicating messages from the afterlife.
 
 That's the perspective of this Git Hub take on PLUR1BUS Apple TV+ show about a drunk author as part of 13 against the cosmic invasion.
