@@ -60,6 +60,12 @@ All you need is positivity! Colours of the world, Spice up your life! Every boy 
 
 OPERA_A 1969 Tina Turner will turn you into the Pluribus, make your independent isolated thinking join the society. https://www.youtube.com/watch?v=Gbzph7d5V80 Sex shop, mechanical bride machine in the room with her one night. Acid / LSD https://www.LazyWake.com (Minute 22 Episode One of Pluribus, McLuhan is big Joyce) 76,552 views April 9, 2020 (Pandemic COVID-2019 in bloom)
 
+&nbsp;
+
+&nbsp;
+
+"That passionate dream of unlimited monopolistic power still carries over into the new age of relativity physics. But the dream of relativity physics is not of centralism but of pluralism. It is not-centralist but distributist in the matter of power and control. And to see this new vision at work side by side with the old one is to permit the reformer a sure method of diagnosis and therapeutic suggestion. It permits the reformer to co-operate with the same forces that have produced the disease, in order to point the way to health" - Mechanical Bride, year 1951, Page 22
+
 
 &nbsp;
 
