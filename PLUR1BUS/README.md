@@ -4,7 +4,7 @@ Assertions
 
 1. Minute 22 of Episode One, at the Zero Hour "00:00:00:00" countdown. Carol is boozing at a Public House.
 
-2. Helen tells Carol about Jame Joyce's Finnegans Wake book. Graduate school experience with 1923 book "Finn's Hotel".
+2. Helen tells Carol about Jame Joyce's Finnegans Wake book. Graduate school experience with year 1923 book "Finn's Hotel".
 
 3. Helen falls backwards on her head and dies like Tim Finnegan does, a cracked skull. Look at the eyes of Helen dark from internal bleeding.
 
