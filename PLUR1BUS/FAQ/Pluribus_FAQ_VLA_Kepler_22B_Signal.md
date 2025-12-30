@@ -75,3 +75,31 @@ psychosis,” writes the medical doctor Joost Meerloo.
 “Whether gradually or suddenly, reason and common human decency are no longer
 possible in such a system: there is only a pervasive atmosphere of terror, and
 a projection of “the enemy,” imagined to be “in our midst.”
+
+&nbsp;
+
+# Peer to Peer radio signal
+
+The wavelength of an 8.613 MHz signal in free space is approximately 34.8 meters (about 114 feet).    
+The wavelength of an 8.613 MHz signal is approximately 34.8 meters at sea level.     
+Marine (Pirate Lady) frequency.     
+
+Who knows where this show is heading. cracking the codes and symbols of the Great Seal of the United States of America and Latin words and books inside the Pluribus TV story is part of the story itself. Our Radio Shack man trying to crack the hive mind radio codes, the outer-space signal origin and intended meanings, etc.
+
+1. Note the great seal number "13" ends the frequency. 
+
+2. Bible verse Psalm 34:8 - taste the Eye at the top of the Great Seal USA Nile river pyramid step 13.
+
+
+BILLL MOYERS: You talk about **mythology existing here and now** in dreamtime. What is dreamtime?
+
+CAMPBELL: This is the time you get into when you go to sleep and have a dream that talks about permanent conditions within your own psyche as they relate to the temporal conditions of your life right now.
+
+MOYERS: Explain that.
+
+CAMPBELL: For example, you may be worried about whether you are going to pass an exam. Then you have a dream of some kind of failure, and you find that failure will be associated with many other failures in your life. They are all piled up together there. Freud says even the **most fully expounded dream is not really fully expounded**. The dream is an inexhaustible source of spiritual information about yourself.
+
+&nbsp;
+
+["Pluribus" is the Founding Fathers **American Dream** Teaching Machine / Blueprint Devices](/American_Dream/American_Dream_Machine.md).
+
