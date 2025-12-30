@@ -46,3 +46,13 @@ Two lesbians getting pregnant story, and a 78 second human body message from Kep
 Are men *telling stories*? Did men write and share and author the *legendary story* of December 25?
 
 *Birds and Bees* lessons, wildlife returning to ABQ. But fiction storytelling outsells nonfiction learning.
+
+&nbsp;
+
+&nbsp;
+
+# Season One End: How many Eve mothers?
+
+How many can start humanity over on a new planet, escape Earth like the Twilight Zone story of her last name namesake? What if the story is that Carol has to escape like Interstellar 2014? And take frozen eggs and become the new mother parent teacher / book author of how to live free life?  
+
+How many women are there at the end of Episode Nine who can educate humanity the old ways on a new planet or something? The one girl in Peru is now in the hive mind. Carol and the woman in India.
