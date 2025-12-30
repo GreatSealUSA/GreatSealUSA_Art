@@ -136,3 +136,27 @@ this needs placed elsewhere and edited. Like everything here. David Foster Walla
   
     *   My father worked as as an executive and scientist / chemist for RKO entertainment New York, empire and Pepsi corporation in New York. In high school, I got to go on a special VIP attendance of Michael Jackson in Detroit, Motown music center of culture, for a concert when Pepsi (indoctrinating children https://www.youtube.com/watch?v=po0jY4WvCIc ) was integrated with his soda-pop pop music. I later worked in media systems for the Popular Culture museum... https://en.wikipedia.org/wiki/Museum_of_Pop_Culture
 
+
+&nbsp;
+
+&nbsp;
+
+# Pluribus is true POST-Interstellar 2014
+
+This is the first science fiction to truly grasp the metaphors of [Nolan Brother's POST-Interstellar 2014 science fiction story](/Interstellar_2014/Interstellar_2014_Lessons.md).
+
+Murph's bedroom, Murph's school.    
+
+Pounding an entire BOOK SHELF.    
+Carol creates entire BOOK SHELF stories. Volumes.   
+Bible Thumping is one book, Cooper teaches Murph to thump on ENTIRE BOOKSHELVES.   
+
+Everyone can now instantly learn knowledge.
+
+All languages are now merged, The Tower of Babel has been climbed now.  The science fiction story of Torah Genesis 11:1 is now cracked for humanity by Kepler 22B message payload. All pass-**words**, all secrets, gone. John 1:1 broken.
+
+Carol being a pirate book author is a key. The entire hive is her fandom now, hanging on her every word. Helen's graduate school book work at Minute 22 of Episode One is key... And Carol has a Pirate Radio / Radio Shack buddy too... so it isn't just Pirate Book publishing, but also Pirate Radio tools. https://en.wikipedia.org/wiki/Pirate_radio
+
+Every person (We The People, Pale Blue Dot, All of Us, Pluribus) on Earth has the best practices and skills. This is about information systems. This is the most amazing technology in the cosmos. The ability to toss the entire Tree of Knowledge (science fiction story, Torah verse Genesis 2:9 metaphors) anywhere you need nearly instantly. 
+
+* "I'm sorry to disappoint science fiction fans, but if information is preserved, there is no possibility of using black holes to travel to other universes. If you jump into a black hole, your mass energy will be returned to our universe but in a mangled form which contains the information about what you were like but in a state where it can not be easily recognized. It is like burning an encyclopedia. Information is not lost, if one keeps the smoke and the ashes. But it is difficult to read. In practice, it would be too difficult to re-build a macroscopic object like an encyclopedia that fell inside a black hole from information in the radiation, but the information preserving result is important for microscopic processes involving virtual black holes." - "Information Loss in Black Holes" (July 2005), Stephen William Hawking
