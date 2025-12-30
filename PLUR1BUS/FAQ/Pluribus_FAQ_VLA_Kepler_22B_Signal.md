@@ -10,3 +10,6 @@ https://old.reddit.com/r/amateurradio/comments/1pt261d/nice_kenwood_setup_on_the
 
 <img width="1518" height="588" alt="image" src="https://github.com/user-attachments/assets/e7dec834-94c4-4b10-ae7f-9a1a72a88bed" />
 
+## Social
+
+https://midwest.social/post/41063294    
