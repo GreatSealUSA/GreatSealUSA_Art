@@ -13,3 +13,20 @@ https://old.reddit.com/r/amateurradio/comments/1pt261d/nice_kenwood_setup_on_the
 ## Social
 
 https://midwest.social/post/41063294    
+
+Got a reply, Matthew 4:19 fish     
+
+https://midwest.social/post/41063294/21914500      
+
+<img width="1154" height="1795" alt="image" src="https://github.com/user-attachments/assets/8d6b4433-b612-46d9-a3b7-1cc9062948c7" />
+
+&nbsp;
+
+My reply (replies, two):      
+
+https://midwest.social/post/41063294/21914711    
+https://midwest.social/post/41063294/21914724    
+
+[“One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village, year 1968, page 174 / page 175](/Media/book_1968_War_Peace_Global_Village_page_174_page_175_Marshall_McLuhan.png)
+
+“One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village, year 1968, page 174 / page 175
