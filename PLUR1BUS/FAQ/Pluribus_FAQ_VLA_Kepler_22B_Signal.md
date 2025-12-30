@@ -42,7 +42,8 @@ https://midwest.social/post/41063294/21915139
 erin@piefed.blahaj.zone      
 "This is why I love the Fediverse. I have no idea what literally any of this means or what this community is even about, but where else do I get to randomly stumble into whatever this is. It’s like going on a safari into people’s mental illnesses (complimentary)."
 
-My public reply message:
+My public reply message:       
+https://midwest.social/post/41063294/21915206       
 
 > It’s like going on a safari into people’s mental illnesses (complimentary).
 
