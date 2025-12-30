@@ -528,3 +528,26 @@ Melt it down you are going to have to eventually anyway. Nuke atom bomb it Carol
 
 How many women are there at the end of Episode Nine who can educate humanity the old ways on a new planet or something? The one girl in Peru is now in the hive mind. Carol and the woman in India.
 
+&nbsp;
+
+&nbsp;
+
+# TRACK: Hive Network Crash Jitter-Bug
+
+1. Token Ring Network Jitter. Media ecology lessons. "The paper discusses jitter accumulation in token ring unshielded twisted pair (UTP) networks." https://ieeexplore.ieee.org/document/208047/
+
+2. Bugs in networks
+
+3. Jitter-bug dance
+
+Cover art is a bomb, Carol can emotion-bomb the hive mind, crash the neural network.
+
+https://www.youtube.com/watch?v=uF3reVVUbio        
+27,255,136 views  Dec 7, 2009    
+(December 16, 2009 ++ I used this song from Alamo Draft House South Lamar experience in Arab Spring predictions, cultural exchange with Tunisia ladies / Oran)    
+
+
+"When it's all over"... "fortunate only", not everyone dies in network neural crashes. "not easily offended", the Hive Mind is very very forgiving. Except when they flee town.   
+
+* Minute 22 Episode One assertions. Phoenix Band Name, Earwicker, Phoenix Park bomb / blowout of his life. https://hatterscabinet.com/pages-fw/fwtheme-phoenixpark.html
+
