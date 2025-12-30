@@ -30,3 +30,26 @@ https://midwest.social/post/41063294/21914724
 [“One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village, year 1968, page 174 / page 175](/Media/book_1968_War_Peace_Global_Village_page_174_page_175_Marshall_McLuhan.png)
 
 “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village, year 1968, page 174 / page 175
+
+&nbsp;
+
+## Lemmy user replies about book quotes
+
+https://midwest.social/post/41063294/21915139     
+
+<img width="1924" height="1795" alt="image" src="https://github.com/user-attachments/assets/2ae1b616-b023-4c3c-a6a5-0ce6a35398a7" />
+
+erin@piefed.blahaj.zone      
+"This is why I love the Fediverse. I have no idea what literally any of this means or what this community is even about, but where else do I get to randomly stumble into whatever this is. It’s like going on a safari into people’s mental illnesses (complimentary)."
+
+My public reply message:
+
+> It’s like going on a safari into people’s mental illnesses (complimentary).
+
+A very common misconception. The mental illness is on Truth Social and Fox News HDTV. The audience of Rupert Murdoch has mass psychosis mental illness. We have educational science to educate and diagnose people with mass psychosis, but people instead profit off treating one Fox News HDTV viewer at a time for $180/hour instead of diagnosing the entire cable network system. 
+
+&nbsp;
+
+# https://youtu.be/09maaUaRT4M?t=744
+
+YouTube: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
