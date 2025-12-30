@@ -113,3 +113,9 @@ A lot could be mapped out in metaphors of a goodness choice marriage
 
 8. MLK Jr on liking a person vs. love and the choice to love not being a choice at all in the long run. OPERA_A The Eagles Long Run
 
+&nbsp;
+
+# Ken Burns USA HISTORY
+
+https://old.reddit.com/r/politics/comments/1pzorv2/ken_burns_im_embarrassed_that_as_a_country_we/   
+End of year 2025    
