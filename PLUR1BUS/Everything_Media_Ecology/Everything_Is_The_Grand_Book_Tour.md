@@ -160,3 +160,17 @@ Carol being a pirate book author is a key. The entire hive is her fandom now, ha
 Every person (We The People, Pale Blue Dot, All of Us, Pluribus) on Earth has the best practices and skills. This is about information systems. This is the most amazing technology in the cosmos. The ability to toss the entire Tree of Knowledge (science fiction story, Torah verse Genesis 2:9 metaphors) anywhere you need nearly instantly. 
 
 * "I'm sorry to disappoint science fiction fans, but if information is preserved, there is no possibility of using black holes to travel to other universes. If you jump into a black hole, your mass energy will be returned to our universe but in a mangled form which contains the information about what you were like but in a state where it can not be easily recognized. It is like burning an encyclopedia. Information is not lost, if one keeps the smoke and the ashes. But it is difficult to read. In practice, it would be too difficult to re-build a macroscopic object like an encyclopedia that fell inside a black hole from information in the radiation, but the information preserving result is important for microscopic processes involving virtual black holes." - "Information Loss in Black Holes" (July 2005), Stephen William Hawking
+
+&nbsp;
+
+# [Colon Blow](https://www.youtube.com/watch?v=Ku42Iszh9KM)out Metaphors
+
+Carol isn’t “just” an author. She’s a narrative compiler.     
+Pirate publishing + pirate radio = unsanctioned distribution of meaning.     
+Clergy metaphors. That is what Minute 22 of Pilot Episode brought to the Public House barroom! Finnegans Wake, Finn's Hotel year 1923... James Joyce bookshelf pounding by Helen to the Earwicker Public House music live performance. The [microphone tapping](https://mymythos.org/archetype/microphone/) as the live music invites the [liberty lades outside to smoke](https://en.wikipedia.org/wiki/Torches_of_Freedom) on top of Walter White's shallowness grave.      
+
+* “The artist, the enema of society, points out things that many people would prefer not to notice.”
+— from the LP recording of “The Medium is the Massage” by Marshall McLuhan, released by Columbia Records in March 1967, conceived and co-ordinated by Jerome Agel, and produced by John Simon.
+
+OPERA_A [What don't you understand? this isn't happening, stop this now!](https://www.youtube.com/watch?v=oet5L-gqctk) Everyone needs to take Finn's Hotel year 1923 very seriously! Waiting since year 1923... Marshall McLuhan dumped, pick it up! Is this it? I *read you*, Reddit, I'm so good at it, I'm spot on!
+
