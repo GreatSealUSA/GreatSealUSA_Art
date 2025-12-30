@@ -551,3 +551,19 @@ https://www.youtube.com/watch?v=uF3reVVUbio
 
 * Minute 22 Episode One assertions. Phoenix Band Name, Earwicker, Phoenix Park bomb / blowout of his life. https://hatterscabinet.com/pages-fw/fwtheme-phoenixpark.html
 
+&nbsp;
+
+&nbsp;
+
+# TRACK: I sail my ships of Pirate Ladies
+
+https://www.youtube.com/watch?v=HUgwM1Ky228    
+Indigo Girls - Closer To Fine     
+12,496,208 views  October 25, 2009       
+
+Lyrics: "I sailed my ship of safety till I sank it. I'm crawling on your shores" - this is what ends the world at the Public House minute 22 of Episode One. Helen tells Carol the equation of James Joyce's book regarding Carol's unpublished "Bitter Pupaa" coming out the closet experiences with her parents at age 16 book. Carol has played it safe nursing her 4.5 year book and hiding it from her fandom with pirate ship safety.
+
+* "The Indigo Girls, Amy Ray and Emily Saliers, are iconic figures in lesbian and LGBTQ+ fandoms, celebrated for their authentic queer identity, heartfelt folk-rock music, and deep commitment to activism"
+
+Carol, lyrics: "I stopped by the bar at 3 A.M. to seek solace in a bottle or possibly a friend. And I woke up with a headache like my head against a board. Twice as cloudy as I'd been the night before and I went in seeking clarity"
+
