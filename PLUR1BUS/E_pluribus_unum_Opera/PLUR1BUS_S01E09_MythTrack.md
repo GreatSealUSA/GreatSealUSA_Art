@@ -190,3 +190,25 @@ Remastered Release premiered on [Lady Day Eve, the egg day](../Everything_Media_
 5. Pink Floyd often [depicts the pyramid of the Great Seal of the United States of America symbolism. The eye at step 13 that sees white light](https://old.reddit.com/r/pinkfloyd/comments/x0o5cf/hello_there_can_someone_give_me_exact/) as prism spectrum. "We The People" of Pale Blue Dot, "Pluribus", *All* of Us. ... "The other thing was the triangle. I think the triangle, which is a symbol of thought and ambition, was very much a subject of Roger’s lyrics. So the triangle was a very a useful – as we know, obviously – was a very useful icon to deploy and making it into the prism – you know, the prism belonged to the Floyd."
 
 6. [The Enlightenment, year 1776 foundations](https://en.wikipedia.org/wiki/American_Enlightenment) of the Great Seal United States of America symbolic step 13. Science thinking. ... "created by the art group Hipgnosis (specifically Storm Thorgerson and Aubrey Powell), was inspired by a photograph of a prism in a physics textbook and the band's elaborate light shows during their concerts."
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: December 25 End Season, Brick Lady
+
+Pirate Lady is a Brick Lady, just another Brick in the Wall of Hive mind mentality. Stealing Carol's eggs, sinking Carol. Feeling more alone with Pirate Lady than Carol ever felt before.
+
+Off the coast on her Pirate Ship relationship.
+
+https://www.youtube.com/watch?v=Wt5EHAqhR1c       
+18,236,201 views October 25, 2009
+
+1. The hive mind is sleeping world. Lights out.
+
+2. "Can't you see" the real Carol relationship, or interchangeable mechanical bride?
+
+3. "Drowning slowly", the general pace of the relationship. "As weeks went by"
+
+4. "It's time to tell the truth"... "I was tired of"....
+
