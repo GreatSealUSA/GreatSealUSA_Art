@@ -174,3 +174,8 @@ Clergy metaphors. That is what Minute 22 of Pilot Episode brought to the Public 
 
 OPERA_A [What don't you understand? this isn't happening, stop this now!](https://www.youtube.com/watch?v=oet5L-gqctk) Everyone needs to take Finn's Hotel year 1923 very seriously! Waiting since year 1923... Marshall McLuhan dumped, pick it up! Is this it? I *read you*, Reddit, I'm so good at it, I'm spot on!
 
+# "my galaxy girls, quiproquo"
+
+* Second episode of the first season of Better Call Saul, titled "Mijo", aired on AMC. Jimmy's matchbook, where Nacho Varga writes his phone number. "in terrorgammons howdydos. Here she’s, is a bell, that’s wares in heaven, virginwhite, Undetrigesima, vikissy manonna." https://www.finnegansweb.com/wiki/index.php/Page_432
+
+OPERA_A "my galaxy girls" ... High up in the Sky. { Helen, Pirate Lady } meeting Carol trinity project. https://www.youtube.com/watch?v=My2FRPA3Gf8 1,230,847,547 views  September 9, 2013
