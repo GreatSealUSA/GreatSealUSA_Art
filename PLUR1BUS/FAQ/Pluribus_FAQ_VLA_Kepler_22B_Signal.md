@@ -54,3 +54,24 @@ A very common misconception. The mental illness is on Truth Social and Fox News 
 # https://youtu.be/09maaUaRT4M?t=744
 
 YouTube: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+
+&nbsp;
+
+# The 13 isolated Pluribus Represent
+
+https://youtu.be/09maaUaRT4M?t=896      
+8,620,648 views August 3, 2021     
+
+https://youtu.be/09maaUaRT4M?t=935    
+
+Carol vs. hive mind in season one of Pluribus.
+
+15:35      
+But all this come at a price: The **masses must give up their freedom and cede control of all aspects of life to the ruling** elite. They must relinquish their capacity to be **self-reliant individuals** who are responsible for their own lives, and **become submissive and obedient** subjects. The masses, in other words, must descend into the delusions of the totalitarian psychosis. totalitarianism.
+
+16:00      
+“. . .the totalitarian systems of the 20th century represent a kind of collective
+psychosis,” writes the medical doctor Joost Meerloo.
+“Whether gradually or suddenly, reason and common human decency are no longer
+possible in such a system: there is only a pervasive atmosphere of terror, and
+a projection of “the enemy,” imagined to be “in our midst.”
