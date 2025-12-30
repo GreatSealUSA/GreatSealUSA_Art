@@ -511,3 +511,20 @@ ToDo: I haven't checked if this track is already in this GitHub gumbo.
 https://www.youtube.com/watch?v=vWz9VN40nCA      
 43,826,479 views  December 24, 2009      
 Olivia Newton-John - Physical (Official Music Video)    
+
+&nbsp;
+
+&nbsp;
+
+# TRACK: Carol Learns, Smoke Clears
+
+Carol Learns after the Hive Mind "00:00:00:00" Zero Hour... she learns the school of heard knocks in Season One.
+
+https://www.youtube.com/watch?v=GFW-WfuX2Dk    
+43,972,351 views  May 19, 2007     
+Jagged Little Pill     
+
+Melt it down you are going to have to eventually anyway. Nuke atom bomb it Carol, Meltdown!
+
+How many women are there at the end of Episode Nine who can educate humanity the old ways on a new planet or something? The one girl in Peru is now in the hive mind. Carol and the woman in India.
+
