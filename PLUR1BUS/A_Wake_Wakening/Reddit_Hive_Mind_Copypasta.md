@@ -52,93 +52,95 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 Ideas on what to merge into the clusterfuck above, more thoughts not yet put into the gumbo:
 
-1. "The Gods Must Be Crazy" https://www.youtube.com/shorts/rgE80tMWbIU signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology? Pirate Rum and Coke, Sailor Jerry's? 
+1. "The Gods Must Be Crazy" https://www.youtube.com/shorts/rgE80tMWbIU signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology? Pirate Rum and Coke, Sailor Jerry's?
 
-2. Audience squares won't get it. This is a repeating sign-wave oscilloscope message, not a square wave, PCM encoding.
+2. Air Force One *Work In Progress* 2021 incident where two empty miniature tequila bottles. Bring in Zafiro Añejo referencds, Saul Goodman? Boeing 747-8s being built in San Antonio for the presidential fleet (designated VC-25B). On or around September 18, 2021.
 
-3. Square cultural reference is Charlie Brown and Lucy (Mind Doctor is in for 5 cents) - and Spike lives in Needles near Vegas - anyway "Blockhead" - Squares metaphors. Block chain, block signal, signal blocking, Radio Shack Storage Manager signal block chain analysis?
+3. Audience squares won't get it. This is a repeating sign-wave oscilloscope message, not a square wave, PCM encoding.
 
-4. Try the RNA message on a vibrator. Contact book she puts VLA New Mexico signal through large speakers for a blind man "to feel". Helen and Carol vibrator metaphors.
+4. Square cultural reference is Charlie Brown and Lucy (Mind Doctor is in for 5 cents) - and Spike lives in Needles near Vegas - anyway "Blockhead" - Squares metaphors. Block chain, block signal, signal blocking, Radio Shack Storage Manager signal block chain analysis?
 
-5. Any lesbian scissor sex jokes? Couple of two, married. The message was "cut off", and more than 78 seconds?
+5. Try the RNA message on a vibrator. Contact book she puts VLA New Mexico signal through large speakers for a blind man "to feel". Helen and Carol vibrator metaphors.
 
-6. Old Ham Radio - Ruins of Santa Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technology. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM - Radio Shack man won't take bread from the hivemind. He is traveling to the promised land. Rio Grande language. King Elvis Vegas.
+6. Any lesbian scissor sex jokes? Couple of two, married. The message was "cut off", and more than 78 seconds?
 
-7. Just one more drink from the Public House water of Life, Carol asks the bartender. Pink lesbians, Pink Floyd *watering holes*. "Western Woman, Western Girl:" https://youtu.be/zpotZUiKLbU?t=113 Drunk Carol, "Bartender, what is wrong with me", the Pirate Lady captain says: https://youtu.be/zpotZUiKLbU?t=236
+7. Old Ham Radio - Ruins of Santa Fe New Mexico - man traveling to come to Carol from his old communications non-Internet technology. Album Title: countdown, Until Saturday outlook counting. https://www.youtube.com/watch?v=XOGWbaOOeCM - Radio Shack man won't take bread from the hivemind. He is traveling to the promised land. Rio Grande language. King Elvis Vegas.
 
-8. Drinking yourself to death, woke / wake The Finnegans, Drinking Yourself Alive, like Carol. Public House drink drive drink death metaphors.
+8. Just one more drink from the Public House water of Life, Carol asks the bartender. Pink lesbians, Pink Floyd *watering holes*. "Western Woman, Western Girl:" https://youtu.be/zpotZUiKLbU?t=113 Drunk Carol, "Bartender, what is wrong with me", the Pirate Lady captain says: https://youtu.be/zpotZUiKLbU?t=236
 
-9. Drink driving. Driving others crazy. Driving others into death. Metaphors of Carol's confrontation (and line in Sagan's Contact film about confrontational woman to NASA / New Mexico space telescope lead-up). Ellie also drives like a mad woman / madness when going to confront the NASA leader scene about funding cancel rumors.
+9. Drinking yourself to death, woke / wake The Finnegans, Drinking Yourself Alive, like Carol. Public House drink drive drink death metaphors.
 
-10. Delirium Tremens / Elephants in the room / Pink Ladies (Grease Musical) / Pink lesbians ... booze Pink Elephants.
+10. Drink driving. Driving others crazy. Driving others into death. Metaphors of Carol's confrontation (and line in Sagan's Contact film about confrontational woman to NASA / New Mexico space telescope lead-up). Ellie also drives like a mad woman / madness when going to confront the NASA leader scene about funding cancel rumors.
 
-11. Carol being told by 12 to buzz-off, Hive metaphors. Carol the Queen bee metaphors. Elvis King hotel suite metaphors. Chess metaphors? "All GOOD kind nice hive mind people" opening. Queen, the White Queen run so fast. https://www.youtube.com/watch?v=x4_iGD0FMkk
+11. Delirium Tremens / Elephants in the room / Pink Ladies (Grease Musical) / Pink lesbians ... booze Pink Elephants.
 
-12. Overloaded meanings metaphors of fermenting.
+12. Carol being told by 12 to buzz-off, Hive metaphors. Carol the Queen bee metaphors. Elvis King hotel suite metaphors. Chess metaphors? "All GOOD kind nice hive mind people" opening. Queen, the White Queen run so fast. https://www.youtube.com/watch?v=x4_iGD0FMkk
 
-13. Metaphors of North America inventing "Ice BEER" and "Ice distillation" and Carol the Immigrant I.C.E. attacker in police car. And "Ice concentrating" of Apple-jack, Carol saying "Pluck and Apple" to hive mind, Eve metaphors of distillation. Authoring John 1:1 commandments to hive of distilling / concentrating boozing.
+13. Overloaded meanings metaphors of fermenting.
 
-14. "Hittin' the hard stuff" of hard reading Joyce. Booze metaphors of hitting. "Hit me up" appointment making.
+14. Metaphors of North America inventing "Ice BEER" and "Ice distillation" and Carol the Immigrant I.C.E. attacker in police car. And "Ice concentrating" of Apple-jack, Carol saying "Pluck and Apple" to hive mind, Eve metaphors of distillation. Authoring John 1:1 commandments to hive of distilling / concentrating boozing.
 
-15. Indra's net of gems and  jewels for Wiki weaving metaphors of Carol's writing interconnected books year apart.
+15. "Hittin' the hard stuff" of hard reading Joyce. Booze metaphors of hitting. "Hit me up" appointment making.
 
-16. Lush metaphors? Being a drunk "lush" https://www.merriam-webster.com/dictionary/lush writer Carol? Lush sexual vibrators for lesbians? https://www.lovense.com/store/lush-vibrators - Carol shaking the tree of hive for an Eve apple to fall metaphors? Hitting the G-spot / God-spot for that Eve Adam Apple? Carol's emotional outbrusts quake the earth sexual orgasm quaking metaphors? Slege Carol with her emotional triggering of the bombs and hive mind freakouts? https://www.youtube.com/watch?v=OJWJE0x7T4Q
+16. Indra's net of gems and  jewels for Wiki weaving metaphors of Carol's writing interconnected books year apart.
 
-17. Intoxicating writing, music, environment / gas lighting / gas leaks / drunk on fumes / drunk on breath detector in car-fumes Carol's dashboard
+17. Lush metaphors? Being a drunk "lush" https://www.merriam-webster.com/dictionary/lush writer Carol? Lush sexual vibrators for lesbians? https://www.lovense.com/store/lush-vibrators - Carol shaking the tree of hive for an Eve apple to fall metaphors? Hitting the G-spot / God-spot for that Eve Adam Apple? Carol's emotional outbrusts quake the earth sexual orgasm quaking metaphors? Slege Carol with her emotional triggering of the bombs and hive mind freakouts? https://www.youtube.com/watch?v=OJWJE0x7T4Q
 
-18. Cock-tales of why lesbians. Drinking squirt. Drinking cock, refusing the hive cocky? Cocktail drunks at the Public House Episode One minute 22. Tale tellings of cocks, writer's tales, Vince Gilligan's story tales metaphors.
+18. Intoxicating writing, music, environment / gas lighting / gas leaks / drunk on fumes / drunk on breath detector in car-fumes Carol's dashboard
 
-19. Neat / streight / sexual lesbians / straight from the bottle drinking of Carol.
+19. Cock-tales of why lesbians. Drinking squirt. Drinking cock, refusing the hive cocky? Cocktail drunks at the Public House Episode One minute 22. Tale tellings of cocks, writer's tales, Vince Gilligan's story tales metaphors.
 
-20. Police slammer, slamming a drink. Policing the hive mind from ICEd drinks, chilled drinks, chill out Carol...
+20. Neat / streight / sexual lesbians / straight from the bottle drinking of Carol.
 
-21. Great Seal USA age 21 metaphors, 21 math of Campbell / founding fathers indoctrination ritual age into the Pluribus hive mind, year 1776 proposal. Age 21 boozing by Carol. Passport / graduate study (Helen) metaphors / passing age 21 age of "Reason Thinking" boozing, Carol threshold arrested development (police car, handcuffs of hive mind Pirate Lady).
+21. Police slammer, slamming a drink. Policing the hive mind from ICEd drinks, chilled drinks, chill out Carol...
 
-22. Detox from Carol, leaving her city, fleeing Vegas before she arrives.
+22. Great Seal USA age 21 metaphors, 21 math of Campbell / founding fathers indoctrination ritual age into the Pluribus hive mind, year 1776 proposal. Age 21 boozing by Carol. Passport / graduate study (Helen) metaphors / passing age 21 age of "Reason Thinking" boozing, Carol threshold arrested development (police car, handcuffs of hive mind Pirate Lady).
 
-23. Hangovers from Carol. Hangman pirates / piracy criminals.  Hanging man from the crashed air craft after carol crashed the hive mind the first time in street assult in front of her house.
+23. Detox from Carol, leaving her city, fleeing Vegas before she arrives.
 
-24. Go home carol, you drunk
+24. Hangovers from Carol. Hangman pirates / piracy criminals.  Hanging man from the crashed air craft after carol crashed the hive mind the first time in street assult in front of her house.
 
-25. Rituals of age 21 passing. Reddit audience not grasping adult content of Joyce. Joyce banned in USA. Thrown out of the PUblic House / Public Library by police state, Joyce was. Druk given the bum's rush by Federals.
+25. Go home carol, you drunk
 
-26. Not a show for babies (famous line of YouTube YMS). Carol asserts this at the Air Force One lunch break / smoke break (callback to Episode One minute 22 non-smoking break). Carol asserts by having the child (boy) cover adult (woman) birthing subjects at the meal table.
+26. Rituals of age 21 passing. Reddit audience not grasping adult content of Joyce. Joyce banned in USA. Thrown out of the PUblic House / Public Library by police state, Joyce was. Druk given the bum's rush by Federals.
 
-27. How smoking by drunk is a common experience, Carol minute 22 Episde One. Episode for commercial TV media ecology Breaking Bad has commercial breaks / acts. Uninterputed viewing - not using second screen and commenting on Reddit. Distracted comment reading / distracted Pluribus watching.
+27. Not a show for babies (famous line of YouTube YMS). Carol asserts this at the Air Force One lunch break / smoke break (callback to Episode One minute 22 non-smoking break). Carol asserts by having the child (boy) cover adult (woman) birthing subjects at the meal table.
 
-28. Pickle Rick. Carol getting pickled drunk, Joyce pickle writing codes / encryption keys. IBM Austin Pickle Center NSA super computer cluster (NSA San Antonio references, Vegas Manhattan Project testing grounds Nevada, White Sands New Mexico). Drunk Carol, drinking language, pickle. Public House Episode One Minute 22 chemical dependency release button metaphors, "pushing the button", pickle / cucumber as sexual literature metaphors (Dandom) https://taskandpurpose.com/history/military-pilots-drop-bombs-pickle-button/ - and all around sausage fest / pickle fest metaphors of Morty / Rick duo... Helen Carol dynamic writing duo. https://old.reddit.com/r/EnglishLearning/comments/1e66rix/can_pickle_also_mean_damage/
+28. How smoking by drunk is a common experience, Carol minute 22 Episde One. Episode for commercial TV media ecology Breaking Bad has commercial breaks / acts. Uninterputed viewing - not using second screen and commenting on Reddit. Distracted comment reading / distracted Pluribus watching.
 
-29. Chronically drunk carol, Chronic metaphors. She also does prescription pills, white woman's suburb, Mother's Little Helper metaphors.
+29. Pickle Rick. Carol getting pickled drunk, Joyce pickle writing codes / encryption keys. IBM Austin Pickle Center NSA super computer cluster (NSA San Antonio references, Vegas Manhattan Project testing grounds Nevada, White Sands New Mexico). Drunk Carol, drinking language, pickle. Public House Episode One Minute 22 chemical dependency release button metaphors, "pushing the button", pickle / cucumber as sexual literature metaphors (Dandom) https://taskandpurpose.com/history/military-pilots-drop-bombs-pickle-button/ - and all around sausage fest / pickle fest metaphors of Morty / Rick duo... Helen Carol dynamic writing duo. https://old.reddit.com/r/EnglishLearning/comments/1e66rix/can_pickle_also_mean_damage/
 
-30. Booze Cruise Carol - cruising car (Santa Fe King Of the World Dandom / Midnight Cruiser Zero Hour Dandom) - police cruiser. Bruising for a drunk cruising / DUI. Booze Cruise ship metaphors, pirate ship ladies. Booze Cruise missles, atomic bomb / bombed-out Carol. Booze Cruise Kepler-22B space ships.
+30. Chronically drunk carol, Chronic metaphors. She also does prescription pills, white woman's suburb, Mother's Little Helper metaphors.
 
-31. Pilot episode. Air Force One / commercial flight pilots. Cruise control / autopilot metaphors of not getting the story as audience members. Flying above head on cruise control patrol car / I.C.E. cruising the streets for immigrants Carol policing / autopilot reactionary reading of { Finnegans Wake, Pluribus, Great Seal USA - Power of Myth, Inner Reaches of Outer Space meaning of Pluribus Latin }
+31. Booze Cruise Carol - cruising car (Santa Fe King Of the World Dandom / Midnight Cruiser Zero Hour Dandom) - police cruiser. Bruising for a drunk cruising / DUI. Booze Cruise ship metaphors, pirate ship ladies. Booze Cruise missles, atomic bomb / bombed-out Carol. Booze Cruise Kepler-22B space ships.
 
-32. McLuhan's "lazy wake" Finnegans Wake audience interview. Stoned drunk. (One Bourbon One Scotch One Beer lyrics used "stoned"?) Carol Stoned on booze and first-time smoking at Zero Hour. How stoned readers of audience are like second screen readers, won't follow hyperlinks / Wiki reading. Stoner Terence McKenna mushroom (mushroom cloud atom bomb Carol request pending) better than lazy drugs. Hive mind fungus ( Pluribus "Fun Among Us" fungi)  metaphors of Terence McKenna. Stoner readers, zoned out readers, won't get the story.
+32. Pilot episode. Air Force One / commercial flight pilots. Cruise control / autopilot metaphors of not getting the story as audience members. Flying above head on cruise control patrol car / I.C.E. cruising the streets for immigrants Carol policing / autopilot reactionary reading of { Finnegans Wake, Pluribus, Great Seal USA - Power of Myth, Inner Reaches of Outer Space meaning of Pluribus Latin }
 
-33. Carol the book author does a book tour audience AMA on Reddit. Mirroring opening of the Pilot Episode, but Helen convinces her to do it online. "terminal moraine" line from Joseph Campbell / JCF lectures of broken mythology stories. Terminal online book tour audience, Helen touching the touch device with the cigarette lit in a dark parking lot at the Zero Hour.
+33. McLuhan's "lazy wake" Finnegans Wake audience interview. Stoned drunk. (One Bourbon One Scotch One Beer lyrics used "stoned"?) Carol Stoned on booze and first-time smoking at Zero Hour. How stoned readers of audience are like second screen readers, won't follow hyperlinks / Wiki reading. Stoner Terence McKenna mushroom (mushroom cloud atom bomb Carol request pending) better than lazy drugs. Hive mind fungus ( Pluribus "Fun Among Us" fungi)  metaphors of Terence McKenna. Stoner readers, zoned out readers, won't get the story.
 
-34. Carol always bitching, being a woman's bitch, wearing pants in the family. Bitching audience members who don't like Helen's graduate work on Joyce reading.
+34. Carol the book author does a book tour audience AMA on Reddit. Mirroring opening of the Pilot Episode, but Helen convinces her to do it online. "terminal moraine" line from Joseph Campbell / JCF lectures of broken mythology stories. Terminal online book tour audience, Helen touching the touch device with the cigarette lit in a dark parking lot at the Zero Hour.
 
-35. Carol, substance abuser, stoning the hive mind. Weight in stones of a heavy load (Pink Floyd, "Hey You" lyrics), Molly Hatchet (Women revenge on men) Flirting With Disaster heavy load / Carol's message to 12: You'All know what I mean about body snacher movies, right? on Air Force One command and control / Cheif meeting commander roles. American mythology of Finnegans Wake Levant monomyth transitions: Title "Rainy Day Women" metaphor for dry drunk woman, Carol wet drinking - stoning the "good" behavior Hive Mind. Stone living all alone (Carol) all lone / hive mind rescue from loneliness https://www.youtube.com/watch?v=fm-po_FUmvM (Rainy Day women: pouring booze, pouring rainfall, Helen Fall of Mankind, Tim Finnegan Falls at the Zero Hour Public House at Episode One minute-men 22)
+35. Carol always bitching, being a woman's bitch, wearing pants in the family. Bitching audience members who don't like Helen's graduate work on Joyce reading.
 
-36. Body snackers, body snatchers invasion
+36. Carol, substance abuser, stoning the hive mind. Weight in stones of a heavy load (Pink Floyd, "Hey You" lyrics), Molly Hatchet (Women revenge on men) Flirting With Disaster heavy load / Carol's message to 12: You'All know what I mean about body snacher movies, right? on Air Force One command and control / Cheif meeting commander roles. American mythology of Finnegans Wake Levant monomyth transitions: Title "Rainy Day Women" metaphor for dry drunk woman, Carol wet drinking - stoning the "good" behavior Hive Mind. Stone living all alone (Carol) all lone / hive mind rescue from loneliness https://www.youtube.com/watch?v=fm-po_FUmvM (Rainy Day women: pouring booze, pouring rainfall, Helen Fall of Mankind, Tim Finnegan Falls at the Zero Hour Public House at Episode One minute-men 22)
 
-37. Lost and found metaphors. Helen on a milk carton lost to Carol.
+37. Body snackers, body snatchers invasion
 
-38. Milk is for babies on the teet. Carol egg nesting on ice. Milk is for babies from mama, Carol spices up the milk with Irish car bombs, Finnegans Wake curdled milk. Stout woman with a heavy pour: https://en.wikipedia.org/wiki/Irish_car_bomb_(cocktail)
+38. Lost and found metaphors. Helen on a milk carton lost to Carol.
 
-39. Nursing a drink, milk carton nursing the hive mind, nursing Helen to the doctors in a pussy wagon. Lesbians nursing frozen ice eggs, nursing the 12. Finnegans Wake has nursery rhymes stories. https://old.reddit.com/r/TrueLit/comments/10ii4hr/the_official_truelit_finnegans_wake_readalong/j5qeeu3/
+39. Milk is for babies on the teet. Carol egg nesting on ice. Milk is for babies from mama, Carol spices up the milk with Irish car bombs, Finnegans Wake curdled milk. Stout woman with a heavy pour: https://en.wikipedia.org/wiki/Irish_car_bomb_(cocktail)
 
-40. Cut-ups, jokers on Reddit with extreme low-effort replies. Scissors cut-up / rock paper Scissors lesbian metaphors. Drunk sex with the two. https://en.wiktionary.org/wiki/cutup a joker who wants to cup-up the hive minds, carve out people. Drunk surgeon Carol. "The Joker" batman, cut-up lips. Cut-up cosmetics joke, Trump orange (Great Seael USA President, Comedian Joker cut-up). A "Copy Pasta", "Word Salad" is Joycean Wake Finnegan end is begin of the story.
+40. Nursing a drink, milk carton nursing the hive mind, nursing Helen to the doctors in a pussy wagon. Lesbians nursing frozen ice eggs, nursing the 12. Finnegans Wake has nursery rhymes stories. https://old.reddit.com/r/TrueLit/comments/10ii4hr/the_official_truelit_finnegans_wake_readalong/j5qeeu3/
 
-41. Getting smashed, drunk metaphor. Carol smashes a car trying to get Helen out of the parking lot at the Zero Hour. Smash-up derby / drunk driving. "Smash that" sex metaphors. Nothing burger vs. smash burger. Sex grinding / grinder / smash burger. Muffin (Lady Gaga Bluffin' with "Poker Face"), love muffin smash burger?
+41. Cut-ups, jokers on Reddit with extreme low-effort replies. Scissors cut-up / rock paper Scissors lesbian metaphors. Drunk sex with the two. https://en.wiktionary.org/wiki/cutup a joker who wants to cup-up the hive minds, carve out people. Drunk surgeon Carol. "The Joker" batman, cut-up lips. Cut-up cosmetics joke, Trump orange (Great Seael USA President, Comedian Joker cut-up). A "Copy Pasta", "Word Salad" is Joycean Wake Finnegan end is begin of the story.
 
-42. Food dishes you find at a funeral wake or Public House that have booze ingredients. Carol buried out back of Hellen's house, so booze https://old.reddit.com/r/BBQ/comments/eyt2on/jack_daniels_ribs/ and Islamic visitor Lady Pirate smoker / pork / Carol throwing stones at the hive mind / cover stone over Helen's remains. The remaining drink, the dregs of a boozer and Helen's wrapped body. Remaining countdown on-screen timers. Remaining food supply 10 years for hive mind. https://old.reddit.com/r/bartenders/comments/1g04m4y/what_is_the_remaining_alcohol_from_bartender/
+42. Getting smashed, drunk metaphor. Carol smashes a car trying to get Helen out of the parking lot at the Zero Hour. Smash-up derby / drunk driving. "Smash that" sex metaphors. Nothing burger vs. smash burger. Sex grinding / grinder / smash burger. Muffin (Lady Gaga Bluffin' with "Poker Face"), love muffin smash burger?
 
-43. https://old.reddit.com/r/etymology/comments/139nq68/what_are_the_origins_of_the_newer_slang_meaning/ "They also used to refer to beginning drinking as getting lit as in “the drinking lamp has been lit”. OPERA_A https://www.youtube.com/watch?v=mvDFdLZJ-q0
+43. Food dishes you find at a funeral wake or Public House that have booze ingredients. Carol buried out back of Hellen's house, so booze https://old.reddit.com/r/BBQ/comments/eyt2on/jack_daniels_ribs/ and Islamic visitor Lady Pirate smoker / pork / Carol throwing stones at the hive mind / cover stone over Helen's remains. The remaining drink, the dregs of a boozer and Helen's wrapped body. Remaining countdown on-screen timers. Remaining food supply 10 years for hive mind. https://old.reddit.com/r/bartenders/comments/1g04m4y/what_is_the_remaining_alcohol_from_bartender/
 
-44. Stand-up drinking, drunk's falling down (Tim Finnegan). "The Stand" by Stephen King story with atom bomb of Vegas, Carol's request for atomic bomb. "The Stand" military base virus outbreak, drunk on the gatekeeping job.
+44. https://old.reddit.com/r/etymology/comments/139nq68/what_are_the_origins_of_the_newer_slang_meaning/ "They also used to refer to beginning drinking as getting lit as in “the drinking lamp has been lit”. OPERA_A https://www.youtube.com/watch?v=mvDFdLZJ-q0
+
+45. Stand-up drinking, drunk's falling down (Tim Finnegan). "The Stand" by Stephen King story with atom bomb of Vegas, Carol's request for atomic bomb. "The Stand" military base virus outbreak, drunk on the gatekeeping job.
 
 44. Rotgut booze. High on the shelf for Carol. Well drinks. Licking the food at the military base, rotgut booze donuts - police cop Carol and donuts? Home simpson donut eating audience intelligence good enough for Rick and Morty show.
 
