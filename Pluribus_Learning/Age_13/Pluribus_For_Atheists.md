@@ -15,3 +15,28 @@ This is beyond crisis
     * Keep in mind Manhattan is named after Native American tribes. The Founding Fathers encountered spoken languages (Tower of Babel metaphor) and religions that had ZERO INFLUENCE from Levant science fiction trilogy fandoms!
     * "I will **never forget the experience** I had when I was in Japan, a place that never heard of the Fall and the Garden of Eden. One of the Shinto texts says that the processes of nature cannot be evil. Every natural impulse is not to be corrected but to be sublimated, to be beautified." - [Summer of year 1986. Luke Skywalker Ranch California USA. Page Twenty-Nine of book printed on paper.](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA29&dq=%22I+had+when+I+was+in+Japan,+a+place+that+never+heard+of+the+Fall+and+the+Garden+of+Eden.+One+of+the+Shinto+texts+says+that+the+processes%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+&nbsp;
+
+# Summer of 1986, Disqualified
+
+&nbsp;
+
+Summer of 1986, age 82, Skywalker Ranch California USA lessons for science fiction fandoms. Filmed by George Lucas at the very peak of his influence and power, 1986 was a wild year for Lucas sustained since year 1977! [Book on paper, "Power of Myth" published year 1988, page thirty](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA30&dq=%22That+is+an+interesting+idea+because,+even+though+the+cities+emerge+around+them,+within+the+soul%22&hl=en&newbks=1&newbks_redir=1&sa=X).
+
+&nbsp;
+
+BILL MOYERS: “Holding their own head.” That is an interesting idea because, even though the cities emerge around them, within the soul, the place where the inner person dwells, they are still, as you say, in accord with nature.
+
+JOSEPH CAMPBELL: But in the Bible, **eternity withdraws, and nature is corrupt, nature has fallen**. In biblical thinking, we live in exile.
+
+MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that [television has made a global village of the world](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) — but he didn’t know the global village would be Beirut. What does that say to you?
+
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These **three mythologies are fighting it out. They have disqualified themselves for the future**.
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will **identify the individual not with his local group but with the planet**. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about. I carry a copy of the Great Seal in my pocket in the form of a dollar bill. Here is the statement of the ideals that brought about the formation of the United States. Look at this dollar bill. Now here is the Great Seal of the United States. Look at the pyramid on the left. 
