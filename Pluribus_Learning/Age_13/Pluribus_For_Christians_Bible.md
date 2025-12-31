@@ -4,8 +4,8 @@ Holy Bible fandom.
 
 The EQUATION of concern with the Founding Fathers Great Seal of the United States of America year 1776 values.
 
-“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
-Died October 30, 1987 (authored before then, date not located)
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, [Thou Art That](https://old.reddit.com/r/askphilosophy/comments/24qil2/thou_art_that_or_tat_tvam_asi/): Transforming Religious Metaphor      
+Died October 30, 1987 at age 83 (authored before then, date not located)     
 
 "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**" - [June 1949 book, chapter 2](https://en.wikiquote.org/wiki/Joseph_Campbell#The_Hero_with_a_Thousand_Faces_\(1949\)) authored by a New York American!
 
