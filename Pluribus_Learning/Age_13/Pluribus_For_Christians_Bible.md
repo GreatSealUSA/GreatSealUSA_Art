@@ -18,3 +18,9 @@ American Reformation, USA reformation of Bible
 1. Year 1820 Founding Father Thomas Jefferson
 
 2. Sunday, February 28, 1954. Expounding on Biblical "1 John 4:20" verse. Dr. Martin Luther King Jr. American teacher.
+
+Bible verse John 3:16     
+* The entire world. All inclusive Pale Blue Dot. Not just North Americans.
+John 13:35
+* All of us, all will know, all inclusive Pale Blue Dot. Not just Middle East. Pluribus / We The People / All People.
+
