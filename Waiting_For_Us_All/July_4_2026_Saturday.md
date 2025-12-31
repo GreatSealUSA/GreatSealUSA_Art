@@ -28,3 +28,16 @@ Can you dig it? I've been waiting such a long time for Saturday July 4, 20**26**
 *  Hey, gumbaree, e se la dee. “Hey, mister, and if the goddesses.”
 
 Eh cumpari, ici nari.
+
+&nbsp;
+
+&nbsp;
+
+# New Years Eve. December 31, 2025
+
+When MAGA brought a nation down. **Downfall USA** 
+
+USA needs to take down the love for dumb memes and love for Donald Trump amusements. Saturday July 4, 2026 deadline. USA 250 
+
+Dublin live busker    
+https://www.youtube.com/watch?v=MprKZrVaPKg     
