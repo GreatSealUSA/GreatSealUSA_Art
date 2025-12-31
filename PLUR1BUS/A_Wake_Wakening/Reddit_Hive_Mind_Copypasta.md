@@ -43,7 +43,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 1. "The Gods Must Be Crazy" signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology?
 
-2. Audience squares son't get it. This is a repeating sign-wave oscilloscope message, not a square wave, PCM encoding.
+2. Audience squares won't get it. This is a repeating sign-wave oscilloscope message, not a square wave, PCM encoding.
 
 3. Square cultural reference is Charlie Brown and Lucy (Mind Doctor is in for 5 cents) - and Spike lives in Needles near Vegas - anyway "Blockhead" - Squares metaphors. Block chain, block signal, signal blocking, Radio Shack Storage Manager signal block chain analysis?
 
