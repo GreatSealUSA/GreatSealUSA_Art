@@ -212,3 +212,34 @@ https://www.youtube.com/watch?v=Wt5EHAqhR1c
 
 4. "It's time to tell the truth"... "I was tired of"....
 
+&nbsp;
+
+&nbsp;
+
+# TRACK: Mind is not *For Rent*
+
+Today's Radio Shack Storage Unit Manager    
+
+https://www.youtube.com/watch?v=eqHamGoM-ik    
+383,387 views November 24, 2022     
+
+What you say about his house guest company is what you say about society
+
+1. Catch the Myth! The Mythology!
+
+2. The World is Love
+
+3. The Space he invades, the hive mind person he invades... he gets by on *you* the you under the hive mind.
+
+4. Catch the witness...
+
+5. "Mean, mean pride" - insist on payment for medical services
+
+6. "The river" - See Steely Dan King of the World, Rio Grande cross into USA. Finnegans Wake riverrun Minute 22 Episode One.
+
+?? first to 11, of the 13?
+
+To any GOD or Government (Pluribus)
+
+Alien changes to society aren't permanent to this man!
+
