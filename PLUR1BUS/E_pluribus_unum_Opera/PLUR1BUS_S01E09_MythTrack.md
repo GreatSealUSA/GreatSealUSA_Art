@@ -225,6 +225,8 @@ https://www.youtube.com/watch?v=eqHamGoM-ik
 
 What you say about his house guest company is what you say about society
 
+THE ENERGY YOU TRADE with the Hive Mind Radio Signal Levels!
+
 1. Catch the Myth! The Mythology!
 
 2. The World is Love
@@ -242,4 +244,10 @@ What you say about his house guest company is what you say about society
 To any GOD or Government (Pluribus)
 
 Alien changes to society aren't permanent to this man!
+
+* "The new feeling for the hula-hoop compared to the Tom Sawyer-attitude toward
+the hoop is an example of what Otto Lowenstein describes in his remarkable account of what the newly sighted perceive in the world outside them. The information environment and effects created
+by the computer are as inaccessible to literate vision as the external world is to the blind. For example, the computer has made possible our satellites which have put a man-made environment around the
+planet, ending "nature" in the older sense. **The new information technology will shortly encompass the entire astral system, harnessing its resources for terrestrial use**. The important thing is to realize
+that **electric information systems are live environments in the full organic sense. They alter our feelings and sensibilities**" - War and Peace in the Global Village, year 1968, page 35
 
