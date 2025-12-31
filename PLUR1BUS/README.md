@@ -20,7 +20,7 @@ So what am I saying? One quote to rule them all.
 
 # Sober books
 
-* "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**" - June 1949 book
+* "**Sober**, modern Occidental judgement is founded on a total misunderstanding of the realities depicted in the fairy tale, **the myth, and the divine comedies of redemption**" - [June 1949 book, chapter 2](https://en.wikiquote.org/wiki/Joseph_Campbell#The_Hero_with_a_Thousand_Faces_\(1949\))
 
 * "Why attempt to make plausible, or even interesting, to men and women consumed with passion, the experience of transcendental bliss? As dreams that were momentous by night **may seem simply silly in the light of day**, so the poet and the prophet can discover themselves playing the idiot **before a jury of sober eyes**. The easy thing is to commit the **whole community**" - [June 1949 book, page 189](https://www.google.com/books/edition/The_Hero_with_a_Thousand_Faces/I1uFuXlvFgMC?hl=en&gbpv=1&dq=%22playing+the+idiot+before+a+jury+of+sober+eyes.+The+easy+thing+is+to+commit+the+whole+community%22&pg=PA189&printsec=frontcover).
 
