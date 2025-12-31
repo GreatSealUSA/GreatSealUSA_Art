@@ -21,3 +21,6 @@ Finnegans Wake, which Helen introduces at the zero hour... is about drinking in 
 4. The one I consider most important to Braking Bad AMC television to Apple TV+ streaming Pluribus... Marshall McLuhan's key statement I have devoted a website to: www.LazyWake.com University of Toronto, media study: "(Audience question) have you ever taken LSD? (Answer) No. I've thought about it and I talked with many people who have taken it. And I have the read Finnegans Wake aloud at a time when takers of LSD said 'that is just like LSD!' So, I began to feel that LSD may just be the lazy man's form of Finnegans Wake"
 
 ToDo: related to number 3  https://finwakeatx.blogspot.com/2018/02/the-secret-life-of-mushrooms-in.html study
+
+At 19 minutes, the Black Mirror story brings up alien language recognition, other species languages. That's core Tower of Babel metaphor of Joyce's Finnegans wake. Again, Minute 22 of Pluribus Episode One. 
+
