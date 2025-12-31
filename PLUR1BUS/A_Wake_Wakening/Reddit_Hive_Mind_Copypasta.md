@@ -47,7 +47,7 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 
 3. Square cultural reference is Charlie Brown and Lucy (Mind Doctor is in for 5 cents) - and Spike lives in Needles near Vegas - anyway "Blockhead" - Squares metaphors. Block chain, block signal, signal blocking, Radio Shack Storage Manager signal block chain analysis?
 
-4. Try the RNA message on a vibrator. Contact she puts it through speakers for a blind man "to feel". Helen an Carol vibrator metaphors.
+4. Try the RNA message on a vibrator. Contact book she puts VLA New Mexico signal through large speakers for a blind man "to feel". Helen and Carol vibrator metaphors.
 
 5. Any lesbian scissor sex jokes? Couple of two, married. The message was "cut off", and more than 78 seconds?
 
