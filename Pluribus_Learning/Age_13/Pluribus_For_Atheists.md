@@ -116,18 +116,19 @@ ToDo:
 
 2. John Stewart Interview with Malala where Stewart  jokes about Garden of Eden State, and Malala saying Swat Valley is Eden on Earth. That she believes in *two*.
 
+&nbsp;
 
-It’s a different problem from that of psychoanalysis. I think it was Nietzsche who said, “Be careful lest in casting out the devils you cast out the best thing that’s in you.” Here, the deities who have been encountered—powers, let’s call them—are retained. The connection is maintained, not broken. And these men then become the spiritual advisers and gift-givers to their people.
+JOSEPH CAMPBELL: It’s a different problem from that of psychoanalysis. I think it was Nietzsche who said, “Be careful lest in casting out the devils you cast out the best thing that’s in you.” Here, the deities who have been encountered—powers, let’s call them—are retained. The connection is maintained, not broken. And these men then become the spiritual advisers and gift-givers to their people.
 
 Well, what happened with this **young boy** was that he had a prophetic vision of the terrible future of his tribe. It was a vision of what he called “the hoop” of the nation. In the vision, Black Elk saw that the hoop of his nation was one of many hoops, which is something that we haven’t learned at all well yet. He saw the cooperation of all the hoops, all the nations in grand procession. But more than that, the vision was an experience of himself as going through the realms of spiritual imagery that were of his culture and assimilating their import. It comes to one great statement, which for me is a key statement to the understanding of myth and symbols. He says, “I saw myself on the central mountain of the world, the highest place, and I had a vision because I was seeing in the sacred manner of the world.” And the sacred central mountain was Harney Peak in South Dakota. And then he says, “But the central mountain is everywhere.”
 
-* “Once I had asked God for one or two extra inches in height, but instead he made me as tall as the sky, so high that I could not measure myself.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+* INTERRUPTION FROM another book: “Once I had asked God for one or two extra inches in height, but instead he made me as tall as the sky, so high that I could not measure myself.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
-That is a **real mythological realization. It distinguishes between the local** cult image, Harney Peak, and its connotation as the center of the world. The center of the world is the axis mundi, the central point, the pole around which all revolves. The central point of the world is the point where stillness and movement are together. Movement is time, but stillness is eternity. Realizing how this moment of your life is actually a moment of eternity, and experiencing the eternal aspect of what you’re doing in the temporal experience — this is the mythological experience.
+JOSEPH CAMPBELL: That is a **real mythological realization. It distinguishes between the local** cult image, Harney Peak, and its connotation as the center of the world. The center of the world is the axis mundi, the central point, the pole around which all revolves. The central point of the world is the point where stillness and movement are together. Movement is time, but stillness is eternity. Realizing how this moment of your life is actually a moment of eternity, and experiencing the eternal aspect of what you’re doing in the temporal experience — this is the mythological experience.
 
 So is the central mountain of the world Jerusalem? Rome? Benares? Lhasa? Mexico City?
 
-MOYERS: This Indian boy was saying there is a shining point where all lines intersect.
+BILL MOYERS: This Indian boy was saying there is a shining point where all lines intersect.
 
 CAMPBELL: That’s exactly what he was saying.
 
