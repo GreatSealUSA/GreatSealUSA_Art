@@ -139,7 +139,7 @@ very grim for me.
 
 Just do me a favor and have a happy new years eve, new years day. Saturday in the Park July 4, 2026! I've been waiting a long time for a show about the Great Seal of the United States of America.
 
-The little girl from Poland liked ice cream seller in Pluribus Season One fiction show, in the song lyrics!
+The [little girl from Poland liked ice cream seller (mango flavor) in Pluribus Season One fiction show](https://scrapsfromtheloft.com/tv-series/gdansk-pluribus/), in the song lyrics! So much to associate for minds to [get out of the ice and We All Fly...](https://youtu.be/tV3pR87L-T8?list=PLMDOR87-vgX7CAS42vuaY6ZH-s-x_RXnz&t=52).
 
 https://www.youtube.com/watch?v=kqcwKnjMffw           
 11,185 views  November 8, 2014
@@ -152,4 +152,5 @@ November 8 date on YouTube, Pluribus release show date?    Inceptions abound PLU
 Playlist work in progress (Joyce year 1923 / 1924)     
 https://www.youtube.com/watch?v=XOGWbaOOeCM&list=PLMDOR87-vgX7CAS42vuaY6ZH-s-x_RXnz     
 
-
+... The Playlist, shortest link? ...       
+https://youtube.com/playlist?list=PLMDOR87-vgX7CAS42vuaY6ZH-s-x_RXnz
