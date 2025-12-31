@@ -43,3 +43,52 @@ https://scholarsarchive.byu.edu/cgi/viewcontent.cgi?article=1016&context=english
 My concern is the Putin Internet Research Agency hive mind to be pro-disease RFK Jr pro-measles December 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
 
 That's my attraction to Pluribus Great Seal USA hive mind concerns. A hive mind that values authentic learning and analysis of media to recognize the harm in poisoning education as Russia has against children to have parents cheer on diseases as "winning" over education and science. https://www.bbc.com/news/world-us-canada-45294192
+
+Front page of Reddit December 31, 2025   
+https://old.reddit.com/r/Anticonsumption/comments/1q07gh0/clothes_for_decades_but_make_fast_fashion_anyway/    
+the hive mind ideals are mocked by many. The alien virus in many ways serves the Tristan and Islode censors of society (backlash of society).
+
+&nbsp;
+
+CAMPBELL: For example, in the Tristan romance, Isolde is engaged to marry King Mark. They have never seen each other. Tristan is sent to fetch Isolde to Mark. Isolde’s mother prepares a love potion, so that the two who are to be married will have real love for each other. And this love potion is put in the charge of the nurse, who is to go with Isolde. The love potion is left unguarded, and Tristan and Isolde think it’s wine, and they drink it. They’re overtaken with love. But **they had already been in love, they just didn’t know it. The love potion just touched it off**. One remembers that kind of experience from one’s own youth.
+The problem from the troubadour point of view is that King Mark and Isolde, who are to be married, are not really qualified for love. They have never even seen each other. The true marriage is the marriage that springs from **the recognition of identity** in the other, and the physical union is simply the sacrament in which that is confirmed. It doesn’t start the other way around, with the physical interest that then becomes spiritualized. It starts from the spiritual impact of love — Amor.
+
+BILL MOYERS: Christ spoke of “the adulterer at heart,” the violation of the union that takes place spiritually, in the mind and heart.
+
+CAMPBELL: And every marriage was such a violation when it was arranged by the society and not by the heart. That’s the sense of courtly love in the Middle Ages. It is in **direct contradiction to the way of the Church**. The word AMOR spelt backwards is ROMA, the Roman Catholic Church, which was justifying marriages that were simply political and social in their character. And so came this movement validating individual choice, what I call following your bliss.
+
+* "The way of the Church" == the REAL WORLD Hive Mind of arranged marriages.
+
+But there’s danger, too, of course. In the Tristan romance, when the young couple has drunk their love potion and Isolde’s nurse realizes what has happened, she goes to Tristan and says, “You have drunk your death.” And Tristan says, “By my death, do you mean this pain of love?” — because that was one of the main points, that one should feel the sickness of love. There’s no possible fulfillment in this world of that identity one is experiencing. Tristan says, “If by my death, you mean this agony of love, that is my life. If by my death, you mean the punishment that we are to suffer if discovered, I accept that. And if by my death, you mean eternal punishment in the fires of hell, I accept that, too.” Now, that’s big stuff.
+
+MOYERS: Especially for medieval Catholics, who **believed in a literal Hell**. So what’s the significance of what Tristan was saying?
+
+CAMPBELL: What he was saying is that his love is bigger even than death and pain, than anything. This is the affirmation of the pain of life in a big way.
+
+&nbsp;
+
+ToDo: follow up, find page numbers, books, citations
+
+"The Potion as a "Legal" Excuse: Campbell noted that earlier "primitive" versions, such as that of Béroul, used the potion as a literal substance to bypass social judgment. If the characters were "bewitched" by a drug, their adultery was technically not their fault, allowing the audience to sympathize with them despite the strict religious bans on heresy and adultery."
+
+"The Troubadour/Gottfried Shift: Campbell contrasts this with Gottfried von Strassburg’s version. He argues that Gottfried refined the story so that Tristan and Isolde were already in love before drinking the potion. In this "troubadour" context, the potion is no longer a drug that removes choice but a symbol of the Amor (individual love) that they consciously accept—even if it leads to eternal damnation."
+
+"Individual Sovereignty: By moving away from the "it was the potion's fault" excuse, the troubadour tradition established the Western ideal of the individual choosing their own "bliss" and destiny over the dictates of the Church and State."
+
+https://lovescholarproject.com/2017/09/04/joseph-campbell-and-the-way-love-shaped-the-west/
+
+https://gynocentrism.com/2021/01/31/joseph-campbell-on-courtly-love-you-cant-call-it-just-an-aristocratic-game/
+
+https://www.jcf.org/post/the-power-of-love-story
+
+...
+
+Here:     
+https://tomtomrant.wordpress.com/2014/01/19/love-medieval-and-modern-in-tristan-and-isolde/     
+
+
+"On the return voyage, Tristan and Isolde accidentally drink a magic love potion. Back in Cornwall, Isolde is married to King Mark but Tristan and Isolde are so passionately in love that they cannot resist continuing their illicit lovemaking behind Mark’s back."
+
+"Many ‘Tristan’ authors, including Béroul, use the love potion as an excuse for the lovers’ scandalous behaviour. It was “‘because of the potion we drank at sea’” explains Iseut in Béroul (2207).[29] Such excuses are unacceptable for Gottfried. Instead, he ensures that Tristan and Isolde are in love well before they drink the potion. The potion still has a profound effect, but that effect seems to consist of properly recognising their love for each other, rather than causing that love:[30] “Now that their shyness was over they gloried and revelled in their intimacy, and this was wise and sensible” (204). Furthermore, Tristan is continually performing courageous deeds which not only spare Isolde much grief, but suggest, along with their shared passion for poetry and music, that Tristan is her rightful ‘other half’. It is he who shares an intimate personal connection with Isolde rather than King Mark, who has never met her. Gottfried’s picture of Mark as encapsulating bureaucratic honour without love is driven home when Mark unknowingly sleeps with Isolde’s cousin Brangane on his wedding night – and does not notice. “To him one woman was as another,” Gottfried wryly remarks (208)."
+
+
