@@ -41,7 +41,7 @@ The Elementary Particles of Metaphors Meta John 1:1
 
 Ideas on what to merge into the clusterfuck above, more thoughts not yet put into the gumbo:
 
-1. "The Gods Must Be Crazy" signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology?
+1. "The Gods Must Be Crazy" https://www.youtube.com/shorts/rgE80tMWbIU signals from above metaphors? Message in a Coke Bottle metaphors? Air Force One bottle drop? Bottle Episode media ecology? Pirate Rum and Coke, Sailor Jerry's? 
 
 2. Audience squares won't get it. This is a repeating sign-wave oscilloscope message, not a square wave, PCM encoding.
 
@@ -176,6 +176,8 @@ Ideas on what to merge into the clusterfuck above, more thoughts not yet put int
 67. "Lost Irish Whiskey: This brand was co-founded by an Irish whiskey expert named Tim Herlihy. The whiskey's concept is centered around the Irish diaspora worldwide and features casks sourced from six different continents to symbolize Irish people living in those areas."
 
 68. Sign In Stranger Steely Dan. Zombie hive mind. "Scurvy brother", Pirate Lady / Pirate Sister.
+
+69. "Cesspool" "social media" - February 15, 2025 statement by Vince Gillian to the writers guild.
 
 &nbsp;
 
