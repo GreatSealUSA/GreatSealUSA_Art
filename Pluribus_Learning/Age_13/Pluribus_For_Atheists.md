@@ -52,3 +52,52 @@ A world famous Internet blogger published her book October 8, 2013. One decade b
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, [I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Final Page of Part One.](https://www.google.com/books/edition/I_Am_Malala/U70sgPyfjDAC?hl=en&gbpv=1&dq=%E2%80%9CThe+boys+learn+the+Quran+by+heart,+rocking+back+and+forth+as+they+recite.%22&pg=PT100&printsec=frontcover)
 
 “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― ملاله یوسفزۍ, [I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013. *Page Number Not Located*.](https://www.google.com/books/edition/I_Am_Malala/U70sgPyfjDAC?hl=en&gbpv=1&dq=%E2%80%9CIf+Christians,+Hindus+or+Jews+are+really+our+enemies,+as+so+many+say,+why+are+we+Muslims+fighting+with+each+other%3F%E2%80%9D&pg=PT193&printsec=frontcover)
+
+“I raise up my voice - not so I can shout but so that those without a voice can be heard... we cannot succeed when half of us are held back.” ― ملاله یوسفزۍ OPERA_A [Shoot her down, she did not Fall](https://www.youtube.com/watch?v=JRfuAukYTKg)! 2,097,945,654 views December 20, 2011
+
+* “Science is not only compatible with spirituality; it is a profound source of spirituality. When we recognize our place in an immensity of light‐years and in the passage of ages, when we grasp the intricacy, beauty, and subtlety of life, then that soaring feeling, that sense of elation and humility combined, is surely spiritual. So are our emotions in the presence of great art or music or literature, or acts of exemplary selfless courage **such as those** of Mohandas Gandhi or Martin Luther King, Jr. The notion that science and spirituality are somehow mutually exclusive does a disservice to both.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995. ToDo: page number
+    * ToDo: transcript of MLK Jr Church speech by Malala, about her very virgin speaking in a Church. in USA.
+
+&nbsp;
+
+# Eden? Of Course Not!
+
+&nbsp;
+
+CAMPBELL: Unnameable. Unnameable. It is transcendent of all names.
+
+MOYERS: God?
+
+CAMPBELL: “God” is an ambiguous word in our language because it appears to refer to something that is known. But the transcendent is unknowable and unknown. God is transcendent, finally, of anything like the name “God.” God is beyond names and forms. Meister Eckhart said that the ultimate and highest leave-taking is leaving God for God, leaving your notion of God for an experience of that which transcends all notions.
+The mystery of life is beyond all human conception. Everything we know is within the terminology of the concepts of being and not being, many and single, true and untrue. We always think in terms of opposites. But God, the ultimate, is beyond the pairs of opposites, that is all there is to it.
+
+MOYERS: Why do we think in terms of opposites?
+
+CAMPBELL: Because we can’t think otherwise.
+
+MOYERS: That’s the nature of reality in our time.
+
+CAMPBELL: That’s the nature of our experience of reality.
+
+MOYERS: Man-woman, life-death, good-evil—
+
+CAMPBELL: —I and you, this and that, true and untrue—every one of them has its opposite. But mythology suggests that behind that duality there is a singularity over which this plays like a shadow game. “Eternity is in love with the productions of time,” says the poet Blake.
+
+MOYERS: What does that mean, “Eternity is in love with the productions of time”?
+
+CAMPBELL: The source of temporal life is eternity. Eternity pours itself into the world. It is a basic mythic idea of the god who becomes many in us. In India, the god who lies in me is called the “inhabitant” of the body. To identify with that divine, immortal aspect of yourself is to identify yourself with divinity.
+
+Now, eternity is beyond all categories of thought. This is an important point in all of the great Oriental religions. We want to think about God. God is a thought. God is a name. God is an idea. But its reference is to something that transcends all thinking. The ultimate mystery of being is beyond all categories of thought. As Kant said, the thing in itself is no thing. It transcends thingness, it goes past anything that could be thought. The best things can’t be told because they transcend thought. The second best are misunderstood, because those are the thoughts that are supposed to refer to that which can’t be thought about. The third best are what we talk about. And myth is that field of reference to what is absolutely transcendent.
+
+MOYERS: What can’t be known or named except in our feeble attempt to clothe it in language.
+
+CAMPBELL: The ultimate word in our English language for that which is transcendent is God. But then you have a concept, don’t you see? You think of God as the father. Now, in religions where the god or creator is the mother, the whole world is her body. There is nowhere else. The male god is usually somewhere else. But male and female are two aspects of one principle. The division of life into sexes was a late division. Biologically, the amoeba isn’t male and female. The early cells are just cells. They divide and become two by asexual reproduction. I don’t know at what levels sexuality comes in, but it’s late. That’s why it’s absurd to speak of God as of either this sex or that sex. The divine power is antecedent to sexual separation.
+
+MOYERS: But isn’t the only way a human being can try to grope with this immense idea to assign it a language that he or she understands? God, he, God, she —
+
+CAMPBELL: Yes, but you don’t understand it if you think it is a he or a she. The he or a she is a springboard to spring you into the transcendent, and transcendent means to “transcend,” to go past duality. Everything in the field of time and space is dual. The incarnation appears either as male or as female, and each of us is the incarnation of God. You’re born in only one aspect of your actual metaphysical duality, you might say. This is represented in the mystery religions, where an individual goes through a series of initiations opening him out inside into a deeper and deeper depth of himself, and there comes a moment when he realizes that he is both mortal and immortal, both male and female.
+
+MOYERS: Do you think there was such a place as the Garden of Eden?
+
+CAMPBELL: Of course not. 
