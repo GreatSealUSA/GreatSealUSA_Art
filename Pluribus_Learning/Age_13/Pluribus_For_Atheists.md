@@ -58,6 +58,8 @@ A world famous Internet blogger published her book October 8, 2013. One decade b
 * “Science is not only compatible with spirituality; it is a profound source of spirituality. When we recognize our place in an immensity of light‐years and in the passage of ages, when we grasp the intricacy, beauty, and subtlety of life, then that soaring feeling, that sense of elation and humility combined, is surely spiritual. So are our emotions in the presence of great art or music or literature, or acts of exemplary selfless courage **such as those** of Mohandas Gandhi or Martin Luther King, Jr. The notion that science and spirituality are somehow mutually exclusive does a disservice to both.”
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995. ToDo: page number
     * ToDo: transcript of MLK Jr Church speech by Malala, about her very virgin speaking in a Church. in USA.
+    * “We liked to be known as the clever girls. When we decorated our hands with henna for holidays and weddings, we drew calculus and chemical formulae instead of flowers and butterflies.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
 
 &nbsp;
 
