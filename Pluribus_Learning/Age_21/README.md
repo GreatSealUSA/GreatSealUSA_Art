@@ -55,6 +55,6 @@ Hello, hello, heaven
 ## Stage 2
 
 https://youtu.be/cz2CAtExXgQ?t=66     
+22,640,567 views November 6, 2014     
 
 Your personal climb!    
-
