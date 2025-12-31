@@ -40,3 +40,15 @@ CAMPBELL: We need myths that will **identify the individual not with his local g
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about. I carry a copy of the Great Seal in my pocket in the form of a dollar bill. Here is the statement of the ideals that brought about the formation of the United States. Look at this dollar bill. Now here is the Great Seal of the United States. Look at the pyramid on the left. 
+
+&nbsp;
+
+# October 8, 2013: Swat Valley Pakistan
+
+&nbsp;
+
+A world famous Internet blogger published her book October 8, 2013. One decade before October 7, 2023 in the Levant.
+
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, [I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Final Page of Part One.](https://www.google.com/books/edition/I_Am_Malala/U70sgPyfjDAC?hl=en&gbpv=1&dq=%E2%80%9CThe+boys+learn+the+Quran+by+heart,+rocking+back+and+forth+as+they+recite.%22&pg=PT100&printsec=frontcover)
+
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― ملاله یوسفزۍ, [I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013. *Page Number Not Located*.](https://www.google.com/books/edition/I_Am_Malala/U70sgPyfjDAC?hl=en&gbpv=1&dq=%E2%80%9CIf+Christians,+Hindus+or+Jews+are+really+our+enemies,+as+so+many+say,+why+are+we+Muslims+fighting+with+each+other%3F%E2%80%9D&pg=PT193&printsec=frontcover)
