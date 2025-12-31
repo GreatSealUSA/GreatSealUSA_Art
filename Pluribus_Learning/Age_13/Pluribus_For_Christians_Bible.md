@@ -15,7 +15,7 @@ Bible verse "1 John 4:20"
 
 American Reformation, USA reformation of Bible
 
-1. Year 1820 Founding Father Thomas Jefferson
+1. Year 1820 Founding Father Thomas Jefferson. An AMERICAN Bible, not King James dictatorship Bible!
 
 2. Sunday, February 28, 1954. Expounding on Biblical "1 John 4:20" verse. Dr. Martin Luther King Jr. American teacher.
 
