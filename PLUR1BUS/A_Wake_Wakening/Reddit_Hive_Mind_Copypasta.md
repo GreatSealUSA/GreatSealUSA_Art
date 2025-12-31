@@ -3,11 +3,7 @@ In the spirit of:
 https://old.reddit.com/r/copypasta/comments/6qp86b/to_be_fair_you_have_to_have_a_very_high_iq_to/     
 July 31, 2017       
 
-# Copy Here A
-
 To be fair, you have to have a very high IQ to understand Rick and Morty. The humor is extremely subtle, and without a solid grasp of theoretical physics most of the jokes will go over a typical viewer's head. There's also Rick's nihilistic outlook, which is deftly woven into his characterisation - his personal philosophy draws heavily from Narodnaya Volya literature, for instance. The fans understand this stuff; they have the intellectual capacity to truly appreciate the depths of these jokes, to realize that they're not just funny- they say something deep about LIFE. As a consequence people who dislike Rick and Morty truly ARE idiots- of course they wouldn't appreciate, for instance, the humour in Rick's existencial catchphrase "Wubba Lubba Dub Dub," which itself is a cryptic reference to Turgenev's Russian epic Fathers and Sons I'm smirking right now just imagining one of those addlepated simpletons scratching their heads in confusion as Dan Harmon's genius unfolds itself on their television screens. What fools... how I pity them. 😂 And yes by the way, I DO have a Rick and Morty tattoo. And no, you cannot see it. It's for the ladies' eyes only- And even they have to demonstrate that they're within 5 IQ points of my own (preferably lower) beforehand.
-
-# END Copy Here A
 
 &nbsp;
 
@@ -20,6 +16,7 @@ To be fair, you have to have a very high IQ to understand Rick and Morty. The hu
 Metaphors of Carol author, drunk authoring, Helen publishing. Spirit ghosts, spirit drinks.   
 Adapted copypasta version 0.1.F    
 
+# Copy Here A
 
 To be fair, Helen at minute [22](https://science.nasa.gov/exoplanet-catalog/kepler-22b/) of Episode One said that in graduate school she struggled with James Joyce's book. The on-screen clock-[watch](https://old.reddit.com/r/interstellar/comments/10kz6kt/recently_acquired_the_murph_watch_a_daily/) upsidedownside counting timers at the Zero Hour in the [bar](https://youtu.be/5XcKBmdfpWs?t=88) until [smoke](https://youtu.be/5XcKBmdfpWs?t=33) outside breaks, 78 seconds single-stranded 'NA, are a Skeleton Key.
 The Pluribus TV viewer has to put down the [iPhone second screen](https://www.theguardian.com/tv-and-radio/2025/jan/17/not-second-screen-enough-is-netflix-deliberately-dumbing-down-tv-so-people-can-watch-while-scrolling) to have a very high reading comprehension to understand this ApplePlus show.
@@ -29,6 +26,8 @@ This is deep [space](https://youtu.be/K1b8AhIsSYQ?t=35) shit, not for cosmos cow
 The show creators are smirking right now just imagining one of those addlepated simpletons scratching their heads in confusion over *The Trinity Project*... as Vince Gilligans's island genius ["Word Copy Pasta Salads"](https://www.goodreads.com/quotes/96477-schizophrenia-may-be-a-necessary-consequence-of-literacy-p-32) processing of Joyce's writing [unfolds itself](https://www.wired.com/2011/07/pollock-physics/) on their touch screens. Fractal iterative storytelling; [Daft Punks afraid of Kepler-22b virtue-signaling](https://www.youtube.com/watch?v=ZbbTmR6Xaag); Wiki system nets and RNA decoding will at least learn some  Elvis appreciation.
 What pirate [ships of fools](https://youtu.be/K1b8AhIsSYQ?t=187)... how I pity them. 😂 Only a /r/TrueReddit user can understand the music started before the smoke breaking, that Helen fell off Carol's { [barstool, TV news](https://www.youtube.com/watch?v=5XcKBmdfpWs), ladder, waggon, touring }. I can't say it enough: you have to get [bomb](https://en.wikipedia.org/wiki/Hand_Grenade_\(cocktail\))ed like Carol's drinking to get this show!
 And, yes, by the way, I DO have a Jean Erdman animated [dancing tattoo](https://old.reddit.com/r/reddit.com/comments/65iby/futurama_benders_big_score_tattoo_binary_code/). And no, you cannot see it (private parts, part of a work in progress, not yet published). [Dancing coach](https://www.youtube.com/watch?v=WoiJVkdDbOo), on the booze bottles, how drunk for that tattoo? It's special reserve for the [ladies' eyes](https://theinfosphere.org/images/cache/5/5e/Amy%2527s_Obscene_Tattoo.html) only - And even *they* have to demonstrate that they're within 5 DUI license points of my own (preferably higher BAC) beforehand.
+
+# END Copy Here A
 
 &nbsp;
 
