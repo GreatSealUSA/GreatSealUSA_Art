@@ -8,6 +8,11 @@ To be fair, you have to have a very high IQ to understand Rick and Morty. The hu
 
 &nbsp;
 
+&nbsp;
+
+# December 2025 rebirth
+
+&nbsp;
 
 Metaphors of Carol author, drunk authoring, Helen publishing. Spirit ghosts, spirit drinks.   
 Adapted copypasta version 0.1.F    
