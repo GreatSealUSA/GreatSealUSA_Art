@@ -102,3 +102,34 @@ The tyranny of banal popularity that Putin / Surkov wields so well. People will 
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban
 
 Is that what Vince Gilligan is doing, to bypass the mindsets of "this sucks" censorship. By using RNA 78 seconds in the same way that love potion is used to bypass suppression and avoidance with choice marriage in Europe under the Roman Empire Catholic Church (before Martin Luther Germany). Audiences are attracted to Putin leadership since June 16, 2015. Kremlin hive mind. https://www.bbc.com/news/world-us-canada-45294192 THAT virus spreading. Not a science fiction VLA Kepler 22 virus, but the viral of hate thy neighbor https://www.bbc.com/news/world-us-canada-45294192 ... ... ... ... ... ... ... ...  [virus "cesspool of social media" February 15, 2025](../../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)
+
+###q WHAT THE FUCKING POINT OF IT ALL    
+
+The key to 50 million fables key is James Joyce, Minute 22 of Pluribus Pilot Episode. Helen's dialog about Joyce1
+
+https://www.youtube.com/watch?v=mIsWyOddU08      
+The Seeker (Unedited Version / Full-Length Remix)     
+229,440 views September 14, 2023      
+
+i ASKED LADY GAGA, i ASKED VINCE GILLIGAN!   
+I ASKED NINA PALEY!    https://www.youtube.com/watch?v=XO9FKQAxWZc       
+
+Censorship outpost in your brain!!! https://www.youtube.com/watch?v=XO9FKQAxWZc 86,943 views October 21, 2015
+      
+
+Love potion Troubadours censorship outpost in our brains!!!     
+
+I'm a really desperate man, I'm looking for me, we are looking at each other and we don't know what to do!!!
+
+The Day Die, the Finnegans Wake Funeral Wake.
+
+* "It was in 1776 that the thirteen states declared independence. The number thirteen is the number of transformation and rebirth." - 1988 book
+
+"The number thirteen is the number of transformation and **rebirth**." DEATH, RE-DEATH RE-BIRTH.
+
+https://www.youtube.com/watch?v=c3L1JRRPFIA     
+The Seeker (The Who) Roger Daltrey, Eddie Vedder, Simon Townshend, Loren Gold, Billy Nicholls     
+229,446 views  November 4, 2022     
+
+That song is PLURIBUS We The People, stuck, uncensored.
+
