@@ -12,3 +12,6 @@ This is beyond crisis
 
 2. Saturday October 7, 2023 is at the core of this crisis the equation describes!
 
+3. Half + Half = Whole. 50% + 50% = 100%! This is WORLD WIDE, out of Africa concern of the pyramid on the Nile river!
+
+
