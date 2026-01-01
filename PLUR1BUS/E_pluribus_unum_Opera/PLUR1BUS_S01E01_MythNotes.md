@@ -29,3 +29,7 @@ Some of the Pluribus opening scenes are right out of viral video clips from vira
 # Carl Sagan, Cosmos, New Mexico
 
 "Our ancestors built devices to measure the passing of the seasons. In Chaco Canyon, in New Mexico, there is a great roofless ceremonial kiva or temple, dating from the eleventh century. On June 21, the longest day of the year, a shaft of sunlight enters a window at dawn and slowly moves so that it covers a special niche. But this happens only around June 21. I imagine the proud Anasazi people, who described themselves as “The Ancient Ones,” gathered in their pews every June 21, dressed in feathers and rattles and turquoise to celebrate the power of the Sun. They also monitored the apparent motion of the Moon: the twenty-eight higher niches in the kiva may represent the number of days for the Moon to return to the same position among the constellations. These people paid close attention to the Sun and the Moon and the stars." - Carl Sagan, Cosmos
+
+* the 78-second Pluribus signal detected in New Mexico... "originated from Kepler-22b itself much earlier, likely around the year 1425 AD in Earth's time, as the signal travels 600 light-years"
+
+* "The most well-known Anasazi (Ancestral Puebloan) ritual site in New Mexico associated with the June 21st summer solstice is the Sun Dagger site on Fajada Butte in Chaco Canyon. This site dates to the main period of occupation and construction in Chaco Canyon, which was approximately 900 to 1150 CE."
