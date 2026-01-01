@@ -16,7 +16,7 @@ a writer speaking to a room full of writers, I have a proposal...
 
 ## "God Help *Us*"
 
-"We Is *Us*", Pluribus Pilot Episode.   
+["We Is *Us*"](https://en.wikipedia.org/wiki/We_Is_Us), Pluribus Pilot Episode.   
 
 https://youtu.be/TkteSxVIM1A?t=713     
 82,805 views October 23, 2008     
