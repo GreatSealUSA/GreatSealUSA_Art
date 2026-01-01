@@ -20,7 +20,7 @@ HDP topic, the title of the Wikipedia / Pluribus Episode title... is about *food
 
 ### Rick Roderick on Wikipedia power ! Knowledge
 
-I experienced of a *Johnny on the spot* less than 4 minutes watching the page like an eagle with instant notification to remove immigrant Spanish langauge metaphors from the page.
+I experienced of a *Johnny on the spot* less than 4 minutes watching the page like an eagle with instant notification to remove immigrant Spanish language metaphors from the page.
 
 Texan Rick Roderick, Duke University:
 
