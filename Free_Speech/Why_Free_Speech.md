@@ -6,7 +6,7 @@ John 1:1 Bible verse. The Church as an organization claimed the origin of langua
 
 ## Responsibility 
 
-We must teach media cults. Echo-chambers, filter-bubbles, cults of meaning. We musts educate all people, starting [at age 12](../Pluribus_Learning/Age_13) and graduating [at age 21](../Pluribus_Learning/Age_21), as to how images / words / language / manipulation / art / symbols / marketing / advertising / military systems can operate on the mind.
+We must teach media cults. Echo-chambers, filter-bubbles, cults of meaning. We must educate all people (*Pluribus*, All of Us, We The People), starting [at age 12](../Pluribus_Learning/Age_13) and graduating [at age 21](../Pluribus_Learning/Age_21), as to how images / words / language / manipulation / art / symbols / marketing / advertising / military systems can operate on the mind.
 
 Free speech without educated population (everyone, all) is open to predatory Edward Bernays students. Predatory Cambridge Analytica. Predatory Rupert Murdoch media systems. Predatory cults of symbols / art / messages.
 
