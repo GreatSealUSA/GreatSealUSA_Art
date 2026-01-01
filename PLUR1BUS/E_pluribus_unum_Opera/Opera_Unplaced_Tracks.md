@@ -578,3 +578,5 @@ The Alan Parsons Symphonic Project "Games People Play" (Live in Colombia)
 Children all grown up, no more childhood   
 
 I THINK this track is already here, the studio video. Twice is good!
+
+* "Neil Postman, in The Disappearance of Childhood, argued that media, especially television, erodes childhood by exposing children to adult content, leading to cynicism, premature knowledge without context, and a loss of wonder, leaving us with "children who are given answers to questions they never asked" and ultimately "without children". Key quotes highlight this shift: curiosity becomes arrogance, children rely on "news from nowhere," and parents must rebel against culture to preserve childhood."
