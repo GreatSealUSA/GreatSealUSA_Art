@@ -19,6 +19,7 @@ a writer speaking to a room full of writers, I have a proposal...
 "We Is *Us*", Pluribus Pilot Episode.   
 
 https://youtu.be/TkteSxVIM1A?t=713     
+82,805 views October 23, 2008     
 
 cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. **God help us**, they become *aspirational*! So [maybe](https://youtu.be/e7olfvXs2R4?t=140) what the [world needs *now*](https://www.youtube.com/watch?v=FfHAs9cdTqg) are some good old fashion
 
