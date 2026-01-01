@@ -263,3 +263,17 @@ https://youtu.be/Q86BVlLrx-Q?t=1170 "It is love all the way down", [Interstellar
 https://youtu.be/Q86BVlLrx-Q?t=1313 "What happens when you broadcast a paradox into a hive mind" - yha, that's the core theme of the numbers 1132 in James Joyce's entire body of work. 
 
 * "There was that same number again, 1132, right out of the Good Book! **Joyce had taken that paradox of the Christian faith** as the motto of the greatest masterwork of his life. And there he describes ruthlessly the depths of the private and public **monstrosities of human life and action** in the utterly sinful course of human history. It’s all there — **told with love**." - [*Power of Myth* book year 1988, page 145](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA145&dq=%22Can+Westerners+grasp+the+mystical+experience+that+leaves+theology+behind?%22&hl=en&newbks=1&newbks_redir=1&sa=X), Skywalker Ranch California for science fiction fandoms
+
+&nbsp;
+
+# December 31, 2025
+
+https://www.youtube.com/watch?v=0YNKvNOwdd4      
+Frequency 8613 Is 7 Billion **People Screaming** | Pluribus Theory    
+5,404 views December 31, 2025     
+
+* OPERA_A December 11, 1987 https://www.youtube.com/watch?v=8qxDBiiVjlQ John Mellencamp - Check It Out. 
+11,375,657 views October 5, 2009. Lyrics: "A million young poets screaming out their words to a **world full of people** just living to be heard! Future generations, riding on the highways that we built I hope they have a better understanding.."
+
+
+
