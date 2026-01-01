@@ -144,3 +144,5 @@ Red Letter Media
 https://youtu.be/GfsDYu7OKns?t=1363     
 Pluribus highly recommended    
 Not slow, episodes fly by     
+
+https://youtu.be/GfsDYu7OKns?t=1975      
