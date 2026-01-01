@@ -6,7 +6,7 @@ February 15, 2025
 https://youtu.be/TkteSxVIM1A?t=648   
 
 10:48        
-there's no simple answer for how *we* might change that. Though, if there were, I bet it would have *something to do with climbing up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
+there's no simple answer for how *we* might change that. Though, if there were, I bet it would have *something to do with [climbing](https://youtu.be/J4_wXPZ1Bnk?t=102) up out of* the cesspool that is social media and [actually listening](https://youtu.be/QkF3oxziUI4?t=427) to each *other*.
 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse. As
@@ -20,7 +20,7 @@ a writer speaking to a room full of writers, I have a proposal...
 
 https://youtu.be/TkteSxVIM1A?t=713     
 
-cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. **God help us**, they become aspirational! So maybe what the world needs now are some good old fashion
+cool. When that happens fictional bad guys stop being the cautionary tales that they were intended to to be. **God help us**, they become *aspirational*! So [maybe](https://youtu.be/e7olfvXs2R4?t=140) what the world needs now are some good old fashion
 
 12:07       
 greatest Generation types who give more than they take. Who **think that kindness tolerance and sacrifice aren't strictly for Chumps!**
