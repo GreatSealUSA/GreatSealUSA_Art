@@ -8,6 +8,8 @@ https://en.wikipedia.org/w/index.php?title=HDP_(Pluribus)&diff=prev&oldid=133063
 
 I am not going to fight it, a powerful Wikipedia Admin is clearly instantly being notified and guarding the page for Pluribus TV show. Masked I.C.E. like MAGA USA against Great Seal of the United States of America multi-lingual metaphors. 
 
+OPERA_A can't associate metaphorical meanings of tin can alley visuals of eating right out of can, drinking right out of the bottle, to the HDP food-source title of the episode. https://www.youtube.com/watch?v=AnLo01m8y04 "Thick as a Brick (Edit #1) (2001 Remaster)" - which kitchen sink is Carol's sperm in with the eggs in the freezer of the kitchen? 1997 Remaster, edited, post Y2K. Sandcastles Spanish virtues washed away like sperm spit into the sink basin. Your I.C.E. wise men, wisecracking anti-immigrant men... the LOVE is so far away! This is a "Bad dream" of Finnegans Wake anti-Woke year 1923, "Finn's Hotel", you shake your head... 840,204 views November 6, 2014
+
 The character in the show literally eats dog food from a can. see: https://old.reddit.com/r/pluribustv/comments/1p7pcui/whats_up_with_the_dog_food/
 
 HDP topic, the title of the Wikipedia / Pluribus Episode title... is about *food source*, so associating his dog food eating with dog metaphors is not a stretch at all.
