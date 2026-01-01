@@ -23,3 +23,9 @@ https://www.youtube.com/watch?v=YdizZtOddC8
 # Viral video clips from viral musicians
 
 Some of the Pluribus opening scenes are right out of viral video clips from viral musicians. https://www.youtube.com/watch?v=0kDAzYjbugo "TMZ got their hands on a video of singer Ariana Grande appearing to lick a donut that she didn't pay for, just seconds before proclaiming that she hates America." A woman was even the one in the Vince Gilligan TV show...
+
+&nbsp;
+
+# Carl Sagan, Cosmos, New Mexico
+
+"Our ancestors built devices to measure the passing of the seasons. In Chaco Canyon, in New Mexico, there is a great roofless ceremonial kiva or temple, dating from the eleventh century. On June 21, the longest day of the year, a shaft of sunlight enters a window at dawn and slowly moves so that it covers a special niche. But this happens only around June 21. I imagine the proud Anasazi people, who described themselves as “The Ancient Ones,” gathered in their pews every June 21, dressed in feathers and rattles and turquoise to celebrate the power of the Sun. They also monitored the apparent motion of the Moon: the twenty-eight higher niches in the kiva may represent the number of days for the Moon to return to the same position among the constellations. These people paid close attention to the Sun and the Moon and the stars." - Carl Sagan, Cosmos
