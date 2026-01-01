@@ -567,3 +567,14 @@ Lyrics: "I sailed my ship of safety till I sank it. I'm crawling on your shores"
 
 Carol, lyrics: "I stopped by the bar at 3 A.M. to seek solace in a bottle or possibly a friend. And I woke up with a headache like my head against a board. Twice as cloudy as I'd been the night before and I went in seeking clarity"
 
+&nbsp;
+
+# TRACK: Live Games People Play 
+
+https://www.youtube.com/watch?v=xFGuKtEDW7M     
+The Alan Parsons Symphonic Project "Games People Play" (Live in Colombia)     
+1,588,975 views January 28, 2020      
+
+Children all grown up, no more childhood   
+
+I THINK this track is already here, the studio video. Twice is good!
