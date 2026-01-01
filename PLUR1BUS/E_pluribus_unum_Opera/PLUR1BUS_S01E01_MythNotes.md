@@ -32,4 +32,4 @@ Some of the Pluribus opening scenes are right out of viral video clips from vira
 
 * the 78-second Pluribus signal detected in New Mexico... "originated from Kepler-22b itself much earlier, likely around the year 1425 AD in Earth's time, as the signal travels 600 light-years"
 
-* "The most well-known Anasazi (Ancestral Puebloan) ritual site in New Mexico associated with the June 21st summer solstice is the Sun Dagger site on Fajada Butte in Chaco Canyon. This site dates to the main period of occupation and construction in Chaco Canyon, which was approximately 900 to 1150 CE."
+* "The most well-known Anasazi (Ancestral Puebloan) ritual site in New Mexico associated with the June 21st summer solstice is the Sun Dagger site on Fajada Butte in Chaco Canyon, New Mexico. This site dates to the main period of occupation and construction in Chaco Canyon, which was approximately 900 to 1150 CE."
