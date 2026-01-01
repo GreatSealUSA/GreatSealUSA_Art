@@ -133,3 +133,14 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pxe1va/banana_teasertheory/nw
 In larger https://youtu.be/kFrffEktluo?t=3018    
 
 Episode 3 titled "Grenade," aired on Apple TV on Friday, November 14, 2025 she is describing luxury ice hotel in November 7 interview.   
+
+&nbsp;
+
+&nbsp;
+
+# Half In the Bag 
+
+Red Letter Media      
+https://youtu.be/GfsDYu7OKns?t=1363     
+Pluribus highly recommended    
+Not slow, episodes fly by     
