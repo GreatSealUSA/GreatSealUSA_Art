@@ -10,7 +10,7 @@ ideas, Unix Linux:
 
         #!/bin/bash
 
-Purpose of the Shebang Line
+"Purpose of the *Shebang Line*"
 
 "The Whole She-bang"   
 "She bashes, domestic violence"   
