@@ -6,7 +6,9 @@ ToDo: Link GitHub markdown page in this project
 
 Symbolism of 4 missing getting back into he 13 all (PLuribus) stars above in space, outer-space pulling light up to the 13 stars
 
-https://youtu.be/yCTxqM-aLtE?list=PLcYhoGnK9I9T-xAaCAUxfXspcL-fEk35l&t=111
+https://youtu.be/yCTxqM-aLtE?list=PLcYhoGnK9I9T-xAaCAUxfXspcL-fEk35l&t=111     
+133,313,844 views August 13, 2021       
+
 
 See the video has 4 missing stars coming together, metaphors, to the step 13 thinking of eye at the top of the steps of the pyramid.
 
