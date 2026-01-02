@@ -6,6 +6,8 @@ https://www.youtube.com/watch?v=tt4cR9szMS8
 America - You Can Do Magic    
 70,383,082 views July 17, 2019       
 
+* Lyrics: "I couldn't retrieve it! Said to myself: *What's it All about?*"
+
 Who would Believe it, With a WORD Pluribus, you dry We The People's tears!
 
 You know... The Tree of Knowledge, you can put out the fire!    
