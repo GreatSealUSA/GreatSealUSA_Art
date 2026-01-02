@@ -21,7 +21,7 @@ https://www.youtube.com/watch?v=V43K5yFn5GM
 
 &nbsp;
 
-# Evrything is October 7, 1996
+# Everything is October 7, 1996
 
 Neil Postman's media ecology book o telvision shows, Pluribus television shows, was published in **November 25, 1985** or so. School season, Thanksgiving 2025 time it seems.
 
