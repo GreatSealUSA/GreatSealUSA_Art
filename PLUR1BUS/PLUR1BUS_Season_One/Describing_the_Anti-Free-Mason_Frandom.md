@@ -48,3 +48,14 @@ John Lennon's *Imagine* song is openly mocked in January 2026 in Donald Trump / 
 
 1983 about the mocking of American Dreams of betterment, Pluribus dreams being mocked 'we call him a dreamer' lyrics of 1983. And that is just a couple years before #3 in the list above, book in year 1985 came out.
 
+&nbsp;
+
+# Laughed Away Free Masons
+
+* "Love (understood **as the desire of good for another) is in fact so unnatural a phenomenon** that it can scarcely repeat itself, the soul being unable to become virgin again and not having energy enough to cast itself out again into the ocean of another's soul."  - Notes (year 1913) made by James Joyce for his play Exiles
+
+...
+
+* "America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover" - Neil Postman
+
+* "But the Founding Fathers did not foresee that tyranny by government might be superseded by another sort of problem altogether, namely, the corporate state, which through television now controls the flow of public discourse in America" - pages 138-139 of the book. It also appears on page 157 in some editions
