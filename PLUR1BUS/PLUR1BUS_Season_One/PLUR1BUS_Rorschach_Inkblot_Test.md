@@ -33,7 +33,7 @@ SOUND TRACK FOR THOSE SO INCLINED: The three people I admire most, took the last
 
 The three people who are in the USA all have no friends or family. One guy is just in Vegas with hive mind strangers. Carol doesn't care about any of her family or any person she knows. Now this guy travels all the way to ABQ alone to meet Carol. But he doesn't care or know about a single person.
 
-What are we to believe here? That Carol's pirate romance stories were essential to life on Earth? If Carol had never wrote those books, exactly what does Carol do that that the world needs?
+What are we to believe here? That Carol's pirate romance stories were essential to life on Earth? If Carol had never wrote those books, exactly what does Carol do that the world needs?
 
 * "Nihilism is a family of philosophical views arguing that life is meaningless, that moral values are baseless, or that knowledge is impossible. Thus, such views reject the basis of certain ideas."
 
