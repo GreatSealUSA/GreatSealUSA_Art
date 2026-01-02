@@ -48,7 +48,7 @@ Which puts me back to season one being a Rorschach Inkblot Test.
 
 Which is the only reason I am here on Reddit. Because the Dollar Bill, the currency that every American has held in their hands or in their pocket... has that word "Pluribus" on it from Free Masons ideas from the year 1776. And I have traveled all over the USA and I have never met a single American, not even on Reddit or Twitter or Facebook who ever asked what the word Pluribus meant.
 
-or why isn't there a pyramid monument in Washington D.C. with an eye at the top of the pyramid. Las Vegas has a hotel like a pyramid, but not one person has any curiosity at all to bother to ask even the most basic questions about what the Free Masons were trying to say with the Latin words and eagle and pyramid and other symbols.
+... Or *asked why* isn't there a pyramid monument in Washington D.C. with an eye at the top of the pyramid. Las Vegas has a hotel like a pyramid, but not one person has any curiosity at all to bother to ask even the most basic questions about what the Free Masons were trying to say with the Latin words and eagle and pyramid and other symbols.
 
 People simply do not know. Total ignorance. A wildcard. Rorschach Inkblot Test. What's the meaning? You won't find a "Reddit Today I Learned" and it is on every fucking Dollar Bill.
 
