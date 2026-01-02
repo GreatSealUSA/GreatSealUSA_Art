@@ -36,7 +36,7 @@ What are we to believe here? That Carol's pirate romance stories were essential 
 
 * "Nihilism is a family of philosophical views arguing that life is meaningless, that moral values are baseless, or that knowledge is impossible. Thus, such views reject the basis of certain ideas."
 
-Is this intentional on the part of the show creators, or did they just end up crating 9 episodes that painted such a story on the way to a long wait until another 9 episodes for a second season.
+Is this intentional on the part of the show creators, or did they just end up creating 9 episodes that painted such a story on the way to a long wait until another 9 episodes for a second season.
 
 I don't think this show is entertainment. I think season one of Pluribus is a work of art like Rorschach Inkblot Test. How the audience reacts to the Rorschach images, how people react to the show, is very useful. You can turn it into all kinds of education topics about storytelling.
 
