@@ -18,7 +18,7 @@ Carol implies that wild animals break into buildings to eat art work. People are
 
 The whole ceremony of the girl in Peru was work for them, but as soon as she was done joining the hive, they all stopped like they got off work for the weekend. What is everyone doing in the hive mind? All these empty offices and houses... 
 
-It is implied that all entertainment is no longer important. Sports stars, actors, singers, writers, video game makers, tourism, casinos, hotels, television stations, Internet websites. All that labor and more is just gone. People aren't repairing their recreational cars and houses don't have wear and tear.Cooks no longer needed, meal time very simple now, eating the same food every day is no longer considered bad. 
+It is implied that all entertainment is no longer important. Sports stars, actors, singers, writers, video game makers, tourism, casinos, hotels, television stations, Internet websites. All that labor and more is just gone. People aren't repairing their recreational cars and houses don't have wear and tear. Cooks no longer needed, meal time very simple now, eating the same food every day is no longer considered bad. 
 
 Every doctor is now a world expert skill level and can jump skills instantly to fix a disease of injury. Schools and education are not obsolete. Freeing up even more labor and empty buildings. 
 
