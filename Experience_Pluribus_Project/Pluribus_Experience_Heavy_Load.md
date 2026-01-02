@@ -42,3 +42,12 @@ OPERA_A Heavy load, Jude, being John Lennon associated. https://www.youtube.com/
 
 19. Women's right to vote, why? That's the Great Seal USA dream values, ACTUAL PROGRESS. A blueprint for iteration progress, up the 13 steps and back to drawing board of ground level, then up 13 steps again.
 
+
+&nbsp;
+
+Finnegans Wake, in terms of page number, is 200 times pi or the number 628    
+To put it joycefully, Finnegans Wake is 628 piges in length. π * 200     
+Around a circle, around the globe, 200 times equations. Page 628 to Page 3 iterations.   
+Talk about carrying a heavy load, the entire world ;)   
+Singing singsong around the world, *It's a small World After All* metaphors of 628 pages.    
+OPERA_A https://www.youtube.com/watch?v=K0HSD_i2DvA around the rivers and streams, rainfall, falling, evaporating, to fall another place, re circulation of water and John 1:1 languages.  115,709,062 views October 1, 2021
