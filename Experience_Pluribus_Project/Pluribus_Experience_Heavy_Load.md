@@ -42,6 +42,8 @@ OPERA_A Heavy load, Jude, being John Lennon associated. https://www.youtube.com/
 
 19. Women's right to vote, why? That's the Great Seal USA dream values, ACTUAL PROGRESS. A blueprint for iteration progress, up the 13 steps and back to drawing board of ground level, then up 13 steps again.
 
+20. Jackson Brown, barricades of heaven, pages years from learning. age 13, age 21, age 35 progression
+
 
 &nbsp;
 
