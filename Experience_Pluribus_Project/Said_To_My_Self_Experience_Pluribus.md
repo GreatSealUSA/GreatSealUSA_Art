@@ -4,6 +4,7 @@
 
 https://www.youtube.com/watch?v=tt4cR9szMS8             
 America - You Can Do Magic    
+70,383,082 views July 17, 2019       
 
 Who would Believe it, With a WORD Pluribus, you dry We The People's tears!
 
