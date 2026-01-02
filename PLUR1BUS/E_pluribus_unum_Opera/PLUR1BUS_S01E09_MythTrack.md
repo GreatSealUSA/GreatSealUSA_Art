@@ -251,3 +251,10 @@ by the computer are as inaccessible to literate vision as the external world is 
 planet, ending "nature" in the older sense. **The new information technology will shortly encompass the entire astral system, harnessing its resources for terrestrial use**. The important thing is to realize
 that **electric information systems are live environments in the full organic sense. They alter our feelings and sensibilities**" - War and Peace in the Global Village, year 1968, page 35
 
+&nbsp;
+
+# TRACK: Sky Lodge lines
+
+Carol says "I can feel all of the good chemicals in my body"
+
+DOUBLE high metaphors. Famous song of Carol's home country, USA: https://www.youtube.com/watch?v=cOS5-n7dyj4 (lyrics: "Lost a friend, but kept friend memories") which fits Helen and Pluribus story. Lost Helen but kept Helen's memory on mountain with Pirate Lady.
