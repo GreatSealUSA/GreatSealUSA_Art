@@ -15,4 +15,4 @@ You, We, Us, All of Us, Pluribus can work together to put out the Runaway Russia
 
 * "The second is a cosmological dimension, the dimension with which science is concerned — showing you what the shape of the universe is, but **showing it in such a way** that the mystery again comes through. Today we tend to think that scientists have all the answers. But the great ones tell us, “No, we haven’t got all the answers. We’re telling you how it works — but what is it?” You strike a match, **what’s fire**? You can tell me about oxidation, but that doesn’t tell me a thing."
 
-Power Of Myth book, year 1988, page ????
+[The Power Of Myth book, year 1988, page thirty-nine](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA39&dq=%22what+is+it?%E2%80%9D+You+strike+a+match,+what%E2%80%99s+fire?%22&hl=en&newbks=1&newbks_redir=1&sa=X)
