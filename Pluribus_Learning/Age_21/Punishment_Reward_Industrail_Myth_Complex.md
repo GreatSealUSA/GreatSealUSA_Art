@@ -24,4 +24,4 @@ CONTEXT ASSERTION: Metaphors of climbing up and down (falling, iterating) the 13
 "**Maybe You've Been Brainwashed Too** is the only studio album by American alternative rock band New Radicals. Released on **October 20, 1998**, it is their only album release before disbanding in 1999."    
 https://en.wikipedia.org/wiki/Maybe_You%27ve_Been_Brainwashed_Too    
 
-"for some fourteen to twenty-one years" - 1988 book cited earlier on this page.
+"for some [fourteen](../Age_13/) to twenty-one years" - 1988 book cited earlier on this page.
