@@ -1,6 +1,6 @@
 # Episode Two: PLUR1BUS POTUS Seal
 
-As discussed last year, year 2025, the POTUS seal is missing 4 of 13 stars.
+As discussed last year, year 2025, the POTUS seal is missing 4 of 13 stars. Minute 37 of Episode TWO.
 
 ToDo: Link GitHub markdown page in this project
 
