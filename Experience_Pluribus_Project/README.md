@@ -23,4 +23,4 @@ lightning flashes, or a setting sun ignites the sky, or a deer is seen standing
 alerted, the exclamation "Ah!" may be uttered as a recognition of divinity.
 This suggests that **in the new mythology, which is to be of the whole
 human race**, the old Near Eastern desacralization of nature by way of a
-doctrine of the Fall will have been rejected" - Inner Reaches of Outer Space, year 1986
+doctrine of the Fall will have been rejected" - Inner Reaches of Outer Space, year 1986, book page 18
