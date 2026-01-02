@@ -12,7 +12,7 @@ https://youtu.be/yCTxqM-aLtE?list=PLcYhoGnK9I9T-xAaCAUxfXspcL-fEk35l&t=111
 
 See the video has 4 missing stars coming together, metaphors, to the step 13 thinking of eye at the top of the steps of the pyramid.
 
-Finnegans Wake Earwicker Public House (HCE house, Everybody Comes) drinking game, thunders, rivers throughout the song.
+Finnegans Wake Earwicker Public House (HCE house, Everybody Comes) drinking game, thunders, rivers throughout the song. Song lyrics: "Down the river, we're drunk, and all of our thumbs went up in the air Sung it in the wind, and sung to the thunder, rollin' over and over" - Page 628 Finnegans Wake. [GOTO Page 3](../E_pluribus_unum_Opera/zzrunme0.adb)
 
 ASSERT: Minute 22 of Episode One, **graduate school** of Helen about James Joyce. Minute 22 / Kepler 22 "00:00:00:00" countdown hour. All the counting on-screen timers pointing to James Joyce.
 
