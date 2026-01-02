@@ -58,6 +58,6 @@ We are living in a Rorschach Inkblot Test that everyone seems blind to. What wer
 
 I started asking that question in year 2009 and I never stopped asking that question. The ignorance is amazing. People wave the god damn USA red white and blue flag around every day and not one single person on Reddit has ever read one page in a book about what the Free Masons created with that pyramid and eagle and Latin language.
 
-If I had Vince Gilligan's talents, i would have made this show.
+If I had Vince Gilligan's talents, *I* would have made this television show.
 
-I have known what "PLURIBUS" means since year 1988, the year I graduated high school. But in all of Reddit, I can not find ONE SINGLE person who has read the books I read. Rorschach Inkblot Test
+I have known what "PLURIBUS" Latin word means since year 1988, the year I graduated high school. But in all of Reddit, I can not find ONE SINGLE person who has read the books I read. Rorschach Inkblot Test
