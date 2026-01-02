@@ -27,7 +27,7 @@ USA we have failed to educate minds for the Internet TCP/IP society. Eternal Sep
 
 The answer to these problems is not to *block communications* and prevent information delivery. People have to be able to recognize attractive fiction. Fiction addictions. Nonfiction does not outsell fiction storytelling. This self-awareness is essential at the [Age 13 threshold](/Pluribus_Learning/Age_13)
 
-It is this education of age 13 / age 21 thresholds that is core to this very GitHub project. We are NOT educating people.
+It is this education of [age 13 threshold](/Pluribus_Learning/Age_13) / age 21 thresholds that is core to this very GitHub project. We are NOT educating people.
 
 ChatGPT and Grok AI and other generative artificial systems can already induced self-harm in people! This isn't just a national issue of information warfare organized by humans! [The ELIZA effect has been witnessed since the 1960's at MIT university.LATE, year 1976 for people to recognize it: "I **had not realized** ... that extremely short exposures to a relatively simple computer program could induce powerful delusional thinking in quite normal people."](https://en.wikipedia.org/wiki/ELIZA_effect). The ELIZA effect is the newest fiction problem of Bible verse "1 John 4:20" crisis - teaching human history of this problem, comparative mythology (fiction vs. fiction comparisons) is ESSENTIAL! Not optional in a global information society!
 
