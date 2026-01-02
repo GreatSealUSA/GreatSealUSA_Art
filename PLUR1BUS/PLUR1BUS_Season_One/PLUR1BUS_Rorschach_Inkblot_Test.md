@@ -5,6 +5,10 @@
 Friday, January 2, 2026 morning USA      
 Saturday July 4, 2026 [in the park](https://www.youtube.com/watch?v=kqcwKnjMffw) *coming soon*!     
 
+NOT THE ONLY Rorschach TEST: [Bible_Book_Rorschach_Inkblot_Test.md](Bible_Book_Rorschach_Inkblot_Test.md)
+
+&nbsp;
+
 I still have no sense of certainty as to what this show intends. Clearly cliffhanger ending of season one was planned and we don't know how long it will be until the second season starts.
 
 The on-screen countdowns and characters all over the world make it very difficult to know that what we have been shown is to be taken at face value. There are loud in-show messages indicating that it may not be a traditional story and could be more of an experimental art project. That the entire show is some kind of lesson about how people read into stories different interpretations. The book tour opening, story within a story, is very complicated.
