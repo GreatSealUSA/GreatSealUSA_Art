@@ -1,4 +1,4 @@
-# Bible Book Rorschach Inkblot Test.md
+# Bible Book Rorschach Inkblot Test
 
 NOT THE ONLY Rorschach TEST: [PLUR1BUS_Rorschach_Inkblot_Test.md](PLUR1BUS_Rorschach_Inkblot_Test.md)
 
@@ -52,3 +52,18 @@ But while preparing a class one evening for my students in comparative mythology
 &nbsp;
 
 CONTEXT ASSERTION: Pluribus TV Season One places a heavy emphasis of countdown and countup timers. An on-screen clock ticking. The Zero Hour is in Episode One Minute 22. And the scene is in a Pubic House. And **graduate school** book topics are introduced, and one book to rule and measure all other books: James Joyce's Finnegans Wake.
+
+&nbsp;
+
+# Bible K.K.K. U.S.A.
+
+* "The Ku Klux Klan (KKK) has deep historical ties to a specific, exclusionary interpretation of white Protestant Christianity and appropriated the symbol of the cross for its own purposes of intimidation and terror. The practice of cross burning was not part of the original 19th-century Klan but was introduced in the 20th century, drawing on fictional depictions and being framed by the group's leaders as a religious ritual." - Google Search summary 2026-01-02 morning USA
+
+Bible Book Rorschach Inkblot Test. U.S.A K.K.K.
+
+KKK is another Bible Book Rorschach Inkblot Test
+
+What about **Bible verse "1 John 4:20"**, what does it say about hate? Bible Book Rorschach Inkblot Test
+
+[Cherry picking, nut picking.](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md)
+
