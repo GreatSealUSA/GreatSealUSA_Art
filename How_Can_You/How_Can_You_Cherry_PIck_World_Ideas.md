@@ -29,3 +29,9 @@ Indra's net of sparkle jewels of anywhere any goodness. See past *the superficia
 
 * "what’s might be being masked is economic interest. I mean this insight has belonged to our culture too. I think many of you will be familiar with the Joe Hills song “You’ll get pie in the sky when you die”, and there is a certain style of American religion; I call it the Billy Graham style. I don’t dislike Billy, but it is notable that Billy Graham, you know, plays golf with the Pharaoh. I mean that’s not like Moses leading his people out of bondage, I mean, Moses didn’t play golf with the Pharaoh and pray over the Pharaoh’s troops. It’s just a confusing thing when you see that… it’s not like the story exactly. Hard to imagine Billy Graham being crucified, although I have suggested it on occasion, ah… people don’t seem to listen. I try… I try…"
 * … "I am not saying there aren’t any religious figures that are significant in the 20th Century; there are magnificent ones like Ghandi, Martin Luther King, they appear as rare exceptions… rare exceptions. I mean, there people who still try to lead their people out of bondage; not everybody plays golf with the Pharaoh, but the suspicion hangs on the entire religious enterprise that it serves vested interests: economic interests." - Texan Rick Roderick https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
+
+&nbsp;
+
+OPERA_A Joe Hills song “You’ll get pie in the sky when you die” for Funeral Rituals and Wake Rituals and Woke Rituals. https://www.youtube.com/watch?v=N8xSXgZ4TrI 349,730 views October 6, 2008 Deadlysins209
+
+* "Lestrygonians" episode (Episode 8), Leopold Bloom observes other patrons at the Ormond bar eating a substantial meal: "Richie Goulding, Collis, Ward ate steak and kidney, steak then kidney, bite by bite of pie he ate" - [Page 258, James Joyce](https://en.wikisource.org/wiki/Page:Ulysses,_1922.djvu/261)
