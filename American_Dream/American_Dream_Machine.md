@@ -2,9 +2,10 @@
 
 Great Seal of the United States of America    
 Is a mental blueprint of a "Dream Machine"   
+PLURIBUS *Machines*, idealized reason thinking constructs.    
 
 Dream Machine    
-Machine for Cherry Picking and Importing Dreams    
+Machine for [Cherry Picking](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md) and Importing Dreams    
 Machine for Context Changing mythology public dream systems.   
 
 
