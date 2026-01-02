@@ -50,4 +50,4 @@ To put it joycefully, Finnegans Wake is 628 piges in length. π * 200
 Around a circle, around the globe, 200 times equations. Page 628 to Page 3 iterations.   
 Talk about carrying a heavy load, the entire world ;)   
 Singing singsong around the world, *It's a small World After All* metaphors of 628 pages.    
-OPERA_A https://www.youtube.com/watch?v=K0HSD_i2DvA around the rivers and streams, rainfall, falling, evaporating, to fall another place, re circulation of water and John 1:1 languages.  115,709,062 views October 1, 2021
+OPERA_A https://www.youtube.com/watch?v=K0HSD_i2DvA around the rivers and streams, rainfall, falling, evaporating, to fall another place, re circulation of water and John 1:1 languages. 115,709,062 views October 1, 2021 Many Tristans, many Isoldes, may Phoenix Park revivals.    
