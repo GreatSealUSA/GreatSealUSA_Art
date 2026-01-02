@@ -48,8 +48,10 @@ OPERA_A Heavy load, Jude, being John Lennon associated. https://www.youtube.com/
 &nbsp;
 
 Finnegans Wake, in terms of page number, is 200 times pi or the number 628    
-To put it joycefully, Finnegans Wake is 628 piges in length. π * 200     
+To put it joycefully, Finnegans Wake is 628 piges in length. [π](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md#american-pie-%CF%80) * 200     
 Around a circle, around the globe, 200 times equations. Page 628 to Page 3 iterations.   
 Talk about carrying a heavy load, the entire world ;)   
 Singing singsong around the world, *It's a small World After All* metaphors of 628 pages.    
 OPERA_A https://www.youtube.com/watch?v=K0HSD_i2DvA around the rivers and streams, rainfall, falling, evaporating, to fall another place, re circulation of water and John 1:1 languages. 115,709,062 views October 1, 2021 Many Tristans, many Isoldes, may Phoenix Park revivals.    
+
+Finnegans Wake is an example of Dublin Cherry Picking, an example of deep labor, to inspire We The People to work together in mutual progression of Livia Plurabelle.
