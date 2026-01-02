@@ -2,7 +2,8 @@
 
 &nbsp;
 
-Friday, January 2, 2025 morning USA   
+Friday, January 2, 2026 morning USA      
+Saturday July 4, 2026 [in the park](https://www.youtube.com/watch?v=kqcwKnjMffw) *coming soon*!     
 
 I still have no sense of certainty as to what this show intends. Clearly cliffhanger ending of season one was planned and we don't know how long it will be until the second season starts.
 
