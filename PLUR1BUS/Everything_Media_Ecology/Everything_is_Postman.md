@@ -44,4 +44,4 @@ Everything is Media Ecology ::: Everything is Neil Postman's book of November 25
 
 &nbsp;
 
-* "America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover".
+* "America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover" - [year 1985 book, page 41](https://books.google.com/books?id=oup6iagfox8C&pg=PA41&dq=%22America+was+founded+by+intellectuals,+from+which+it+has+taken+us+two+centuries+and+a+communications+revolution+to+recover%22.&hl=en&newbks=1&newbks_redir=1&sa=X)
