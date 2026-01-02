@@ -41,3 +41,7 @@ Walter White Science Teacher fandom. What Vicne Gilligan is calling out in early
 People not grasping the USA Founding Fathers Great Seal metaphors of Pluribus We The People Pale Blue Dot science, are not grasping Fox News HDTV hive mind audience and Elon Musk Twitter TCP/IP audience that Neil Postman was describing November 25, 1985.
 
 Everything is Media Ecology ::: Everything is Neil Postman's book of November 25, 1985.
+
+&nbsp;
+
+* "America was founded by intellectuals, from which it has taken us two centuries and a communications revolution to recover".
