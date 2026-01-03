@@ -6,12 +6,8 @@
 
 &nbsp;
 
-https://midwest.social/post/41063294/21964628
-
-&nbsp;
-
-
-the_crotch@sh.itjust.works      
+https://midwest.social/post/41063294/21964628    
+the_crotch @ sh.itjust.works      
 Friday, January 2, 2026     
 
 > The mental illness is on Truth Social and Fox News HDTV.
@@ -21,3 +17,6 @@ There are many different types of mental illness and you’re insulting millions
 In your case though, my guess is stimulant abuse. I’ve seen this type of posting before. Amphetamines cause a unique blend of dunning kruegar and inane rambling that’s easy to spot if you know where to look.
 
 &nbsp;
+
+&nbsp;
+
