@@ -13,5 +13,7 @@ Fiction outsells nonfiction
 Misery literature    
 
 ChatGPT / ELIZA effect parallels    
-Fiction popularity    
-Predictable Popular Culture cravings     
+Fiction popularity           
+Predictable Popular Culture cravings         
+Hyper Reality https://youtu.be/Im_Yo2n4yqE?t=1229    
+
