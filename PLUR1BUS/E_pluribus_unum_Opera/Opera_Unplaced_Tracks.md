@@ -580,3 +580,43 @@ Children all grown up, no more childhood
 I THINK this track is already here, the studio video. Twice is good!
 
 * "Neil Postman, in The Disappearance of Childhood, argued that media, especially television, erodes childhood by exposing children to adult content, leading to cynicism, premature knowledge without context, and a loss of wonder, leaving us with "children who are given answers to questions they never asked" and ultimately "without children". Key quotes highlight this shift: curiosity becomes arrogance, children rely on "news from nowhere," and parents must rebel against culture to preserve childhood."
+
+&nbsp;
+
+# TRACK: Elvis in the Pluribus Trailer
+
+https://www.youtube.com/watch?v=a6lzvWby9UE      
+8,306,655 views October 22, 2025     
+
+Album: How Great **Thou Art**     
+Artist: Elvis Presley     
+Released: 1967    
+
+* “There seem to be only two kinds of people: Those who think that metaphors are facts, and those who know that they are not facts. Those who know they are not facts are what we call "atheists," and those who think they are facts are "religious." Which group really gets the message?” ― Joseph Campbell, **Thou Art That**: Transforming Religious Metaphor
+
+* “Apocalypse does not point to a fiery Armageddon but to the fact that **our ignorance and our complacency are coming to an end**… The exclusivism of there being only one way in which we can be saved, the idea that there is a single religious group that is in sole possession of the truth — that is the world as we know it that must pass away. What is the kingdom? It lies in **our realization of the ubiquity of the divine presence** in our neighbors, in our enemies, in **all of us**.” ― Joseph Campbell, *Thou Art That*: Transforming Religious Metaphor. [Page 107. Published year 2001, but Campbell died Halloween 1987](https://books.google.com/books?id=RSuGAAAAQBAJ&pg=PA107&dq=%22fiery+Armageddon+but+to+the+fact+that+our+ignorance+and+our+complacency+are+coming+to+an+end%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+     * The source of the seems to be https://www.nytimes.com/1979/04/15/archives/earthrise-the-dawning-of-a-new-spiritual-awareness.html April 15, 1979 New York Times interview with Professor Eugene Kennedy "EARTHRISE".
+
+When you walk through a storm    
+Hold your head up high    
+And don't be afraid    
+Of the dark    
+At the end of a storm   
+Is a golden sky    
+And the sweet silver song    
+Of a lark    
+Walk on through the wind   
+Walk on through the rain    
+Though [your dreams be tossed And blown](/Dreamrot/American_Dream_Rot.md)     
+Walk on, walk on    
+With hope in your heart    
+And you'll never walk alone    
+You'll never    
+Ever walk alone    
+Walk on, walk on   
+With hope in your heart     
+And you'll never walk alone     
+You'll never    
+Ever walk alone    
+
+* "::: Once, as we were discussing the subject of suffering, he mentioned **in tandem Joyce** and Igjugarjuk. “Who is Igjugarjuk?” I said, barely able to imitate the pronunciation. “Oh,” replied Campbell, “he was the shaman of a Caribou Eskimo tribe in northern Canada, the one who told European visitors that the only true wisdom lives far from mankind, out **in the great loneliness, and can be reached only through suffering. Privation and suffering alone** open the mind to all that is hidden to others.’ :::” - Bill Moyers, 1988, Power of Myth opening page
