@@ -10,7 +10,7 @@ there's no simple answer for how *we* might change that. Though, if there were, 
 
 11:07        
 But I don't know how to make that happen. So, I'll stick to my wheelhouse. As
-a writer speaking to a room full of writers, I have a proposal...
+a writer speaking to a room full of writers, [I have](https://old.reddit.com/r/ToolBand/comments/7nf5rv/new_a_perfect_circle_song_disillusioned/) a proposal...
 
 &nbsp;
 
