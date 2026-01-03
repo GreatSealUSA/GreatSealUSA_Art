@@ -38,7 +38,8 @@ Oh yha, Annie's last name in Joyce's book, ALP, sounds a lot like "Pluribus" tit
 
 # PLUR1BUS Season One *Attitude*
 
-* “Apocalypse does not point to a fiery Armageddon but to the fact that **our ignorance and our complacency are coming to an end**… The exclusivism of there being only one way in which we can be saved, the idea that there is a single religious group that is in sole possession of the truth — that is the world as we know it that must pass away. What is the kingdom? It lies in **our realization of the ubiquity of the divine presence** in our neighbors, in our enemies, in **all of us**.” ― Joseph Campbell, *Thou Art That*: Transforming Religious Metaphor
+* “Apocalypse does not point to a fiery Armageddon but to the fact that **our ignorance and our complacency are coming to an end**… The exclusivism of there being only one way in which we can be saved, the idea that there is a single religious group that is in sole possession of the truth — that is the world as we know it that must pass away. What is the kingdom? It lies in **our realization of the ubiquity of the divine presence** in our neighbors, in our enemies, in **all of us**.” ― Joseph Campbell, *Thou Art That*: Transforming Religious Metaphor. [Page 107. Published year 2001, but Campbell died Halloween 1987](https://books.google.com/books?id=RSuGAAAAQBAJ&pg=PA107&dq=%22fiery+Armageddon+but+to+the+fact+that+our+ignorance+and+our+complacency+are+coming+to+an+end%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+     * The source of the seems to be https://www.nytimes.com/1979/04/15/archives/earthrise-the-dawning-of-a-new-spiritual-awareness.html April 15, 1979 New York Times interview with Professor Eugene Kennedy "EARTHRISE".
 
 &nbsp;
 
