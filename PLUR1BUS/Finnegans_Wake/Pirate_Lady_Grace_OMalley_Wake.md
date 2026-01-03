@@ -94,3 +94,29 @@ https://www.youtube.com/watch?v=9xjWeCBoBBg
 
 Carol: "How do I reverse all this?" - a conversion therapy for over 7 billion people in the world. https://youtu.be/9xjWeCBoBBg?t=21
 
+&nbsp;
+
+&nbsp;
+
+# ABQ Airport Wig / Haircut
+
+Tom Girl / Tom Boy / Pirate Lady / Pirate Man 
+
+*[Pirate Lady](https://en.wikipedia.org/wiki/Pirate_Lady)?* ALP.. at *sea*...
+
+&nbsp;
+
+"James Joyce refers to the Irish pirate queen primarily through allusions and a pun on her anglicized name, using the phrase "her grace o'malice". 
+The historical figure's real native Irish language name is Gráinne Ní Mháille (pronounced approximately as GRAWN-ya Nee VWAIL-ya), commonly known in Irish folklore by the nickname Gráinne Mhaol (pronounced GRAWN-ya VWAIL). This nickname, often anglicized as Granuaile (/ˌɡrɔːnjuˈeɪl/), literally means "Gráinne the Bald" or "Gráinne of Umhall," and comes from a legend that **she cropped her hair as a girl** to go to sea with her father." - Google Search summary 2026-01-03 afternoon USA
+
+Cut her hair to be a *Tom Boy* ALP?
+
+Carol is Landlocked, so she is *exiting* the sea. She was in Poland sea port as a child, then as adult at Africa sea port... and when she got to ABQ airport, she un-cut her hair, un-crop her hair.
+
+* Pluribus Episode Two (co-pilot episode, two at once). 00:11:30 ABQ airport naked undress, bathroom scene.
+
+The longer uncrop hair is readied for her, ready and waiting after her rebirth shower / birthday suit / baby shower reborn from the salt-water womb metaphors.
+
+<img width="1312" height="1190" alt="image" src="https://github.com/user-attachments/assets/2e3dd421-4f3b-4d98-a526-82ad0dc96661" />
+
+00:11:49 second mark or so in Episode Two.
