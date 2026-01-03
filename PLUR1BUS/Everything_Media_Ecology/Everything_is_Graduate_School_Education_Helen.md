@@ -31,7 +31,7 @@ Jump to this scene in the video: https://youtu.be/K6PwUG283DU?t=243 at **243 sec
 
 ### School milk cartons
 
-[The video shows the PLUR1BUS](https://youtu.be/K6PwUG283DU?t=243) **"HDE", "Human Derived Protein"** being made into food.
+[The video shows the PLUR1BUS](https://youtu.be/K6PwUG283DU?t=243) **"HDP", "Human Derived Protein"** being made into food.
 
 ### Carol likes *trains*!
 
