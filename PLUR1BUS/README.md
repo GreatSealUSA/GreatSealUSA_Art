@@ -34,6 +34,14 @@ Oh yha, Annie's last name in Joyce's book, ALP, sounds a lot like "Pluribus" tit
 
 &nbsp;
 
+&nbsp;
+
+# PLUR1BUS Season One *Attitude*
+
+* “Apocalypse does not point to a fiery Armageddon but to the fact that **our ignorance and our complacency are coming to an end**… The exclusivism of there being only one way in which we can be saved, the idea that there is a single religious group that is in sole possession of the truth — that is the world as we know it that must pass away. What is the kingdom? It lies in **our realization of the ubiquity of the divine presence** in our neighbors, in our enemies, in **all of us**.” ― Joseph Campbell, *Thou Art That*: Transforming Religious Metaphor
+
+&nbsp;
+
 # More, Yha
 
 * "The difficult point is made vivid in an anecdote from Yorubaland (West Africa), which is told of the trickster-divinity Edshu. One day, this odd god came walking along a path between two fields. “He beheld in either field a farmer at work and proposed to play the two a turn. He donned a hat that was on the one side red but on the other white, green before and black behind \[these being the colors of the four World Directions: i.e., Edshu was a personification of the Center, the axis mundi, or the World Navel\]; so that when the two friendly farmers had gone home to their village and the one had said to the other, ‘Did you see that old fellow go by today in the white hat?’ the other replied, ‘Why, the hat was red.’ To which the first retorted, ‘It was not; it was white.’ ‘But it was red,’ insisted the friend, ? saw it with my own two eyes.’ ‘Well, you must be blind,’ declared the first. **‘You must be drunk,’ rejoined the other**. And so the argument developed and the two came to blows. When they began to knife each other, they were brought by neighbors before the headman for judgment. Edshu was among the crowd at the trial, and when the headman sat **at a loss to know where justice lay**, the old trickster revealed himself, made known his prank, and showed the hat. ‘The two could not help but quarrel,’ he said. ? wanted it that way. Spreading strife is my greatest joy.’ “ - [June 1949 book. Page 37.](https://books.google.com/books?id=I1uFuXlvFgMC&pg=PA37&dq=%22they+were+brought+by+neighbors+before+the+headman+for+judgment.+Edshu+was+among+the+crowd+at+the+trial,+and+when+the+headman%22&hl=en&newbks=1&newbks_redir=1&sa=X)
