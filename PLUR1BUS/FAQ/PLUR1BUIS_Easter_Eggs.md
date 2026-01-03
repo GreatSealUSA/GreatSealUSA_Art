@@ -4,7 +4,17 @@ Whenever they go into "trivia fact" about years or Latin words - listen up! Do r
 
 Every one of them has had *Easter Egg* meanings. When the hand grenade is delivered to Carol's house, the hive mind does another one of those Wikipedia fact citations about the Latin word for vodka. https://youtu.be/j0spmMtmliU?t=123 "Pluribus | Carol And Zosia Share A Drink" **"Fun Fact"** That's another Easter Egg in the show!
 
-* Rewind to Episode One Minute 22 when Finnegans Wake book by James Joyce is introduced at the Zero Hour. The "Water of Life" is how Tim Finnegan is brought back from the dead. So this hive mind Wikipedia mind "FUN FACT" is a book reference / song reference. In a story about book selling, book touring, book authoring, book fandom!
+* Rewind to Episode One Minute 22 when **Finnegans Wake book** by James Joyce is introduced at the Zero Hour by Helen as graduate work. The "Water of Life" is how Tim Finnegan is brought back from the dead. So this hive mind Wikipedia mind "FUN FACT" is a book reference / song reference. In a story about book selling, book touring, book authoring, book fandom!
+
+&nbsp;
+
+https://en.wikipedia.org/wiki/Finnegan%27s_Wake_(song)#Summary     
+
+":: Whiskey causes both Finnegan's fall and his resurrection—whiskey is derived from the **Irish phrase uisce beatha** (pronounced [ˈɪʃcə ˈbʲahə]), meaning "water of life" :::"
+
+&nbsp;
+
+Helen cracks her skull like Tim Finnegan when she falls at the Minute 22 of Episode One, the Zero Hour "00:00:00:00" time.
 
 &nbsp;
 
