@@ -35,7 +35,7 @@ Jump to this scene in the video: https://youtu.be/K6PwUG283DU?t=243 at **243 sec
 
 [The video shows the PLUR1BUS](https://youtu.be/K6PwUG283DU?t=243) **"HDP", "Human Derived Protein"** being made into food.
 
-* Wikipedia: "who *[falls](../Finnegans_Wake/Helen_Fall.md) to his death* from a ladder while constructing a [wall](https://youtu.be/K6PwUG283DU?t=186). Finnegan's wife Annie puts out his corpse as a meal spread for the mourners at his wake, but he vanishes before they can eat him."; "introduces Dublin [hod](https://youtu.be/K6PwUG283DU?t=253) carrier" https://en.wikipedia.org/wiki/Finnegans_Wake
+* Wikipedia: "who *[falls](../Finnegans_Wake/Helen_Fall.md) to his death* from a ladder while constructing a [wall](https://youtu.be/K6PwUG283DU?t=186). Finnegan's wife Annie puts out *his corpse as a meal* spread for the mourners at his wake, but he vanishes before they can eat him."; "introduces Dublin [hod](https://youtu.be/K6PwUG283DU?t=253) carrier" https://en.wikipedia.org/wiki/Finnegans_Wake
 
 &nbsp;
 
