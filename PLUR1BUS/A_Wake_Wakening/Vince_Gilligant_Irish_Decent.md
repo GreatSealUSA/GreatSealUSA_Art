@@ -34,7 +34,7 @@ Saul Goodman’s introduction to our world was my third produced episode of tele
 
 https://www.reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/    
 
-So this comment is indicating that Peter was there for the first episode. The question about graduate students and Joyce fits Minute 22 of Episode One statement from Helen.     
+So this comment is indicating that Peter was there for the first episode. The question about graduate students and Joyce fits **Minute 22 of Episode One** statement from Helen at the Zero Hour countdown "00:00:00:00".     
 
 https://en.wikipedia.org/wiki/We_Is_Us     
 "After Better Call Saul ended in August 2022, he pitched a new series that he would develop with Sony Pictures Television. A bidding took place, and Apple TV won the rights to the show in September 2022"    
