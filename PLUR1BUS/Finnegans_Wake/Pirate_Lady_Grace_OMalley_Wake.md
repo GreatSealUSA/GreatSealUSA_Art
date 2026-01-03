@@ -80,3 +80,16 @@ After the heart emotions attack, why can't they fix her?
 "CAMPBELL: that electric thing that happens, and then the agony that can follow. The troubadours celebrate the agony of the love, the **sickness the doctors cannot cure**, the wounds that can be healed only by the weapon that delivered the wound. MOYERS: Meaning? CAMPBELL: The wound is the wound of my passion and the agony of my love for this creature. The only one who can heal me is the one who delivered the blow."
 
 The clergy can not fix. 
+
+&nbsp;
+
+# Vince Gilligan gender-change lead
+
+"Vince Gilligan discusses the shift to a female protagonist in his new show"    
+
+Pirate Man to Pirate Woman character change of lead role.   
+
+https://www.youtube.com/watch?v=9xjWeCBoBBg      
+825 views December 11, 2025     
+
+Carol: "How does one reverse all this?" - a conversion therapy for over 7 billion people in the world.
