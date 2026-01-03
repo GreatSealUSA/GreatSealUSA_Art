@@ -21,6 +21,8 @@ OPERA_A https://www.youtube.com/watch?v=GFW-WfuX2Dk Canadian (June 1, 1974 (age 
 
 &nbsp;
 
+&nbsp;
+
 # .
 
 OPERA_A Grad-schooling studies. Adults don't go to school in rectangle classrooms, they learn from Apple TV+ / Apple iPad / Apple iPhone to climb the Eve Christmas 2025 season one ending Tree of Knowledge on social media hive minds. Adults learn from social meme mills. https://old.reddit.com/r/Pluribus_TVshow/comments/1q2w7hs/plur1bus_hive_mind_children_no_longer_need/
@@ -32,6 +34,10 @@ Jump to this scene in the video: https://youtu.be/K6PwUG283DU?t=243 at **243 sec
 ### School milk cartons
 
 [The video shows the PLUR1BUS](https://youtu.be/K6PwUG283DU?t=243) **"HDP", "Human Derived Protein"** being made into food.
+
+* Wikipedia: "who *[falls](../Finnegans_Wake/Helen_Fall.md) to his death* from a ladder while constructing a [wall](https://youtu.be/K6PwUG283DU?t=186). Finnegan's wife Annie puts out his corpse as a meal spread for the mourners at his wake, but he vanishes before they can eat him."; "introduces Dublin [hod](https://youtu.be/K6PwUG283DU?t=253) carrier" https://en.wikipedia.org/wiki/Finnegans_Wake
+
+&nbsp;
 
 ### Carol likes *trains*!
 
