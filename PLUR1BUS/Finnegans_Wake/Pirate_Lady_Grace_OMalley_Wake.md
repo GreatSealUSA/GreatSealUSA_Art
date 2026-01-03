@@ -92,4 +92,5 @@ Pirate Man to Pirate Woman character change of lead role.
 https://www.youtube.com/watch?v=9xjWeCBoBBg      
 825 views December 11, 2025     
 
-Carol: "How does one reverse all this?" - a conversion therapy for over 7 billion people in the world.
+Carol: "How do I reverse all this?" - a conversion therapy for over 7 billion people in the world. https://youtu.be/9xjWeCBoBBg?t=21
+
