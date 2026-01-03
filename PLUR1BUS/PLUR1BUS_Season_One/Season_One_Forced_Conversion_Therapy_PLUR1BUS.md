@@ -10,7 +10,9 @@ https://youtu.be/9xjWeCBoBBg?t=21
 Force conversion to "correct" people who are "too happy" and self-harming with happiness.
 
 https://www.out.com/voices/pluribus-conversion-therapy    
-Age 16 forced conversion     
+By Mey Rude     
+Jan 1, 2026     
+Age 16 forced conversion, "Camp Freedom Falls"     
 
 Carol is trying to force conversion of the hive mind back to previous state    
 The hive mind is trying to force the 13 into being joined    
