@@ -20,7 +20,7 @@ https://old.reddit.com/r/pluribustv/comments/1orbld3/theory_weve_already_been_to
 
 # Interesting Interview
 
-https://www.hollywoodreporter.com/tv/tv-features/better-call-saul-peter-gould-midseason-premiere-interview-1235178465/     
+https://www.HollywoodReporter.com/tv/tv-features/better-call-saul-peter-gould-midseason-premiere-interview-1235178465/     
 By Daniel Fienberg     
 July 11, 2022 7:10pm     
 
@@ -34,7 +34,7 @@ Saul Goodman’s introduction to our world was my third produced episode of tele
 
 &nbsp;
 
-https://www.reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/    
+https://old.Reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/    
 
 So this comment is indicating that Peter was there for the first episode. The question about graduate students and Joyce fits **Minute 22 of Episode One** statement from Helen at the Zero Hour countdown "00:00:00:00".     
 
