@@ -1,4 +1,4 @@
-# Everything Is Graduate School Education Helen
+# Everything Is Graduate School Education, Helen
 
 In Graduate School:        
 You study James Joyce's Finnegans Wake    
@@ -6,6 +6,9 @@ You study *minute 22* of Kepler 22 of Episode One
 You study free mason symbols and codes of "POTUS" Latin     
 You study the New Mexico VLA and New Mexico Trinity Project     
 You study how school and learning and education itself operates    
+You study Edward Bernays [year 1928](https://en.wikipedia.org/wiki/Propaganda_(book)) in grad school      
+You study, well somehow you don't, ]study Surkov, Page 73](https://www.google.com/books/edition/Nothing_Is_True_and_Everything_Is_Possib/OJToBAAAQBAJ?hl=en&gbpv=1&dq=%22communism+we+never+believed+in,+democracy+and+defaults+and+mafia+state%22&pg=PA73&printsec=frontcover)      
+
 
 &nbsp;
 
