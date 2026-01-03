@@ -37,4 +37,5 @@ Jump to this scene in the video: https://youtu.be/K6PwUG283DU?t=243 at **243 sec
 
 https://youtu.be/K6PwUG283DU?t=1 One second into video.
 
-Carol enjoys watching trains ("Man, I love trains!") go by! The hive mind [conductor-leader honks the train locomotive for Carol](https://www.youtube.com/watch?v=0sU59BBSskY) as *they* transport the **HDP** food to other cities!
+Carol enjoys watching trains ("Man, I love trains!") go by! The hive mind [conductor-leader honks the train locomotive for Carol](https://www.youtube.com/watch?v=0sU59BBSskY) as *they* transport the [**HDP** food distribution](https://youtu.be/0sU59BBSskY?t=131) to other cities!
+
