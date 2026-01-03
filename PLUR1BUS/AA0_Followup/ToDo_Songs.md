@@ -14,3 +14,15 @@ Forgiver: song "Man the Change" lyrics: "Those who can read between the lines, a
 
 GknowByrd: song "What's Life"
 
+&nbsp;
+
+# *Funk* yha
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1q1jncd/vince_gilligan_is_the_only_person_in_the_world_to/nxhai30/
+
+Vince is definitely a Funk's fan!!!
+
+https://en.wikipedia.org/wiki/E_Pluribus_Funk
+
+https://www.udiscovermusic.com/stories/grand-funk-railroad-e-pluribus-funk-album/
+
