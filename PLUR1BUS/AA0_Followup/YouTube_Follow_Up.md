@@ -126,7 +126,23 @@ Writer reluctantly tasked with saving the world.  https://youtu.be/kFrffEktluo?t
 
 No one less equipped to save the world than a writer.   
 Carol's name is from Twilight Zone.  "3rd from the sun" https://youtu.be/kFrffEktluo?t=2894    
-While the Titanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read. https://youtu.be/kFrffEktluo?t=3243 booze cruise for drinking while on space tourism - original intellectual property. https://youtu.be/kFrffEktluo?t=3315 EVERY GENERATION DESERVES THEIR OWN MYTHS, MYTHOLOGY!!!!
+While the Titanic crashes... https://youtu.be/kFrffEktluo?t=3083 what she would personally do, before loss of independent thought - she would watch as many films as shows and read as many books as she can read. https://youtu.be/kFrffEktluo?t=3243 booze cruise for drinking while on space tourism - original intellectual property.
+
+EVERY GENERATION DESERVES THEIR OWN MYTHS, MYTHOLOGY!!!!
+
+* "Shakespeare said that art is a mirror held up to nature. And that’s what it is. The nature is your nature, and all of these wonderful **poetic images of mythology** are referring to something in you. When your mind is simply trapped by the image out there so that you never make the reference to yourself, you have misread the image."  - [The Power of Myth, year 1988 book, Page 68](https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA68&dq=%22When+your+mind+is+simply+trapped+by+the+image+out+there%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+
+https://youtu.be/kFrffEktluo?t=3315    
+55:00     
+intellect pre-existing intellectual property and it feels obviously it feels wonderful uh to be allowed to do that I feel very grateful feel like I won the lottery. And then I think about it and I think it kind of makes me feel sad too because there should be it shouldn't be that exceptional that special uh uh an opportunity to get to create something new uh versus something you know that is IP. I ... I feel like you I've been saying this a fair bit lately and I'll say it again. I I I **every generation deserves its own new myths**... to go, you know, shoulder-to-shoulder along with the other ones. It it there's there's a wonderful continuity to us telling stories uh with characters that were originally uh invented in the time of our grandparents, great-grandparents, some in some cases. It's it's great that there's a continuity of mythology, if you will, modern mythology with with superheroes and with uh you know, science fiction characters and whatnot.
+
+That's great. I think there's it's a big it's a big world out there. It's a there's a lot of viewers and it seems like every generation should get to create their own as well. And it seems like that stuff's getting crowded out. The the **the original ideas are there's just not that much room for them anymore in the business ecosystem**. And that part makes me sad. 
+
+INTERVIEWER: "So, but maybe the hope is if this show is as big a success as it certainly seemed last night that it may give other people bravery to do the same thing."
+
+VINCE GILLIGAN: "I sure hope so. But from your mouth to God's ear, I hope so. Yeah."
+
 
 Clip of the Antarctica Four Seasons trip with sushi and meeting penguins    
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pxe1va/banana_teasertheory/nwajj20/     
