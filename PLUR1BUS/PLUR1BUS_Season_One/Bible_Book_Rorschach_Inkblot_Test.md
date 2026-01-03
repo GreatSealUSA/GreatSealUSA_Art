@@ -59,7 +59,7 @@ CONTEXT ASSERTION: Pluribus TV Season One places a heavy emphasis of countdown a
 
 * "The Ku Klux Klan (KKK) has deep historical ties to a specific, exclusionary interpretation of white Protestant Christianity and appropriated the symbol of the cross for its own purposes of intimidation and terror. The practice of cross burning was not part of the original 19th-century Klan but was introduced in the 20th century, drawing on fictional depictions and being framed by the group's leaders as a religious ritual." - Google Search summary 2026-01-02 morning USA
 
-Bible Book Rorschach Inkblot Test. U.S.A K.K.K.
+Bible Book Rorschach Inkblot Test. U.S.A. K.K.K.
 
 KKK is another Bible Book Rorschach Inkblot Test
 
