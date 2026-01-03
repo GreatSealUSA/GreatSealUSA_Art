@@ -19,7 +19,7 @@ American Reformation, USA reformation of Bible
 
 1. Year 1820 Founding Father Thomas Jefferson. An AMERICAN Bible, not King James dictatorship Bible!
 
-   * "There is a kind of secondary hero to revitalize the tradition. This hero reinterprets the tradition and **makes it valid as a living experience today** instead of a lot of outdated clichés. This has to be done with all traditions." - [Summer of year 1986. Luke Skywalker Ranch California USA. Page One-Hundred Seventy-Three of book printed on paper in year 1988.](https://books.google.com/books?id=cM5vDwAAQBAJ&pg=PA173&dq=%22There+is+a+kind+of+secondary+hero+to+revitalize+the+tradition.+This+hero+reinterprets%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+   * "There is a kind of secondary hero to revitalize the tradition. This hero reinterprets the tradition and **makes it valid as a living experience today** instead of a lot of outdated clichés. This has to be done with all traditions." - [Summer of year 1986. Luke Skywalker Ranch California USA. Page One-Hundred Seventy-Three of book printed on paper in year 1988.](https://books.google.com/books?id=cM5vDwAAQBAJ&pg=PA173&dq=%22There+is+a+kind+of+secondary+hero+to+revitalize+the+tradition.+This+hero+reinterprets+the+tradition%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwjYkavx7e-RAxXVIzQIHeBRMSAQ6AF6BAgIEAM)
 
 2. Sunday, February 28, 1954. Expounding on Biblical "1 John 4:20" verse. Dr. Martin Luther King Jr. American teacher.
 
