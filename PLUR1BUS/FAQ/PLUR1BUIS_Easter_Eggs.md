@@ -14,7 +14,7 @@ https://en.wikipedia.org/wiki/Finnegan%27s_Wake_(song)#Summary
 
 &nbsp;
 
-Helen cracks her skull like Tim Finnegan when she falls at the Minute 22 of Episode One, the Zero Hour "00:00:00:00" time.
+Helen cracks her skull like Tim Finnegan when she falls at the Minute 22 of Episode One, the Zero Hour "00:00:00:00" time. OPERA_A Tim is a brick man, just another Brick in the Catholic Church wall in Dublin or USA singsong. Just another nobody man working for *The Man*. https://www.youtube.com/watch?v=K6PwUG283DU ... *poetry* / *music lyrics, sing song* .... 15,369,148 views March 1, 2022 
 
 &nbsp;
 
