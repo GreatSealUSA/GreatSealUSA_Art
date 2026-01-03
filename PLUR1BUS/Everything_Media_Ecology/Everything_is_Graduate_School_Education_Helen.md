@@ -15,7 +15,7 @@ In Graduate School:
 You learn about the School of Hard Knocks    
 You learn about Lesbian romances at Grad School    
 
-OPERA_A https://www.youtube.com/watch?v=GFW-WfuX2Dk Canadian Marshall McLuhan University of Toronto educated singers. Singsong. Swallow the HDE down! 44,013,335 views  May 19, 2007 
+OPERA_A https://www.youtube.com/watch?v=GFW-WfuX2Dk Canadian (June 1, 1974 (age 51 years), Ottawa, Canada) Marshall McLuhan University of Toronto educated singers. Singsong. Swallow the HDE down! 44,013,335 views  May 19, 2007 
 
 &nbsp;
 
