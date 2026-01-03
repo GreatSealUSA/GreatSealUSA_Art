@@ -32,6 +32,8 @@ In my mind, there were whole days in the writers room where you went over that f
 Answer:     
 Saul Goodman’s introduction to our world was my third produced episode of television. I’d done long-form before that, and that was only the second time I was actually on set as a writer. So I think every moment of that shoot is burned into my memory. Everything subsequent is a little bit of a blur, but that’s burned into my memory, the joy of seeing Bob play this role for the first time. I had no idea that I was going to be watching him play the role for 12 more years. It just seems too good to be true.
 
+&nbsp;
+
 https://www.reddit.com/r/pluribustv/comments/1pshguf/whats_the_deal_with_peter_gould/    
 
 So this comment is indicating that Peter was there for the first episode. The question about graduate students and Joyce fits **Minute 22 of Episode One** statement from Helen at the Zero Hour countdown "00:00:00:00".     
