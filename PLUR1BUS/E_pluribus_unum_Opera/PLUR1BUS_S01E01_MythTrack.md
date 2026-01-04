@@ -180,6 +180,8 @@ Finnegans Wake message in a booze "Public House" bottle, RNA message in a bottle
 
 Carol woke, Wake, Finnegans.
 
+Carol boozing, "message" of the bottle, in the bottle. Earwicker's Public House Minute 22, Carol boozing at the Zero Hour "00:00:00:00" countdown time. James Joyce story of a single night of boozing, Tim Finnegan dreaming drunk metaphors. 
+
 &nbsp;
 
 &nbsp;
