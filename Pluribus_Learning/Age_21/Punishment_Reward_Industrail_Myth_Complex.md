@@ -25,3 +25,38 @@ CONTEXT ASSERTION: Metaphors of climbing up and down (falling, iterating) the 13
 https://en.wikipedia.org/wiki/Maybe_You%27ve_Been_Brainwashed_Too    
 
 "for some [fourteen](../Age_13/) to twenty-one years" - 1988 book cited earlier on this page.
+
+&nbsp;
+
+&nbsp;
+
+# STAR WARS DAY year 1939 mythos
+
+&nbsp;
+
+Let's see what mythology Google Large Language Model is spinning 2026-01-05 morning USA:
+
+"STAR WARS DAY 1939 Finnegans Wake released STAR WARS DAY Stephen (Stephen Hero Joyce)" query 
+
+<img width="2442" height="1353" alt="image" src="https://github.com/user-attachments/assets/f7f4767b-641a-42bc-963b-4baeb2e6ccbe" />
+
+&nbsp;
+
+"Your query connects James Joyce's notoriously complex novel, Finnegans Wake, published on May 4, 1939 (Star Wars Day), to the archetypal Hero's Journey in Star Wars through Joseph Campbell, highlighting themes of cyclical history, resurrection, and the "oppressed rising" (the "Finnegans") against powerful forces, linking to broader mythic patterns found in Joyce's work. The concept of "Stephen" likely refers to Stephen Dedalus, Joyce's recurring character, but the core connection is the literary thread from Joyce's cyclical dreams to the mythic structure of George Lucas's saga."
+
+Here's a breakdown:
+
+* Finnegans Wake (1939): James Joyce's dream-like, experimental novel published on May 4th, which features themes of history repeating, resurrection (Finnegan's fall and awakening), and the cyclical nature of life.
+Star Wars Day (May 4th): The date of Finnegans Wake's publication coincidentally aligns with the "May the Fourth Be With You" fan celebration for Star Wars.
+
+* Star Wars & Hero's Journey: George Lucas's Star Wars draws heavily from Joseph Campbell's The Hero with a Thousand Faces, which outlines universal mythic patterns (the Monomyth).
+
+* The Joyce-Campbell-Lucas Link: Campbell was influenced by Joyce's exploration of myth and cycles in Finnegans Wake, creating a direct, albeit indirect, line from Joyce's literary vision to the themes and structure of Star Wars, where ordinary people (like the "Finnegans") rise against oppression. 
+
+In essence, the query points to the idea that Joyce, through Finnegans Wake, anticipated and explored the very mythic archetypes that Lucas later used to build the Star Wars universe, with May 4th serving as a fun, coincidental marker.
+
+&nbsp;
+
+<img width="2435" height="1472" alt="image" src="https://github.com/user-attachments/assets/f22670cd-032e-4caa-9206-47084a79bb43" />
+
+The LLM didn't make a connection to Wikipedia links https://en.wikipedia.org/wiki/Stephen_Hero , Campbell did not coin the phrase "Hero's Journey" in year 1949 book. Joyce did the associations. Campbell and **his wife Jean Erdman** were both Joyce experts! She was rather the ear-wicker! 
