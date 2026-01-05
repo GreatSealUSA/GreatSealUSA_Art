@@ -103,6 +103,54 @@ It shows. You are anti-literacy, anti-learning, anti-understanding, anti-compreh
 
 &nbsp;
 
+...
+
+&nbsp;
+
+### Proud of drug-abuser: *Jessie*
+
+<img width="1763" height="1025" alt="image" src="https://github.com/user-attachments/assets/b72535ed-354d-4df6-8983-716da1188099" />
+
+&nbsp;
+
+https://midwest.social/post/41063294/22015908       
+the_crotch @ sh.itjust.works      
+Monday, January 5, 2026     
+
+I did not read a word of that, Jessie Pinkman.
+
+&nbsp;
+
+...
+
+&nbsp;
+
+&nbsp;
+
+My reply message, a teachable moment: 
+
+> I did not read a word of that, Jessie Pinkman.
+
+Exactly. You are an agent of banality. Here to banalize the Founding Father(s) of the United States of America symbolism; education, and teachings. Your hero you worship, "Jessie Pinkman", the high school drugie video gamer who avoids nonfiction books, your meme super-man!
+
+> I did not read
+
+# American MAGA January 2026 PRIDE values
+
+"I did not read" - Monday, January 5, 2026 proud Lemmy User     
+"the cesspool that is social media and actually listening to each other" - February 15, 2025 Breaking Bad creator Vince Gilligan.     
+https://youtu.be/TkteSxVIM1A?t=648
+
+&nbsp;
+
+Lemmy agent:
+
+* "Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - Lemmy high-speed banality agent. The function of your messaging on Lemmy. "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality."  https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+&nbsp;
+
+&nbsp;
+
 &nbsp;
 
 ...
