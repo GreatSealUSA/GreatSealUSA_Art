@@ -58,6 +58,12 @@ This Wikipedia section was added December 21 2025 https://en.wikipedia.org/w/ind
 
 &nbsp;
 
+## Remember folks...
+
+Remember folks, Carol thinks "the hive mind never lies!"
+
+&nbsp;
+
 &nbsp;
 
 ## 2025-12-21 observation from fan
