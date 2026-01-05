@@ -71,6 +71,7 @@ December year 1964
 
 The Coach with The Six Insides   
 The Coach with the 6 Insides   
+https://www.FinnegansWeb.com/wiki/index.php/Page_359     
 
 https://peterchrisp.blogspot.com/2021/12/the-coach-with-six-insides.html     
 "Happy New Year Wakeans!"     
