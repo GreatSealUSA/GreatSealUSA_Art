@@ -6,4 +6,8 @@ Carol has an illegal alien at her house that arrives from ABQ airport.
 
 Carol beats her up to a point of unconscious in front of her house.
 
-The alien feels compelled to dress to appease Carol, and "fit i" with local customs. Including consume alcohol. 
+Carol calls for an emergency world meeting to defend the nation. She is the only one calling to remove the illegal alien invasion.
+
+Carol patrols around in a police car giving the finger to alien immigrants
+
+The alien feels compelled to dress to appease Carol, and "fit in" with local customs. Including consume alcohol. 
