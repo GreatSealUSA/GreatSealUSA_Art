@@ -25,10 +25,11 @@ In your case though, my guess is stimulant abuse. I’ve seen this type of posti
 # Some context history:
 
 https://MidWest.Social/post/41045565/21963643     
-the_crotch @ sh.itjust.works      
-Friday, January 2, 2026   
 
-For a look at what being governed by chatgpt would look like, watch pluribus
+     the_crotch @ sh.itjust.works      
+     Friday, January 2, 2026   
+
+     For a look at what being governed by chatgpt would look like, watch pluribus
 
 &nbsp;
 
