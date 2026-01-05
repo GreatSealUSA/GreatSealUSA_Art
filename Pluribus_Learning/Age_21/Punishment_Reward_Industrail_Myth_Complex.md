@@ -59,7 +59,7 @@ In essence, the query points to the idea that Joyce, through Finnegans Wake, ant
 
 <img width="2435" height="1472" alt="image" src="https://github.com/user-attachments/assets/f22670cd-032e-4caa-9206-47084a79bb43" />
 
-The LLM didn't make a connection to Wikipedia links https://en.wikipedia.org/wiki/Stephen_Hero , Campbell did not coin the phrase "Hero's Journey" in year 1949 book. Joyce did the associations. Campbell and **his wife Jean Erdman** were both Joyce experts! She was rather the ear-wicker! 
+The LLM didn't make a connection to Wikipedia links https://en.wikipedia.org/wiki/Stephen_Hero , Campbell did not coin the phrase "Hero's Journey" in year 1949 book. Joyce did the associations. Campbell and **his [wife Jean](https://www.youtube.com/watch?v=WoiJVkdDbOo&t=795s) Erdman** were both Joyce experts! She was rather the ear-wicker! 
 
 * The title of this page, "Industrial Myth Complex", Industrial Light and Magic
     * Warfare, outer space war, the 13 stars of the Great Seal of the United States of America. https://en.wikipedia.org/wiki/Military%E2%80%93industrial_complex
