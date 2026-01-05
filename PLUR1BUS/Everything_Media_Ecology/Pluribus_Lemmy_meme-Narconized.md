@@ -45,7 +45,9 @@ No, this is teaching about Free Masons, year 1776 stuff on year 2026. The Foundi
 
 > my guess is stimulant abuse. I’ve seen this type of posting before. Amphetamines 
 
-Lemmy meme addiction: "public insensible to contradiction and narcoticized by technological diversions"
+Lemmy meme addiction: "public insensible to contradiction and narcoticized by technological diversions"     
+*Lemmy* technology, meme mill entertainments   
+*Lemmy*, "narcoticized by technological diversions"    
 
 &nbsp;
 
