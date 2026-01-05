@@ -22,7 +22,7 @@ In your case though, my guess is stimulant abuse. I’ve seen this type of posti
 
 &nbsp;
 
-# Some context history:
+## Some context history:
 
 https://MidWest.Social/post/41045565/21963643     
 
@@ -37,7 +37,7 @@ https://MidWest.Social/post/41045565/21963643
 
 ## Analyzing that message
 
-So they start talking about their drug addiction, stimulant drugs, and think Pluribus isn't a story about book fandom, book touring, book authors, book selling, book promoting, book reading, book writing, authoring, etc. They think ChatGPT is what Pluribus is about. So that seems to be their motivation for the two-paragraph reply to me, saying I'm a drug stimulant abuser for calling out Fox News HDTV audience.
+Friday, January 2, 2026. So they *start talking* about their drug-meme addiction, memes about stimulant drugs, and think Pluribus streaming TV show isn't a story about { book fandom, book touring, book authors, book selling, book promoting, book reading, book writing, authoring, etc.}. They think ChatGPT is what Pluribus is about. So that seems to be their motivation for the two-paragraph reply to me, saying I'm a drug stimulant abuser for calling out Fox News HDTV audience.
 
 There seems to be a Vince Gilligan / Braking Bad fandom issue with drug pushers, drug dealers, drug sellers, drug fascination. They like the ABQ story about drug selling, Walter White?
 
