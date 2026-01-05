@@ -28,6 +28,14 @@ Outcasting / streamcasting / [multi](https://en.wikipedia.org/wiki/IP_multicast)
 
 &nbsp;
 
+### Dividuum; Apart Man
+
+"the anthropological works of the primitive initiation rites what is done to the young people in some primitive societies in order to test their courage, in order to integrate them in the social group. Now, most societies are extremely dogmatic and fierce in their integration of the individual. The individual is born as a separate entity. He is carved up, so to say, and made to fit into a pattern that the society requires. It doesn't require a total man; it requires *a part man* — not an individual, but a dividuum: someone **who has been divided up and put into a notch**." - Lecture I.1.1 - *The Celebration of Life*. March 1, 1967. *Out*Plurbed / Anti-Pluribus process of extruding / eiectus / Ēiectus
+
+&nbsp;
+
+&nbsp;
+
 # Infidelity
 
 Organized Infidelity    
@@ -52,3 +60,4 @@ Orders from on-high, so the story goes.
 * "Whereas in our tradition, if anyone says “I am God,” he’s either a maniac, or a great, great saint. And in either case, he will be killed."
 
 * "And it is violent, it’s ugly — there are foul odors and experiences. This is the level of the sadomasochistic attitude. And if the person comes out in this state, the person is in danger of blowing things up, of blowing himself up — he is a dangerous person. The fourth state is that of birth itself. Suddenly light, and suddenly an object: mother — the first divinity, and the only divinity finally, really. I mean this *daddy thing* is a joke... compared with mother."
+
