@@ -44,6 +44,67 @@ There seems to be a Vince Gilligan / Braking Bad fandom issue with drug pushers,
 
 &nbsp;
 
+
+### Monday June 5, 2025 message
+
+2 hours ago I get this reply on Lemmy:
+
+<img width="1798" height="1152" alt="image" src="https://github.com/user-attachments/assets/bec2ccca-8f2d-46e0-afe6-fe3bde04d455" />
+
+&nbsp;
+
+> Seen it in the mirror. you a druggie, a drug abuser? A junkie who knows the *good shit*? You do a lot of energy drinks for stimulation on 4-day holiday New Years 2026 weekend?
+
+That is the least coherent “I’m rubber and you’re glue” I’ve ever seen
+
+> How come your electronic Lemmy reply message in no way discusses the YouTube video linked?
+
+Because I didn’t watch it. You posted it, there’s a 0% chance it’s worth my time.
+
+> You think a founding father of the United States of America is rambling?
+
+Are you claiming to be a founding father now?
+
+&nbsp;
+
+&nbsp;
+
+...
+
+My reply message:
+
+> Are you claiming to be a founding father now?
+
+No, I'm not claiming that.
+
+You seem to have literacy issues. You can't understand the Founding Fathers language, too old for your Lemmy mindset.
+
+Your drug-messaging speaks for itself. Your fixation on meth and other drug use. Instead of focusing  on your English literacy and **context blindness issues in your own brain**.
+
+* You start pushing and pondering *drugs* when you read a posting on Lemmy high speed messaging system titled **"Smiling Hive Mind Season One: "E pluribus unum" ++ "Annuit cœptis" … meaning "many signal interpositions" 8.613 MHz / 4-level FSK at 400 baud"**
+
+&nbsp;
+
+Because you can't understand symbolism of the Free Masons Founding Fathers of the United States of America year 1776 ideals.  You are so **meme addled with Lemmy trash content** that you think "drugs" because it blows your mind to actually read a book on printed paper.
+
+>  I didn’t watch it.
+
+It shows. You are anti-literacy, anti-learning, anti-understanding, anti-comprehension. You come along and say *har har, drugs, I'm a druggie* messages. [Your **context blindness**](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) behavior / mindset on Lemmy - that the posting is a quote from a Founding Father of the United States of America, which you clearly minded drug users more than educators.
+
+&nbsp
+
+...
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+...
+
+&nbsp;
+
 # Fox News, not *drug* use or ChatGPT 
 
 &nbsp;
@@ -62,3 +123,4 @@ My posting was about the Great Seal of the USA and Fox News HDTV. Here are a cou
 “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.”
 ― Peter Pomerantsev, This Is Not Propaganda: [Adventures in the War Against Reality, 2019, Page ???](https://books.google.com/books?id=Mt5sDwAAQBAJ&pg=PT95&dq=%E2%80%9CIf+all+information+is+seen+as+part+of+a+war,+out+go+any+dreams%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
+&nbsp;
