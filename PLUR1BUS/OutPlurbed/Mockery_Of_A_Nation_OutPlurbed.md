@@ -18,7 +18,13 @@ And other anti-Pluribus words, anti free masons languages:
 5. "550" / "neutral"
 6. Outcasting, planked-walking dead / casting out the undesired unattractive
 
-OPERA_A https://www.youtube.com/watch?v=CDgbYF48UPw 16,965,896 views August 10, 2010 "You're about to jump to your death, sail away from the shoreline. Sail away from the shore" OPERA_B CHAIN_LIGHTING https://www.youtube.com/watch?v=e5MAg_yWsq8 For the virgin birthing ocean embryonic seas, ALP page 628. 36,681,337 views  Dec 25, 2009
+OPERA_A https://www.youtube.com/watch?v=CDgbYF48UPw 16,965,896 views August 10, 2010 "You're about to jump to your death, sail away from the shoreline. Sail away from the shore" OPERA_B CHAIN_LIGHTING https://www.youtube.com/watch?v=e5MAg_yWsq8 For the virgin birthing ocean embryonic seas, ALP page 628. 36,681,337 views December 25, 2009 (X Mas, Jolly Roger X Day)
+
+### Casting About 
+
+Outcasting / stremcasting / [multi](https://en.wikipedia.org/wiki/IP_multicast)casting.
+
+* https://youtu.be/TkteSxVIM1A?t=770 "know you happen to be casting about 12:55 trying to **figure out your [next project](/ExperiencePluribusProject)**"
 
 &nbsp;
 
