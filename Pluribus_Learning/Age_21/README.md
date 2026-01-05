@@ -62,3 +62,11 @@ https://youtu.be/cz2CAtExXgQ?t=66
 22,640,567 views November 6, 2014     
 
 Your personal climb!    
+
+&nbsp;
+
+## Stage 3 ++
+
+Soft Drinks allowed, even water toasting, despite what some might say!   
+[Recreational_Drinking_Rituals.md#transistor-radio-city](Recreational_Drinking_Rituals.md#transistor-radio-city)   
+maybe tea for old time's sake?    
