@@ -9,7 +9,7 @@ With out-group logical polarity, attacking the Free Masons symbols of mason / br
 
 And other anti-Pluribus words, anti free masons languages:
 
-1. Gentile (modernized: أمميون)
+1. Gentile (modernized: أمميون / modern Unicode Unity: جنتايل)
 2. Infidel / كافر
 3. Non-believer
 4. OutPlurbed
