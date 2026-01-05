@@ -63,4 +63,5 @@ The LLM didn't make a connection to Wikipedia links https://en.wikipedia.org/wik
 
 * The title of this page, "Industrial Myth Complex", Industrial Light and Magic
     * Warfare, outer space war, the 13 stars of the Great Seal of the United States of America. https://en.wikipedia.org/wiki/Military%E2%80%93industrial_complex
- 
+        * Wikipedia Pluribus hive WWW minded: "War and Peace in the Global Village is a 1968 book by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how **war may be conducted in the future**." https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
