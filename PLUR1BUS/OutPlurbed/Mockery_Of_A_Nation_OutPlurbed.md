@@ -3,7 +3,7 @@
 Out-group anti-Pluribus.   
 With out-group logical polarity, attacking the Free Masons symbols of mason / brick-laying Tim Finnegan revival.
 
-1988 Luke SkyWalker Ranch, Gauchos interviews hosted by Lucas;
+1988 Luke SkyWalker Ranch, Gauchos interviews hosted by Lucas:
 
 "or example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. The myths of participation and love pertain only to the in-group, and the out-group is totally other. This is the sense of the word “gentile”—the person is not of the same order."
 
