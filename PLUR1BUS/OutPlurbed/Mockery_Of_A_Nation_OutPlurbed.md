@@ -22,7 +22,7 @@ OPERA_A https://www.youtube.com/watch?v=CDgbYF48UPw 16,965,896 views August 10, 
 
 ### Casting About 
 
-Outcasting / stremcasting / [multi](https://en.wikipedia.org/wiki/IP_multicast)casting.
+Outcasting / streamcasting / [multi](https://en.wikipedia.org/wiki/IP_multicast)casting / stem sells casting into functional iPhone cells.
 
 * https://youtu.be/TkteSxVIM1A?t=770 "know you happen to be casting about 12:55 trying to **figure out your [next project](/ExperiencePluribusProject)**"
 
@@ -41,3 +41,14 @@ Organized Infidelity
 The James Joyce Experience for English First Language.    
 Checking into Finn's Hotel year 1923.   
 
+&nbsp;
+
+# Cloud Messaging
+
+Orders from on-high, so the story goes.
+
+* "And the society of the Middle Ages was itself a rendition on earth of the imagery of those seven spheres. The entity of the king, and the entity of *the Pope* — these represented agents of the divine powers. And the society was arranged in a hierarchic way, as it were following the order of the angels and the angelic choirs who sang in the heavens. And in this image there was felt to be a perfect accord between the shape and form of the universe, the well-being of the individual, and the order of society, so that by following the laws of the society, and doing as he was told, the individual both was in accord with the order of the universe, and with his own inward order. And then when death came, he passed readily through those spheres again to the heavenly realm."
+
+* "Whereas in our tradition, if anyone says “I am God,” he’s either a maniac, or a great, great saint. And in either case, he will be killed."
+
+* "And it is violent, it’s ugly — there are foul odors and experiences. This is the level of the sadomasochistic attitude. And if the person comes out in this state, the person is in danger of blowing things up, of blowing himself up — he is a dangerous person. The fourth state is that of birth itself. Suddenly light, and suddenly an object: mother — the first divinity, and the only divinity finally, really. I mean this *daddy thing* is a joke... compared with mother."
