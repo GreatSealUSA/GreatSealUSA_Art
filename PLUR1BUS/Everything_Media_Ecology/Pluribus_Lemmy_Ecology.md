@@ -46,7 +46,7 @@ There seems to be a Vince Gilligan / Braking Bad fandom issue with drug pushers,
 &nbsp;
 
 
-### Monday June 5, 2025 message
+## Monday June 5, 2025 message
 
 2 hours ago I get this reply on Lemmy:
 
