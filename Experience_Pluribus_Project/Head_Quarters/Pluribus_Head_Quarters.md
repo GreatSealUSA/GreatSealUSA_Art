@@ -19,3 +19,9 @@ OPERA_A https://youtu.be/ncaCLOHd90o?t=21 ... Can you tell Heaven from Hell? Do 
 &nbsp;
 
 * "It was important in that it gave the West this accent on the individual, that one should have faith in his experience and not simply mouth terms handed down to him by others." - Power of Myth, Year 1988, SkyWalker Ranch lessons for fandoms
+
+[We are Binary Lost Souls, *Swiming*](/TwoAndOnlyTw0)
+
+* " I have attended a number of psychological conferences dealing with this whole problem of the difference between the mystical experience and the psychological crack-up. The difference is that the one who cracks up is drowning in the water in which the mystic swims. You **have to be prepared for this experience**." - Power of Myth, Year 1988, SkyWalker Ranch lessons for fandoms
+
+*We The People*, Year After Year... https://youtu.be/ncaCLOHd90o?t=134
