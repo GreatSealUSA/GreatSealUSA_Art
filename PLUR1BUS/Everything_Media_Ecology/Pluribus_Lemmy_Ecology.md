@@ -53,6 +53,10 @@ There seems to be a Vince Gilligan / Braking Bad fandom issue with drug pushers,
 
 &nbsp;
 
+https://midwest.social/post/41063294/22014061       
+the_crotch @ sh.itjust.works      
+Monday, January 5, 2026     
+
 > Seen it in the mirror. you a druggie, a drug abuser? A junkie who knows the *good shit*? You do a lot of energy drinks for stimulation on 4-day holiday New Years 2026 weekend?
 
 That is the least coherent “I’m rubber and you’re glue” I’ve ever seen
