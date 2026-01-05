@@ -17,3 +17,11 @@ Fiction popularity
 Predictable Popular Culture cravings         
 Hyper Reality https://youtu.be/Im_Yo2n4yqE?t=1229    
 
+&nbsp;
+
+# Reality Altering / Mind Bending
+
+ToDo: [cherry-pick](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md) quotes
+https://old.reddit.com/r/technology/comments/1q4l0f6/murdersuicide_case_shows_openai_selectively_hides/
+
+OpenAI / ChatGPT / Bing Microsoft   
