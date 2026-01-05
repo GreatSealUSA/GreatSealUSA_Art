@@ -6,7 +6,7 @@
 
 &nbsp;
 
-https://midwest.social/post/41063294/21964628    
+https://MidWest.Social/post/41063294/21964628    
 the_crotch @ sh.itjust.works      
 Friday, January 2, 2026     
 
@@ -24,7 +24,7 @@ In your case though, my guess is stimulant abuse. I’ve seen this type of posti
 
 # Some context history:
 
-https://midwest.social/post/41045565/21963643     
+https://MidWest.Social/post/41045565/21963643     
 the_crotch @ sh.itjust.works      
 Friday, January 2, 2026   
 
@@ -53,7 +53,7 @@ There seems to be a Vince Gilligan / Braking Bad fandom issue with drug pushers,
 
 &nbsp;
 
-https://midwest.social/post/41063294/22014061       
+https://MidWest.Social/post/41063294/22014061       
 the_crotch @ sh.itjust.works      
 Monday, January 5, 2026     
 
@@ -113,7 +113,7 @@ It shows. You are anti-literacy, anti-learning, anti-understanding, anti-compreh
 
 &nbsp;
 
-https://midwest.social/post/41063294/22015908       
+https://MidWest.Social/post/41063294/22015908       
 
       the_crotch @ sh.itjust.works      
       Monday, January 5, 2026     
@@ -136,7 +136,7 @@ Exactly. You are an agent of banality. Here to banalize the Founding Father(s) o
 
 > I did not read
 
-# American MAGA January 2026 PRIDE values
+**American MAGA January 2026 PRIDE values**
 
 "I did not read" - Monday, January 5, 2026 proud Lemmy User     
 "the cesspool that is social media and actually listening to each other" - February 15, 2025 Breaking Bad creator Vince Gilligan.     
@@ -147,6 +147,8 @@ https://youtu.be/TkteSxVIM1A?t=648
 Lemmy agent:
 
 * "Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - Lemmy high-speed banality agent. The function of your messaging on Lemmy. "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality."  https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+&nbsp;
 
 &nbsp;
 
