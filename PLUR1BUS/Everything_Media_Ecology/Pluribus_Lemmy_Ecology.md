@@ -96,7 +96,7 @@ Because you can't understand symbolism of the Free Masons Founding Fathers of th
 
 It shows. You are anti-literacy, anti-learning, anti-understanding, anti-comprehension. You come along and say *har har, drugs, I'm a druggie* messages. [Your **context blindness**](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) behavior / mindset on Lemmy - that the posting is a quote from a Founding Father of the United States of America, which you clearly minded drug users more than educators.
 
-&nbsp
+&nbsp;
 
 ...
 
