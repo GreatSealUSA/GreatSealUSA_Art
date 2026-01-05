@@ -153,6 +153,46 @@ Lemmy agent:
 
 &nbsp;
 
+# Noise to drown signal
+
+&nbspp
+
+https://midwest.social/post/41063294/22017510    
+
+      the_crotch @ sh.itjust.works      
+      Monday, January 5, 2026     
+
+      Ok Judy Garland
+
+&nbsp;
+
+...
+
+My reply message to this information warfare tactic:    
+
+&nbsp;
+
+...
+
+&nbsp;
+
+> Ok Judy Garland
+
+Every message from you is to attack Founding Father USA teaching on Lemmy. A jamming signal, to promote your drug memes and addictions to trash content.
+
+&nbsp;
+
+> Ok Judy Garland
+
+3-word shit-commenting.
+
+"Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+
+&nbsp;
+
+...
+
 &nbsp;
 
 &nbsp;
