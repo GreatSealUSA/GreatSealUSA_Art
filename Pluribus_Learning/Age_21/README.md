@@ -73,4 +73,6 @@ maybe tea for old time's sake?
 
 * The road more traveled. Hey two-thousand nineteen, COVID-2019. https://www.youtube.com/watch?v=ChNU2dOEXHU Back in year 1967. 526 views November 23, 2021 Pandemic days, Thanks-giving affirmations
    * "::: "Hey Nineteen" was a significant Steely Dan hit, reaching #10 on the Billboard Hot 100 and tying for their longest chart run, but many fans and critics consider "Rikki Don't Lose That Number" (peaked higher at #4) or "Peg" (also a Top 10 hit and major radio staple) to be their biggest or most iconic, with "Reelin' in the Years" often cited as their signature song overall :::" - Google Search summary 2026-01-05 morning USA
+   * Mythos of Dandom https://youtu.be/ChNU2dOEXHU?t=244 - he thought, um um um! And then he said: Quervo Gold, the Fine Colombian... make Tonight your birthday!
+
  
