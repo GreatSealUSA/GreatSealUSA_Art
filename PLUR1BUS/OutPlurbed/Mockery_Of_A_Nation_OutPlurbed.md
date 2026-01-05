@@ -61,3 +61,12 @@ Orders from on-high, so the story goes.
 
 * "And it is violent, it’s ugly — there are foul odors and experiences. This is the level of the sadomasochistic attitude. And if the person comes out in this state, the person is in danger of blowing things up, of blowing himself up — he is a dangerous person. The fourth state is that of birth itself. Suddenly light, and suddenly an object: mother — the first divinity, and the only divinity finally, really. I mean this *daddy thing* is a joke... compared with mother."
 
+&nbsp;
+
+# Year 1915
+
+Before year 1923 Finn's Hotel
+
+* "landmark in cinema history, is D.W. Griffith's controversial 1915 epic, *The Birth of a Nation*"
+
+* "Booker T. Washington: Child of Slavery by Frederick Drinker (1915)"; suitable for Carol's boozing metaphors.
