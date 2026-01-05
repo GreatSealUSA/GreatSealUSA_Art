@@ -56,3 +56,15 @@ This Wikipedia section was added December 21 2025 https://en.wikipedia.org/w/ind
 
 * This quote does indeed seem legit, page 60, from the year 1973 book. https://books.google.com/books?id=wxUPAQAAMAAJ&q=%22Even+the+day+dreamers+seem+to+pick+up+speed+when+they+play+Spit.%22&dq=%22Even+the+day+dreamers+seem+to+pick+up+speed+when+they+play+Spit.%22&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X
 
+&nbsp;
+
+&nbsp;
+
+## 2025-12-21 observation from fan
+
+https://www.threads.com/@fredopops/post/DSjbfBOjJ-c/anearfulmusic-did-the-hive-or-the-writers-google-wiki-got-it-wrong-did-the
+
+"did the hive or the writers Google & Wiki got it wrong? Did the writers change Wiki before broadcast? It's such an odd little moment. We all know this origin story is dead wrong."
+
+<img width="1302" height="1276" alt="image" src="https://github.com/user-attachments/assets/e78266b3-20f5-4656-b27f-4075b65613cb" />
+
