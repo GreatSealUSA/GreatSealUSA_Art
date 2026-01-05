@@ -8,7 +8,10 @@
 https://www.youtube.com/watch?v=8-hJFoSgXfM     
 Yes - Leave It (Official Music Video)      
 3,673,755 views December 24, 2013      
-      Christmas Eve Dreamy Day, Public Dreaming Levant    
+
+       Christmas Eve Dreamy Day, Public Dreaming Levant    
+
+...
 
 I can feel no sense of measure    
 No illusions as we take    
