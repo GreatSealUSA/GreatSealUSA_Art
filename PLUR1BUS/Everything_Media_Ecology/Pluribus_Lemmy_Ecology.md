@@ -114,10 +114,11 @@ It shows. You are anti-literacy, anti-learning, anti-understanding, anti-compreh
 &nbsp;
 
 https://midwest.social/post/41063294/22015908       
-the_crotch @ sh.itjust.works      
-Monday, January 5, 2026     
 
-I did not read a word of that, Jessie Pinkman.
+      the_crotch @ sh.itjust.works      
+      Monday, January 5, 2026     
+
+      I did not read a word of that, Jessie Pinkman.
 
 &nbsp;
 
