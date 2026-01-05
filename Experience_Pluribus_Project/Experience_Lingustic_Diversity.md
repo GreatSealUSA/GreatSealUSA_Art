@@ -58,3 +58,24 @@ https://www.youtube.com/watch?v=OeVgcIFEh3I
 Christmas Eve publication on You too Tube     
 
 All of us, Pale Blue Dot, Pluribus world order!    
+
+&nbsp;
+
+# "We Are All Inside The Mind"
+
+https://youtu.be/WoiJVkdDbOo?t=217     
+December year 1964     
+2,409 views June 29, 2020    
+
+"You know... We are All inside the mind of this dreamer. Mr. Earwicker" - Jean Erdman, December 1964
+
+The Coach with The Six Insides   
+The Coach with the 6 Insides   
+
+https://peterchrisp.blogspot.com/2021/12/the-coach-with-six-insides.html     
+"Happy New Year Wakeans!"     
+Friday, 31 December 2021    
+
+&nbsp;
+
+* In other out-of-band... "the number 6 on the Great Seal of the U.S. has meaning, appearing as 6 red stripes on the shield, representing hardiness and valor, alongside 7 white stripes, all symbolizing the original 13 states' unity under the blue "Chief" (Congress), signifying perseverance and justice; the overall design emphasizes the new nation's strength through divine guidance, as shown by the 13 stars forming a new constellation and the unfinished pyramid on the reverse" - Google Search summary 2025-01-05
