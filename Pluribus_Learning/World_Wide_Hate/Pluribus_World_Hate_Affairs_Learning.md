@@ -63,3 +63,7 @@ Can you hear the dead Jean Erdman calling you to dance?
 # .
 
 Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***." - [April 24, 2015](https://icds.ee/en/peter-pomerantsev-russia-uses-fluid-ideology-to-undermine-the-eu/)    
+
+There is still time to wake up from the https://www.FinnegansWeb.Com/wiki/index.php/Page_581 **Surkov MonoMyth patterns**, *Pluribus We All* - please turn to Page 581 of James Joyce's book Finnegans Wake. OPERA_A With Love, playlist https://www.youtube.com/playlist?list=PLcYhoGnK9I9RFWwORnUsswAF0trypjGTW
+
+Grasp, [please, grasp](https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s). "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***." - [April 24, 2015](https://icds.ee/en/peter-pomerantsev-russia-uses-fluid-ideology-to-undermine-the-eu/)    
