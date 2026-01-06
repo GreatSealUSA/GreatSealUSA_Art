@@ -4,7 +4,7 @@ The human persons and *We The People* common ground, our common Pluribus freedom
 
 1. [Age 7](Age_7)
 
-2. [Age 13)(Age_13)
+2. [Age 13](Age_13)
 
 3. [Age 21](Age_21)
 
