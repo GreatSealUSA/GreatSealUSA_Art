@@ -57,7 +57,7 @@ Can you hear dead man James Joyce calling?
 Can you hear the dead professor from Sarah Lawrence College calling you?   
 Can you hear the dead Founding Fathers calling you?    
 Can you hear the funeral wake of Tim Finnegan ear-wicker [ear](https://youtu.be/b7k0a5hYnSI?list=TLPQMDQwMTIwMjasqGaXP8OeQQ&t=31)-wigs calling you?    
-Can you hear the dead Jean Erdman calling you to dance?    
+Can you hear the [dead](https://www.jcf.org/post/an-interplay-of-opposites) Jean Erdman calling you to dance?    
 Can you hear the wake up alarm from [the night](https://www.youtube.com/watch?v=2EH_KNfRWSs)mares of history?    
 
 * "The name Earwicker is derived from a fictional anecdote where a king finds HCE catching earwigs in a garden. Joyce also plays on the word "earwigging," meaning eavesdropping or whispering into someone's ear, which relates to the themes of gossip and rumor that plague the character throughout the book." - Google [Search, Alphabet](https://youtu.be/mzvk0fWtCs0?t=126) Search Organization; 2026-01-06 noonish / afternoon USA OPERA_A Pale Blue Dot Pride, *We The People*, teachers, Free Masons reaching everyone with liberation of all public science fiction stories. can you hear me earworm sounds, can you sing a book out loud? https://www.youtube.com/watch?v=_HDMCCLlGl4  
