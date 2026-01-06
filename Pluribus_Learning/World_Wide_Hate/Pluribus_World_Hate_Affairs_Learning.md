@@ -55,7 +55,7 @@ Repeating, Repeater, [Finnegans Wake *singsong book* repeats](https://github.com
 Can you hear James Joyce's teaching calling you?   
 Can you hear dead man James Joyce calling?    
 Can you hear the dead professor from Sarah Lawrence College calling you?   
-Can you hear the dead Founding Fathers calling you?    
+Can you hear the dead Founding Fathers [call*in*](https://www.youtube.com/watch?v=cz2CAtExXgQ)g you?    
 Can you hear the funeral wake of Tim Finnegan ear-wicker [ear](https://youtu.be/b7k0a5hYnSI?list=TLPQMDQwMTIwMjasqGaXP8OeQQ&t=31)-wigs calling you?    
 Can you hear the [dead](https://www.jcf.org/post/an-interplay-of-opposites) Jean Erdman calling you to dance?    
 Can you hear the wake up alarm from [the night](https://www.youtube.com/watch?v=2EH_KNfRWSs)mares of history?    
