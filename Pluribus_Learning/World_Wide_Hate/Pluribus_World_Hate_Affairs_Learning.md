@@ -15,7 +15,7 @@ https://icds.ee/en/peter-pomerantsev-russia-uses-fluid-ideology-to-undermine-the
 
 Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***." - April 24, 2015
 
-### Nightmare, dream state, *Wake Up!" Please!!!
+### Nightmare, dream state, *Wake Up!* Please!!!
 
 Irish author James Joyce is the best tool for teaching how to grasp. Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***
 
