@@ -20,4 +20,4 @@ Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be ta
 Irish author James Joyce is the best tool for teaching how to grasp. Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***
 
 * **"History, Stephen said, is a nightmare from which I am trying to awake.”**
-― James Joyce, Ulysses. Covered by American Professor, Sarah Lawrence College teacher. Page 62](https://www.google.com/books/edition/Mythic_Worlds_Modern_Words/Y9lxoWD9yHMC?hl=en&gbpv=1&dq=%22History,+Stephen+said,+is+a+nightmare+from+which+I+am+trying+to+awake.%E2%80%9D&pg=PA62&printsec=frontcover) of book *Mythic Worlds, Modern Words: On the Art of James Joyce*
+― James Joyce, Ulysses. [Covered by American Professor, Sarah Lawrence College Teacher. Page 62](https://www.google.com/books/edition/Mythic_Worlds_Modern_Words/Y9lxoWD9yHMC?hl=en&gbpv=1&dq=%22History,+Stephen+said,+is+a+nightmare+from+which+I+am+trying+to+awake.%E2%80%9D&pg=PA62&printsec=frontcover) of book *Mythic Worlds, Modern Words: On the Art of James Joyce*
