@@ -10,3 +10,6 @@ The human persons and *We The People* common ground, our common Pluribus freedom
 
 4. [Age 35](Age_35)
 
+5. [World Wide Hate](World_Wide_Hate)
+
+can we escape the hate affairs? transition to love foreign affairs?
