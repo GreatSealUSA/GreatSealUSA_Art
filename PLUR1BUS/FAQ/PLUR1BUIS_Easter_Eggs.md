@@ -60,11 +60,13 @@ This Wikipedia section was added December 21 2025 https://en.wikipedia.org/w/ind
 
 ## Remember folks...
 
-Remember folks, Carol thinks "the hive mind never lies!"
+Remember folks, **Carol thinks "the hive mind never lies!"**
 
 So this raises issues. You pick a card game that audience members remember from the 1970's. 
 
-This raises all kinds of issues. Such as in the co-pilot episodes, Carol couldn't find her house keys. And the milk level not being what Carol expected from the maid service statement. And the bomb toy vs. live explosive.
+This raises all kinds of issues. Such as in the co-pilot episodes, Carol couldn't find her house keys. And the milk level not being what Carol expected from the maid service statement. And the bomb toy vs. live explosive. Subverting expectations.
+
+* Alien intelligence concerns, probing humanity adapability and blind spots. "AI systems “will very quickly develop two subgoals, if they’re smart: One is to stay alive… (and) the other subgoal is to get more control” https://www.cnn.com/2025/08/13/tech/ai-geoffrey-hinton
 
 Given the Finnegans Wake Minute 22 / Kepler 22 co-pilot episodes theme... is extreme galsighting / alien probing of her mind the game that is afoot?
 
