@@ -67,3 +67,12 @@ What about **Bible verse "1 John 4:20"**, what does it say about hate? Bible Boo
 
 [Cherry picking, nut picking.](/How_Can_You/How_Can_You_Cherry_PIck_World_Ideas.md)
 
+&nbsp;
+
+&nbsp;
+
+# Germany Bible Christians 
+
+ToDoL quote passage. Context complications for media audiences.  
+Mass Man   
+https://youtu.be/nEiI1dL3_ws?t=2897    
