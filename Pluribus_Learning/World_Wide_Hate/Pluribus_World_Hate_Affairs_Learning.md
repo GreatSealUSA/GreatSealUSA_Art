@@ -29,3 +29,14 @@ Irish author **James Joyce is the best tool** for teaching how to grasp. Grasp, 
 OPERA_A Calling We, Us, You, Me, Everyone, Pluribus, All of Us! Grasp James Joyce, please Great Seal USA Wake Up Callings! "World Hate Affairs", Happy Birthday July 4th 2026, year 250 USA birthday. Dangerous grounds of very difficult to grasp James Joyce rescue operations! https://www.youtube.com/watch?v=i17mgRK3GX8  5,908,322 views  March 20, 2018 - can you hear me? Can you hear me calling you! I'm with the year 1776 high command, a Roadie for the Founding Fathers with my operas! Thank you! May the Force Be With You, Year 1939 Wake!
 
 &nbsp;
+
+# Russia is the Enemy since March 2013
+
+https://youtu.be/i17mgRK3GX8?t=140
+
+Can you hear James Joyce's teaching calling you?   
+Can you hear dead man James Joyce calling?    
+Can you hear the dead professor from Sarah Lawrence College calling you?   
+Can you hear the dead Founding Fathers calling you?    
+Can you hear the funeral wake of Tim Finnegan ear-wicker ear-wig calling you?    
+Can you hear the dead Jean Erdman calling you to dance?     
