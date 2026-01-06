@@ -42,3 +42,16 @@ Can you hear the funeral wake of Tim Finnegan ear-wicker ear-wig calling you?
 Can you hear the dead Jean Erdman calling you to dance?     
 
 Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***." - [April 24, 2015](https://icds.ee/en/peter-pomerantsev-russia-uses-fluid-ideology-to-undermine-the-eu/)    
+
+**Call to Intellectaul Arms against Putin's Russia***
+
+* *He comes down, descending into the world of the pairs of opposites, the field of action. One mode of action is war and the other is peace. So in one of his feet the eagle holds thirteen arrows—that’s the principle of war. In the other he holds a laurel leaf with thirteen leaves—that is the principle of peaceful conversation. The eagle is looking in the direction of the laurel. That is the way these idealists who founded our country would wish us to be looking — diplomatic relationships and so forth. But **thank God he’s got the arrows in the other foot, in case this doesn’t work**. Now, what does the eagle represent? He represents what is indicated in this radiant sign above his head. I was lecturing once at the Foreign Service Institute in Washington on Hindu mythology, sociology, and politics. There’s a saying in the Hindu book of politics that the ruler must hold in one hand the weapon of war, the big stick, and in the other the **peaceful sound of the song of cooperative action**. And there I was, standing with my two hands like this, and everybody in the room laughed. **I couldn’t understand**. And then they began pointing. I looked back, and here was this picture of the eagle hanging on the wall behind my head in just the same posture that I was in. But when I looked, I also noticed this sign above his head, and that there were nine feathers in his tail. Nine is the number of the descent of the divine power into the world. When the Angelus rings, it rings nine times."
+
+https://youtu.be/i17mgRK3GX8?t=140
+
+Can you hear James Joyce's teaching calling you?   
+Can you hear dead man James Joyce calling?    
+Can you hear the dead professor from Sarah Lawrence College calling you?   
+Can you hear the dead Founding Fathers calling you?    
+Can you hear the funeral wake of Tim Finnegan ear-wicker ear-wig calling you?    
+Can you hear the dead Jean Erdman calling you to dance?    
