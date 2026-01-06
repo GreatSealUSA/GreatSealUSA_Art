@@ -62,6 +62,23 @@ This Wikipedia section was added December 21 2025 https://en.wikipedia.org/w/ind
 
 Remember folks, Carol thinks "the hive mind never lies!"
 
+So this raises issues. You pick a card game that audience members remember from the 1970's. 
+
+This raises all kinds of issues. Such as in the co-pilot episodes, Carol couldn't find her house keys. And the milk level not being what Carol expected from the maid service statement. And the bomb toy vs. live explosive.
+
+Given the Finnegans Wake Minute 22 / Kepler 22 co-pilot episodes theme... is extreme galsighting / alien probing of her mind the game that is afoot?
+
+The scene where the hive mind says they did not know about Carol's liking trains. 
+
+Is one key aspect of the show to demonstrate to the audience how adaptive manipulation works? Indoctrination that is intelligent and smart, and not the obvious low-effort advertising and marketing people notice, but the more subtle?
+
+This mistake has that level of crafting and boldness. UK and wrong decade and totally important to share trivia information. It just reeks of excellent media ecology teaching.
+
+* “We do not measure a culture by its output of undisguised trivialities but by what it claims as significant.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. Boook, page 16.](https://books.google.com/books?id=oup6iagfox8C&pg=PA16&dq=%E2%80%9CWe+do+not+measure+a+culture+by+its+output+of+undisguised+trivialities+but+by+what+it+claims+as+significant.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X)
+
+This idea of Professor Postman's seems [to be really what Vince Gilligan was hammering on with the *climb out of social media cesspool* lecture at the February 15, 2025 writers guild awards](../Media_Ecology/Vince_Gilligan_Climbing_out_of_Social_Media_Cesspool.md)...
+
+
 &nbsp;
 
 &nbsp;
