@@ -40,3 +40,5 @@ Can you hear the dead professor from Sarah Lawrence College calling you?
 Can you hear the dead Founding Fathers calling you?    
 Can you hear the funeral wake of Tim Finnegan ear-wicker ear-wig calling you?    
 Can you hear the dead Jean Erdman calling you to dance?     
+
+Grasp, please, grasp. "dizzying, shape-shifting use of ideology, which can be tactically very agile and ***very difficult to grasp***." - [April 24, 2015](https://icds.ee/en/peter-pomerantsev-russia-uses-fluid-ideology-to-undermine-the-eu/)    
