@@ -110,3 +110,5 @@ https://www.youtube.com/watch?v=JZ8ODlt8leo
 Rejoyce · Jefferson Airplane    
 After Bathing At Baxters    
 Originally released 1967.    
+
+* "Jefferson Airplane's "Rejoyce" is a nonsensical, experimental song from their 1967 album After Bathing at Baxter's, heavily inspired by James Joyce's novel Ulysses, using characters like Mulligan and referencing Molly Bloom's affair with Boylan, all set to complex, shifting musical structures mirroring Joyce's stream-of-consciousness style to create a psychedelic homage to the book. " Google Search 2026-01-09 Friday morning USA - *not so non-sense*. Mocking messages away.
