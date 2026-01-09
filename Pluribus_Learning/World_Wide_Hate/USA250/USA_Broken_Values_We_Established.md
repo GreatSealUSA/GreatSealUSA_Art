@@ -14,7 +14,7 @@ https://Old.Reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_ste
 
 **"We Are Now On One Side Of The Pyramid"**
 
-"And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason."
+"And so we are now on one side of the pyramid. **We’ve moved from one to two**. We are politically, **historically**, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason."
 
 The Free Masons symbolism has been forgotten. It is unknown today in January 2026. The { comprehension, understanding, education, teaching } has simply not been undertaken.
 
