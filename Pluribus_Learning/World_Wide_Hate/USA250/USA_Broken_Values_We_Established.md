@@ -147,3 +147,4 @@ And his monomyth! Ah ho! Say no more about it! I'm sorry!
 I saw. I'm sorry! I'm sorry to say I saw!" - https://www.FinnegansWeb.com/wiki/index.php/Page_581
      * Soon they are going to be in bloom / bloomsday. https://www.youtube.com/watch?v=Sq8OU-7JDFA&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=3 7,403,210 views February 6, 2008
 
+“.. the **United States has broken** with the values that it helped to establish .. “.. we have now moved beyond the stage where we can lament the lack of respect for international law or the erosion of the international order; we are far beyond that, I believe.” - Friday, January 9, 2026
