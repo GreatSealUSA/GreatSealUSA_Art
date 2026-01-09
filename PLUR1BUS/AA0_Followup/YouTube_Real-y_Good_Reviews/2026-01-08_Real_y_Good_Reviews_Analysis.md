@@ -41,4 +41,42 @@ Like military boot camp, military indoctrination of children, complete removal o
 
 &nbsp;
 
-Mushrooms / James Joyce lectures by Kinneth Mc???
+&nbsp;
+
+https://youtu.be/mZDcvAVDZyQ?t=506     
+
+8613 number. 3 answers.
+
+1. Chemistry: Magic Mushrooms
+
+Mushrooms / James Joyce lectures by Terence McKenna https://www.youtube.com/watch?v=0QrWfbYFtNk 104,947 views April 12, 2015
+
+* REMINDER CONTEXT: Minute 22 of co-pilot Episode One invokes James Joyce's Finnegans Wake book at the Zero Hour, countdown at "00:00:00:00"
+
+https://youtu.be/mZDcvAVDZyQ?t=640
+
+2. Number 8613 Hebrew reference / Israel stories
+
+Hebriew: toph (תֹּף)
+
+https://youtu.be/mZDcvAVDZyQ?t=711   
+"What's burning? The ego"    
+
+* "known in Sanskrit as viveka, “discrimination.” There is a very important Buddha figure who is shown holding a **flaming sword** high over his head — and so what is that sword for? It is the sword of discrimination, separating the merely temporal from the eternal. It is the sword distinguishing that which is enduring from that which is merely passing. The tick-tick-tick of time shuts out eternity. We live in this field of time. But what is reflected in this field is an eternal principle made manifest."
+* "Sit in a room and read — and read and read. And read the right books by the right people. Your mind is brought onto that level, and you have a nice, mild, **slow-burning rapture** all the time." - which ties heavily into the { book authoring, book touring, book writing, book publishing, book selling, book reading themes of PLUR1BUS Season One }
+* "Finnegans Wake has to do with an event that occurred in Phoenix Park, which is a major park in Dublin. The phoenix is the bird that burns itself to death and then comes to life renewed. Phoenix Park thus becomes the Garden of Eden where the Fall took place, and where the cross was planted on the skull of Adam: O felix culpa (“O Phoenix culprit!” says Joyce). And so we have death and redemption."
+
+Carol's stem cell metaphors of blank slate / stemming of other cells. A super-virgin lesbian marriage, dual virgins to men / semen / seamen pirates.
+
+* "the Goddess begins coming back. There is actually an Upanishad from about the seventh century B.c.— which is just about the time she is coming back to force in the Aegean as well — where the Vedic gods are together, and they see a strange sort of amorphous thing down the way, a kind of smoky fog, and they ask, “What’s that?” None of them knows what it could be. So one of them suggests, “I’ll go find out what that is.” And he goes over to this smoky thing and says, **“I’m Agni, the Lord of Fire; I can burn anything**. Who are you?” And out of the fog there comes flying a piece of straw, which falls on the ground, and a voice says, “Let’s see you burn that.” Agni finds that he can’t ignite it. So he goes back to the other gods and says, “This surely is strange!” “Well, then,” says the Lord of Wind, “let me try.” So over he goes, and the same sort of thing takes place. “I’m Vayu, Lord of the Wind, I can blow anything around.” Again a straw is thrown. “Let’s see you blow that.” And he can’t. So he, too, returns. Then Indra, the greatest of the Vedic gods, approaches, but as he draws near, the apparition vanishes, and where it had been, a woman appears, a beautiful, mysterious woman, who instructs the gods, revealing to them the mystery of the ground of their own being. “That is the ultimate mystery of all being,” **she tells them, “from which you boys yourselves have received your powers.** And It can turn your powers off or on, as It wills.” The Indian name for that Being of all beings is **brahman (ब्रह्मन्), which is a neuter noun, neither male nor female**. And the Indian name for the woman is Maya-Shakti-Devi, “Goddess Giver of Life and Mother of Forms.” And there in that Upanishad **she appears as the teacher of the Vedic gods themselves** concerning the ultimate ground and source of their own powers and being. MOYERS: It’s the female wisdom. CAMPBELL: It’s the female as the giver of forms. She is the one who gave life to the forms and she knows where they came from. It is from that which is beyond male and female."
+
+So there is a theme of Carol teaching the gods of the hive mind, a programmer hacking the hive mind with lessons and Finnegans Wake prankqueen - her fiction character Pirate Lady / her pen and her unpublished Bitter Pupa book.
+
+* REMINDER CONTEXT: Minute 22 of co-pilot Episode One invokes James Joyce's Finnegans Wake book at the Zero Hour, countdown at "00:00:00:00"
+
+* "The Prankquean (a transformation of Grace O'Malley) arrives at the castle of Jarl van Hoother (a figure representing the father/patriarch) three separate times.
+"Schooling" the Men: Each time she visits, she asks the Jarl a riddle: "Why do I am alook alike a possum?" When he refuses to answer or engage, she kidnaps one of his sons—first the "Tristopher" and then the "Hilary" — and takes them back to her "wilderness" to educate or "school" them.
+The Transformation: Under her care, the sons are altered. She "lathers" and "washes" them, effectively changing their rigid identities. For instance, the "sad" son becomes "sunny" and the "sunny" son becomes "sad."
+The Resolution: By the third visit, the Jarl is forced to negotiate. The episode concludes with a "pact" (the creation of the first peace-treaty or "skool"), symbolizing the breaking of patriarchal stagnation through the female pirate's intervention." - Google Search summary 2026-01-08 night USA
+
+* "In Finnegans Wake, James Joyce reimagines the Celtic pirate Gráinne Ní Mháille (anglicized as Grace O'Malley) as the Prankquean, a "pirate lady" who disrupts the patriarchal order of the castle-dwelling "Jarl van Hoother". Using a "portmanteau" of names such as "her grace o'malice" and "Annah the Allmaziful," Joyce crafts a legendary "schooling" where she kidnaps the Jarl’s twin sons to "wash" and re-educate them into their opposites, transforming the happy "Tristopher" into a sad "Tristian" and the sad "Hilary" into a happy "Luderman". This linguistic "piracy" mirrors the historical Gráinne’s defiance, forcing the rigid men of the castle into a "first peace" and symbolic renewal through her transformative, feminine power." - Google Search sumamry 2026-01-08 night USA
