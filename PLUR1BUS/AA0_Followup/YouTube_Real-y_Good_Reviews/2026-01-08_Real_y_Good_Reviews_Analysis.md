@@ -112,3 +112,18 @@ Carol "choose the pain over numbness"
 https://youtu.be/mZDcvAVDZyQ?t=1056   
 
 * "and Isolde’s nurse realizes what has happened, she goes to Tristan and says, **“You have drunk your death.” And Tristan says, “By my death, do you mean this pain of love?”** — because that was one of the **main points, that one should feel the sickness of love**. There’s no possible fulfillment in this world of that identity one is experiencing. Tristan says, “If by my death, you mean **this agony of love, that is my life**. If by my death, you mean the punishment that we are to suffer if discovered, I accept that. And if by my death, you mean eternal punishment in the fires of Hell, I accept that, too.” Now, that’s big stuff."
+
+&nbsp;
+
+# No New Chapters
+
+https://youtu.be/mZDcvAVDZyQ?t=1238
+
+Library static.  
+No New Chapters.  
+Authoring emphasis   
+
+Children are the future, future of society.   
+
+* "JOSEPH CAMPBELL: It is this sociological function of myth that has taken over in our world—and it is out of date. BILL MOYERS: What do you mean? CAMPBELL: **Ethical laws. The laws of life as it should be in the good society. All of Yahweh’s pages and pages and pages** of what kind of clothes to wear, how to behave to each other, and so forth, in the first millennium B.C."
+* "Earlier, though, it was not a mechanistic world in which the hero moved but a world alive and responsive to his spiritual readiness. Now it has become to such an extent a sheerly mechanistic world, as interpreted through our physical sciences, Marxist sociology, and behavioristic psychology, that we’re nothing but a predictable pattern of wires responding to stimuli. This nineteenth-century interpretation has **squeezed the freedom of the human will out** of modern life."
