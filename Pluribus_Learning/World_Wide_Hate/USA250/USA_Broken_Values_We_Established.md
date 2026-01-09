@@ -70,3 +70,18 @@ OPERA_A - *in the end* ... https://www.youtube.com/watch?v=eVTXPUF4Oz4 The way y
 * "This is the first nation in the world that was ever established on the basis of reason instead of simply warfare. These were eighteenth-century deists, these gentlemen. Over here we read, “In God ***We Trust***.” But that is **not the god of the Bible. These men did not believe in a Fall.** They did not think the mind of man was cut off from God. The mind of man, cleansed of secondary and merely temporal concerns, beholds with the radiance of a cleansed mirror a reflection of the rational mind of God. Reason puts you in touch with God. Consequently, for these men, there is no special revelation anywhere, and none is needed."
 
 We mocked it all away. We mocked and mocked and mocked. We joked, we memed, we amused at the suffering.
+
+&nbsp;
+
+&nbsp;
+
+# Equinox
+
+I know I'm a fool. What can I say?
+
+In the lead up to July 4, 1976 - USA 200 years.    
+Once Long Ago!   
+
+https://www.youtube.com/watch?v=CkkQPxoxJJY    
+8,878,978 views Sunday, July 29, 2018     
+
