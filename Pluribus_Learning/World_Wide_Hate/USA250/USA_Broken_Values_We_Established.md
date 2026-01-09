@@ -137,3 +137,13 @@ xAAB6CKDgFE
 "On the last day of our studio session in San Diego for my album Heading to Ohio, we decided we ought to setup and play live together.The Load Out was the perfect way to say goodbye to our time in the tracking room and to say Thanks to all of you for listening. So THANK YOU :)"    
 
 Now the seats are all empty, let humanity take the stage. Pack it up, time for a reboot of the Great Seal of the United States of America values. To revisit the Free Mason blueprints and organize again, again... http://PeterChrisp.BlogSpot.com/2014/05/the-sentence-it-took-joyce-twelve-years.html
+
+&nbsp;
+
+* ...
+  * "At the carryfour with awlus plawshus, their happy-
+ass cloudious! And then and too the trivials! And their bivouac!
+And his monomyth! Ah ho! Say no more about it! I'm sorry!
+I saw. I'm sorry! I'm sorry to say I saw!" - https://www.FinnegansWeb.com/wiki/index.php/Page_581
+     * Soon they are going to be in bloom / bloomsday. https://www.youtube.com/watch?v=Sq8OU-7JDFA&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=3
+
