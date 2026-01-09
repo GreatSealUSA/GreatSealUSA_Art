@@ -63,7 +63,7 @@ We are not reaching the end, we are inside the end. This is the anti-goodness en
 * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
 
 OPERA_A - *in the end* ... https://www.youtube.com/watch?v=eVTXPUF4Oz4 The way you were mocking... 
-2,170,532,278 views October 26, 2009 
+2,170,532,278 views Monday, October 26, 2009 
 
 ## 🎼 *Trust in You*
 
