@@ -22,3 +22,19 @@ You can start Speaking Up!
 Maybe there is a way out of the cage where you live! Maybe one of these days...
 
 ... The Pluribus Experiences We All, All of Us, Pluribus ....      
+
+&nbsp;
+
+&nbsp;
+
+# The Fallen, The Outcast 
+
+We All Are! 
+
+"You can be amazing! You can turn a phrase into a weapon or a drug... You can be the outcast!"
+
+* "We’ve inherited the circle with the four cardinal points and three hundred and sixty degrees. The official Sumerian year was three hundred and sixty days with five holy days that don’t count, which are outside of time and in which **they had ceremonies relating their society to the heavens. Now we’re losing this sense of the circle in relation to time**, because we have digital time, where you just have time buzzing by. Out of the digital you get the sense of the flow of time. At Penn Station in New York, there’s a clock with the hours, the minutes, the seconds, the tenths of seconds, and the hundredths of seconds. When you see the hundredths of a second buzzing by, you realize how time is running through you.
+The circle, on the other hand, represents totality. Everything within the circle is one thing, which is encircled, enframed. That would be the spatial aspect. But the temporal aspect of the circle is that you leave, go somewhere, and always come back. God is the alpha and the omega, the source and the end. The circle suggests immediately a completed totality, whether in time or in space."
+
+OPERA_A "you leave, go somewhere, and always come back" https://www.youtube.com/watch?v=sdCoQiiWVW4 16,632 views July 1, 2012 ... "Musa & Amelia - Drops of Jupiter" - did *you FALL* for a shooting star?
+
