@@ -96,9 +96,19 @@ https://youtu.be/mZDcvAVDZyQ?t=729
 
 https://youtu.be/mZDcvAVDZyQ?t=843    
 
+Signal is a planetary cry for help.    
 Fire spread like a virus, non-thinking spreading.    
 
 https://youtu.be/mZDcvAVDZyQ?t=941   
 "Carol feels everything"    
 Hyper-empathy metaphors. Hyper-Compassion metaphors.   
 OPERA_A "I feel everything" https://www.youtube.com/watch?v=qmV5MW_XAtg 19,952,095 views July 27, 2017   
+
+&nbsp;
+
+# Choose the pain 
+
+Carol "choose the pain over numbness"    
+https://youtu.be/mZDcvAVDZyQ?t=1056   
+
+* "and Isolde’s nurse realizes what has happened, she goes to Tristan and says, **“You have drunk your death.” And Tristan says, “By my death, do you mean this pain of love?”** — because that was one of the **main points, that one should feel the sickness of love**. There’s no possible fulfillment in this world of that identity one is experiencing. Tristan says, “If by my death, you mean **this agony of love, that is my life**. If by my death, you mean the punishment that we are to suffer if discovered, I accept that. And if by my death, you mean eternal punishment in the fires of Hell, I accept that, too.” Now, that’s big stuff."
