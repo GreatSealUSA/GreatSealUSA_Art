@@ -145,5 +145,5 @@ Now the seats are all empty, let humanity take the stage. Pack it up, time for a
 ass cloudious! And then and too the trivials! And their bivouac!
 And his monomyth! Ah ho! Say no more about it! I'm sorry!
 I saw. I'm sorry! I'm sorry to say I saw!" - https://www.FinnegansWeb.com/wiki/index.php/Page_581
-     * Soon they are going to be in bloom / bloomsday. https://www.youtube.com/watch?v=Sq8OU-7JDFA&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=3
+     * Soon they are going to be in bloom / bloomsday. https://www.youtube.com/watch?v=Sq8OU-7JDFA&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=3 7,403,210 views February 6, 2008
 
