@@ -1,4 +1,4 @@
-# USA: Broken Values, We Established
+# USA: Broken Values, *We* Established
 
 Friday, January 9, 2026 morning USA
 
