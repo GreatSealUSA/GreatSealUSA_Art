@@ -90,3 +90,23 @@ https://www.youtube.com/watch?v=CkkQPxoxJJY
 ![Google Search summary screen shot, copied text in-page](https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Pluribus_Learning/World_Wide_Hate/USA250/Equinox_meaning_Google_Search_Screenshot%20from%202026-01-09%2008-13-53.png)    
 "The equinox signifies equal day and night, representing balance, cycles, and spiritual turning points, crucial for Freemasonry's emphasis on inner light, cosmic order, and the Solstice-linked St. John's Days. James Joyce's Finnegans Wake uses the precession of the equinoxes (Earth's axial wobble) and cyclical history, mirroring the novel's dreamlike, repeating narrative of birth, death, and rebirth, linking ancient myths to universal patterns." - Google Search 2026-01-09 Friday morning USA   
 
+&nbsp;
+
+&nbsp;
+
+# Revival and [ReJoyce](https://www.youtube.com/watch?v=JZ8ODlt8leo)
+
+https://www.youtube.com/playlist?list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN    
+ggghhhh4r554tghthhhddhwwtwyyarhfdgfnjgffgs   
+
+https://www.youtube.com/watch?v=aRsEYUAfk3E&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=1    
+"Alan Parsons, Sirius/Eye in the sky live"    
+779,973 views Tuesday January 20, 2015   
+Alan Parsons Festival Tour 2014, Germany.    
+aRsEYUAfk3E   
+
+https://www.youtube.com/watch?v=JZ8ODlt8leo    
+84,196 views February 25, 2017     
+Rejoyce · Jefferson Airplane    
+After Bathing At Baxters    
+Originally released 1967.    
