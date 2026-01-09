@@ -127,9 +127,13 @@ https://www.Google.com/books/edition/Report_to_the_Senate_on_the_Meeting_Held/TY
 
 
 Roadies for The Founding Fathers    
+Roadies for Pale Blue Dot, Planet Earth    
+Roadies for All Mankind, For All Humanity    
 Troubadours for the Free Masons  
 "The Load Out - Jackson Browne | Full Band Cover (Live in Studio)"    
 https://www.youtube.com/watch?v=xAAB6CKDgFE&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=2    
 xAAB6CKDgFE   
 28,828 views Premiered August 1, 2021     
 "On the last day of our studio session in San Diego for my album Heading to Ohio, we decided we ought to setup and play live together.The Load Out was the perfect way to say goodbye to our time in the tracking room and to say Thanks to all of you for listening. So THANK YOU :)"    
+
+Now the seats are all empty, let humanity take the stage. Pack it up, time for a reboot of the Great Seal of the United States of America values. To revisit the Free Mason blueprints and organize again, again... http://PeterChrisp.BlogSpot.com/2014/05/the-sentence-it-took-joyce-twelve-years.html
