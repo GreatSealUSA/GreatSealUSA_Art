@@ -4,7 +4,7 @@ Friday, January 9, 2026 morning USA
 
 Front page of Reddit social media /r/All
 
-“.. the United States has broken with the values that it helped to establish .. “.. we have now moved beyond the stage where we can lament the lack of respect for international law or the erosion of the international order; we are far beyond that, I believe.”
+“.. the United States has broken with the values that it helped to establish .. “.. we have now moved beyond the stage where we can lament the lack of respect for international law or the erosion of the international order; we are far beyond that, I believe.” - Friday, January 9, 2026
 
 https://Old.Reddit.com/r/UnderReportedNews/comments/1q85siy/german_president_steinmeier_the_united_states_has/
 
