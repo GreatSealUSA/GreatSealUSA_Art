@@ -89,3 +89,16 @@ https://youtu.be/mZDcvAVDZyQ?t=729
 "And the process is agony. It has to be. Your being unmade. Your *self* is being incarcerated."    
 
 * "JOSEPH CAMPBELL: **God is horrific**. Any god who can invent Hell is no candidate for the Salvation Army. The end of the world, think of it! But **there is a Muslim saying about the Angel of Death: “When the Angel of Death approaches, he is terrible. When he reaches you, it is bliss.”** In Buddhist systems, more especially those of Tibet, the meditation Buddhas appear in two aspects, one peaceful and the other wrathful. If you are clinging fiercely to your ego and its little temporal world of sorrows and joys, hanging on for dear life, it will be the wrathful aspect of the deity that appears. **It will seem terrifying**. But the moment your ego yields and gives up, that same meditation Buddha is experienced as a bestower of bliss. BILL MOYERS: Jesus did talk of bringing a sword, and I don’t believe he meant to use it against your fellow. He **meant it in terms of opening the ego — I come to cut you free from the binding ego** of your own self."
+
+&nbsp;
+
+# Signal Cry for Help
+
+https://youtu.be/mZDcvAVDZyQ?t=843    
+
+Fire spread like a virus, non-thinking spreading.    
+
+https://youtu.be/mZDcvAVDZyQ?t=941   
+"Carol feels everything"    
+Hyper-empathy metaphors. Hyper-Compassion metaphors.   
+OPERA_A "I feel everything" https://www.youtube.com/watch?v=qmV5MW_XAtg 19,952,095 views July 27, 2017   
