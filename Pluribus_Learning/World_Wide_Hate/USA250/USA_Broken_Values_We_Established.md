@@ -112,3 +112,24 @@ After Bathing At Baxters
 Originally released 1967.    
 
 * "Jefferson Airplane's "Rejoyce" is a nonsensical, experimental song from their 1967 album After Bathing at Baxter's, heavily inspired by James Joyce's novel Ulysses, using characters like Mulligan and referencing Molly Bloom's affair with Boylan, all set to complex, shifting musical structures mirroring Joyce's stream-of-consciousness style to create a psychedelic homage to the book. " Google Search 2026-01-09 Friday morning USA - *not so non-sense*. Mocking messages away.
+
+&nbsp;
+
+&nbsp;
+
+# Spaceship Earth - Pluribus
+
+"There are no passengers **on Spaceship Earth. We are all crew!**"      
+https://www.Google.com/books/edition/Report_to_the_Senate_on_the_Meeting_Held/TYufMt5Wsn4C?hl=en&gbpv=1&dq=%22There+are+no+passengers+on+Spaceship+Earth.+We+are+all+crew%22&pg=RA10-PA27&printsec=frontcover     
+"United States. Senate Delegation to the Canada-United States Interparliamentary Group"    
+**Page 27**     
+**Year 1959**    
+
+
+Roadies for The Founding Fathers    
+Troubadours for the Free Masons  
+"The Load Out - Jackson Browne | Full Band Cover (Live in Studio)"    
+https://www.youtube.com/watch?v=xAAB6CKDgFE&list=PLlVsYGOydVm3q8wGSY72atkALdT05j0NN&index=2    
+xAAB6CKDgFE   
+28,828 views Premiered August 1, 2021     
+"On the last day of our studio session in San Diego for my album Heading to Ohio, we decided we ought to setup and play live together.The Load Out was the perfect way to say goodbye to our time in the tracking room and to say Thanks to all of you for listening. So THANK YOU :)"    
