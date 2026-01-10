@@ -25,7 +25,7 @@ MOYERS: Man-woman, life-death, good-evil —
 
 CAMPBELL: — *I and you*, this and that, true and untrue—every one of them has its opposite. But mythology suggests that behind that duality there is a singularity over which this plays like a shadow game. “Eternity is in love with the productions of time,” says the poet Blake.\
 
-* This is year 1985, 1986, 1987 - PLUR1BUS Q4 year 2025 is "We Is Us" / We / Us / Year 2025 metaphors of Vince Gilligan revival of 1988 Power of Myth printing book on paper!!!
+* This is year 1985, 1986, 1987 - PLUR1BUS Q4 year 2025 is "We Is Us" / We / Us / Year 2025 metaphors of Vince Gilligan revival of 1988 Power of Myth printing book on paper!!! What a fuckin' GOD DAMN URL! https://RU.Wikipedia.org/wiki/We_Is_Us
 
 MOYERS: What does that mean, “Eternity is in love with the productions of time”?
 
