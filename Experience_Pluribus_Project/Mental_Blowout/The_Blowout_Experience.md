@@ -6,7 +6,7 @@ ____
 
 * "So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that sort of sickly sense that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before all this information." - Year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
-* &nbsp;
+&nbsp;
 
 * # How Long?
 
