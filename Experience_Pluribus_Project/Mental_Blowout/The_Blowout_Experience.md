@@ -8,7 +8,7 @@ ____
 
 &nbsp;
 
-* # How Long?
+# How Long?
 
 OPERA_A https://www.youtube.com/watch?v=DP5DflRasOk (Volume low: Crank It Up!) 8,717,370 views  December 3, 2015
 
