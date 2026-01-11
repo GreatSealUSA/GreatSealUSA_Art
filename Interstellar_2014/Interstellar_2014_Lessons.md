@@ -30,7 +30,7 @@ People don't understand the dollar bill, in their face their whole life. One has
 
 &nbsp;
 
-# January 2025 teaching
+# January 2026 teaching
 
 https://www.youtube.com/watch?v=8lDyKf8sKAM
 
