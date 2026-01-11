@@ -30,6 +30,13 @@ People don't understand the dollar bill, in their face their whole life. One has
 
 &nbsp;
 
+# January 2025 teaching
+
+https://www.youtube.com/watch?v=8lDyKf8sKAM
+
+&nbsp;
+
+
 # Junk media
 
 https://www.youtube.com/watch?v=O494CypwKX0     
