@@ -38,7 +38,7 @@ https://www.youtube.com/watch?v=8lDyKf8sKAM
 
 https://youtu.be/8lDyKf8sKAM?t=610
 
-* "Now, where do these aspirations come from? They come from a very wonderful, **childlike thing**: fascination. You know, if you wanted to make money today… I think I know economists, but I'll bet the thing to do would be to invest your money in something like cameras—things that people play with, things that they are fascinated by. These fascinations are the creations of new activities. And when we look at the old cultures we can see—and some of it is very strange to see indeed…" - Lecture I.1.1 - The Celebration of Life. Joseph Campbell. March 1, 1967
+* "Now, where do these aspirations come from? They come from a very wonderful, **childlike thing**: fascination. You know, if you wanted to make money today… I think I know economists, but I'll bet the thing to do would be to invest your money in something like cameras — things that people play with, things that they are fascinated by. These fascinations are the creations of new activities. And when we look at the old cultures we can see — and some of it is very strange to see indeed…" - Lecture I.1.1 - The Celebration of Life. Joseph Campbell. March 1, 1967
 
 
 &nbsp;
