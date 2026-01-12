@@ -30,3 +30,14 @@ Page 227 https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA227&dq=Well,+the+mo
 MOYERS: In this spiritual transformation that you’re talking about, won’t the changes depend on those feminine characteristics such as nurturing, creativity, and collaboration instead of competition? Isn’t this at the heart of the feminine principle we’re discussing?
 
 CAMPBELL: Well, the **mother loves all her children — the stupid ones, the bright ones, the naughty ones**, the good ones. It doesn’t matter what their particular character is. So the feminine represents, in a way, the inclusive love for progeny. 
+
+&nbsp;
+
+&nbsp;
+
+https://youtu.be/4avMLuxyV10?t=483
+
+Hindu goddess of Fortune    
+
+Campbell bliss, domestic bliss    
+
