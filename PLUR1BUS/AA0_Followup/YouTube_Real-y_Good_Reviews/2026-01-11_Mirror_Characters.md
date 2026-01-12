@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=4avMLuxyV10
 Why Pluribus' Most Annoying Character Is Its Real Villain    
 January 11, 2026     
 
-&Nbsp;
+&nbsp;
 
 &nbsp;
 
@@ -24,6 +24,8 @@ The inner world is the world of your requirements and your energies and your str
 https://youtu.be/4avMLuxyV10?t=192     
 
 "What mother has the strength to do that?"     
+
+Page 227 https://books.google.com/books?id=2GOIGuh5GJ4C&pg=PA227&dq=Well,+the+mother+loves+all+her+children+%E2%80%94+the+stupid+ones,+the+bright+ones,+the+naughty+ones,+the+good+ones.+It+doesn+t+matter+what+their+particular+character+is.+So+the+feminine+represents,+in+a+way,+the+inclusive+love+for+progeny.&hl=en&newbks=1&newbks_redir=1&sa=X
 
 MOYERS: In this spiritual transformation that you’re talking about, won’t the changes depend on those feminine characteristics such as nurturing, creativity, and collaboration instead of competition? Isn’t this at the heart of the feminine principle we’re discussing?
 
