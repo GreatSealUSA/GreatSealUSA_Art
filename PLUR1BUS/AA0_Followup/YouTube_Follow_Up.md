@@ -110,7 +110,26 @@ https://www.youtube.com/watch?v=8h46Ywf0VOA
 Wednesday, January 14, 2026    
 "The Brutal Truth Behind PLURIBUS (It’s Not What You Think)"    
 
-https://youtu.be/8h46Ywf0VOA?t=118 Season one: Cold War metaphors. https://youtu.be/8h46Ywf0VOA?t=178 Show detractors cluster into two very predictable camps. 
+https://youtu.be/8h46Ywf0VOA?t=118 Season one: Cold War metaphors. https://youtu.be/8h46Ywf0VOA?t=178 Show detractors cluster into two very predictable camps. https://youtu.be/8h46Ywf0VOA?t=251 Narrative about the evasive nature of power and control. How thin moral language can become. https://youtu.be/8h46Ywf0VOA?t=312 Carol is attempting to negotiate with an impersonal system that controls the enviornment.
+
+* "MOYERS By doing what? CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, rejecting the system’s impersonal claims upon you." - 1988, Power Of Myth, nonfiction learning.
+
+https://youtu.be/8h46Ywf0VOA?t=353 this is what happens when a society stops appreciating books. The book authoring / book publishing / book fandom themes of the story.
+
+https://youtu.be/8h46Ywf0VOA?t=394 Show not written like a theme-park ride. 
+
+https://youtu.be/8h46Ywf0VOA?t=422 Trained by a decade of Twitter-think. Spark notes. Instant gratification.
+
+https://youtu.be/8h46Ywf0VOA?t=452 The show is about this basic problem. Media ecology itself, audience confrontation. The audience is being addressed. Soft power.
+
+https://youtu.be/8h46Ywf0VOA?t=496 These moments are the meticulous writing setup of the audience.
+
+https://youtu.be/8h46Ywf0VOA?t=535 The Title Latin word is an explicit reference to the Great Seal of the Untied States of America. Politics is front and center!
+
+https://youtu.be/8h46Ywf0VOA?t=584 Mechanical unity. (Biologically engineered, Marshall McLuhan's book "Mechanical Bride" themes) 
+
+* "JOSEPH CAMPBELL: [Ortega y Gasset talks about the](https://en.wikipedia.org/wiki/Jos%C3%A9_Ortega_y_Gasset) environment and the hero in his Meditations on Don Quixote. Don Quixote was the last hero of the Middle Ages. He rode out to encounter giants, but instead of giants, his environment produced windmills. Ortega points out that this story takes place about the time that a **mechanistic interpretation of the world** came in, so that the environment was no longer spiritually responsive to the hero. The hero is today running up against a **hard world that is in no way responsive to his spiritual need**. MOYERS: A windmill. CAMPBELL: Yes, but Quixote saved the adventure for himself by inventing a magician who had just transformed the giants he had gone forth to encounter into windmills. You can do that, too, if you have a poetic imagination. Earlier, though, it was not **a mechanistic world** in which the hero moved but a world alive and responsive to his spiritual readiness. Now it has become to such an extent a sheerly mechanistic world, as interpreted through our physical sciences, Marxist sociology, and behavioristic psychology, that we’re nothing but a **predictable pattern of wires responding to stimuli**. This nineteenth-century interpretation has squeezed the freedom of the human will out of modern life. MOYERS: In the **political sense**..."
+
 
 &nbsp;
 
