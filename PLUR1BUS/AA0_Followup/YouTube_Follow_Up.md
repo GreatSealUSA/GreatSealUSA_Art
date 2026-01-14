@@ -104,6 +104,18 @@ ASSERT_BIG_PICTURE: Are we breeding a founding MOTHERS mythology for the Great S
 
 &nbsp;
 
+# Nightmare Masterclass
+
+https://www.youtube.com/watch?v=8h46Ywf0VOA   
+Wednesday, January 14, 2026    
+"The Brutal Truth Behind PLURIBUS (It’s Not What You Think)"    
+
+
+
+&nbsp;
+
+&nbsp;
+
 &nbsp;
 
 # Industry shows / Cast Interviews
