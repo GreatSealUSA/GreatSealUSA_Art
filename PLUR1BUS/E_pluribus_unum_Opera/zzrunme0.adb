@@ -11,6 +11,7 @@ begin
 
    -- Main loop: repeatedly print the message
    loop
+      -- HELLO WORLD!, HELLO MONOMYTH!; I SAW! I AM SORRY TO SAY I SAW!!!
       Put_Line ("Finnegans Wake From Page 628 jump to Page 3");
    end loop;
 end Wake_Loop;
