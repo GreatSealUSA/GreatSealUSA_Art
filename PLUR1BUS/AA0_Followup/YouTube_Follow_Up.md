@@ -140,6 +140,10 @@ https://youtu.be/8h46Ywf0VOA?t=738 Resistance becomes a kind of death sentence. 
 
 * @14:58 ... "has not developed his own humanity. He’s a robot. **He’s a bureaucrat**, living not in terms of himself but in terms of **an imposed system**. This is the threat to our lives that we all face today. Is the system going to flatten you out and deny you your humanity, or are you going to be able to make use of the system to the attainment of human purposes? How do you relate to the system so that you are not compulsively serving it?" - 1988, The Power of Myth book
 
+https://youtu.be/8h46Ywf0VOA?t=1015 Frictionless logistics. Produce comfort, mask death. https://youtu.be/8h46Ywf0VOA?t=1064 negotiating with a system. 
+
+* @17:57 - "the eagle is pointing to the right-wing, not the left-wing of the bird! The Hive Mind has corrupted and deceived Carol by manipulating the POTUS Seal. 4 stars missing of 13 stars."
+
 &nbsp;
 
 &nbsp;
