@@ -110,7 +110,7 @@ https://www.youtube.com/watch?v=8h46Ywf0VOA
 Wednesday, January 14, 2026    
 "The Brutal Truth Behind PLURIBUS (It’s Not What You Think)"    
 
-
+https://youtu.be/8h46Ywf0VOA?t=118 Season one: Cold War metaphors. https://youtu.be/8h46Ywf0VOA?t=178 Show detractors cluster into two very predictable camps. 
 
 &nbsp;
 
