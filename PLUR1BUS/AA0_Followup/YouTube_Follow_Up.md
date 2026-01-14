@@ -136,6 +136,10 @@ https://youtu.be/8h46Ywf0VOA?t=634 Audiences not grasping show title is to USA s
 
 * " @10:30 - the only place in the entire first season that the word "PLURIBUS" appears is at Minute 37 of co-pilot Episode Two on Air Force One. And the eagle on the POTUS Seal is pointing to the right-wing bird-wing, not to the left-wing! Nobody is discussing this symbolism. 4 stars are also missing from the Seal." - my comment
 
+https://youtu.be/8h46Ywf0VOA?t=738 Resistance becomes a kind of death sentence. https://youtu.be/8h46Ywf0VOA?t=767 without asking for permission to create formation. Consent isn't the foundation of liberal democracy. Public relations layer that arrives afterwords. Whatever mythology we tell ourselves. https://youtu.be/8h46Ywf0VOA?t=877 once you see the title as explicitly American... not about alien invasion. https://youtu.be/8h46Ywf0VOA?t=898 live as a problem of fundamentally administration.
+
+* @14:58 ... "has not developed his own humanity. He’s a robot. **He’s a bureaucrat**, living not in terms of himself but in terms of **an imposed system**. This is the threat to our lives that we all face today. Is the system going to flatten you out and deny you your humanity, or are you going to be able to make use of the system to the attainment of human purposes? How do you relate to the system so that you are not compulsively serving it?" - 1988, The Power of Myth book
+
 &nbsp;
 
 &nbsp;
