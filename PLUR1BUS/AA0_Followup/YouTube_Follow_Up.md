@@ -130,6 +130,11 @@ https://youtu.be/8h46Ywf0VOA?t=584 Mechanical unity. (Biologically engineered, M
 
 * "JOSEPH CAMPBELL: [Ortega y Gasset talks about the](https://en.wikipedia.org/wiki/Jos%C3%A9_Ortega_y_Gasset) environment and the hero in his Meditations on Don Quixote. Don Quixote was the last hero of the Middle Ages. He rode out to encounter giants, but instead of giants, his environment produced windmills. Ortega points out that this story takes place about the time that a **mechanistic interpretation of the world** came in, so that the environment was no longer spiritually responsive to the hero. The hero is today running up against a **hard world that is in no way responsive to his spiritual need**. MOYERS: A windmill. CAMPBELL: Yes, but Quixote saved the adventure for himself by inventing a magician who had just transformed the giants he had gone forth to encounter into windmills. You can do that, too, if you have a poetic imagination. Earlier, though, it was not **a mechanistic world** in which the hero moved but a world alive and responsive to his spiritual readiness. Now it has become to such an extent a sheerly mechanistic world, as interpreted through our physical sciences, Marxist sociology, and behavioristic psychology, that we’re nothing but a **predictable pattern of wires responding to stimuli**. This nineteenth-century interpretation has squeezed the freedom of the human will out of modern life. MOYERS: In the **political sense**..."
 
+https://youtu.be/8h46Ywf0VOA?t=634 Audiences not grasping show title is to USA society. The ignorance being shown that these were even USA words in the first place. 
+
+<img width="1839" height="535" alt="image" src="https://github.com/user-attachments/assets/e888663f-8aec-4ad4-ba84-f3860ce8d7bb" />
+
+* " @10:30 - the only place in the entire first season that the word "PLURIBUS" appears is at Minute 37 of co-pilot Episode Two on Air Force One. And the eagle on the POTUS Seal is pointing to the right-wing bird-wing, not to the left-wing! Nobody is discussing this symbolism. 4 stars are also missing from the Seal." - my comment
 
 &nbsp;
 
