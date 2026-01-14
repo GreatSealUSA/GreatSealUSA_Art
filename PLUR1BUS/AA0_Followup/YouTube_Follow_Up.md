@@ -142,7 +142,11 @@ https://youtu.be/8h46Ywf0VOA?t=738 Resistance becomes a kind of death sentence. 
 
 https://youtu.be/8h46Ywf0VOA?t=1015 Frictionless logistics. Produce comfort, mask death. https://youtu.be/8h46Ywf0VOA?t=1064 negotiating with a system. 
 
+* "That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - MLK Jr. 1957-11-17
+
 * @17:57 - "the eagle is pointing to the right-wing, not the left-wing of the bird! The Hive Mind has corrupted and deceived Carol by manipulating the POTUS Seal. 4 stars missing of 13 stars."
+
+https://youtu.be/8h46Ywf0VOA?t=1099 Systemic representatives. Interfaces. Like dealing with a corporate entity. Customer service is trained to sound personal, but they are a cog in the corporate system. Organized mockery and isolation as a mechanism of control. https://youtu.be/8h46Ywf0VOA?t=1172 seductive via social desires (very applicable to my Islamic nation travels and women, Malala's call-outs) relational warmth. https://youtu.be/8h46Ywf0VOA?t=1205 Radio shack loner man, fantasy of libertarian. Rent-seeking symbolism. 
 
 &nbsp;
 
