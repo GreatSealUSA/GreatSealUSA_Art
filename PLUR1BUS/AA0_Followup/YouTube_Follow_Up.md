@@ -104,7 +104,7 @@ ASSERT_BIG_PICTURE: Are we breeding a founding MOTHERS mythology for the Great S
 
 &nbsp;
 
-# Nightmare Masterclass
+# Channel 5: Nightmare Masterclass
 
 https://www.youtube.com/watch?v=8h46Ywf0VOA   
 Wednesday, January 14, 2026    
@@ -147,6 +147,8 @@ https://youtu.be/8h46Ywf0VOA?t=1015 Frictionless logistics. Produce comfort, mas
 * @17:57 - "the eagle is pointing to the right-wing, not the left-wing of the bird! The Hive Mind has corrupted and deceived Carol by manipulating the POTUS Seal. 4 stars missing of 13 stars."
 
 https://youtu.be/8h46Ywf0VOA?t=1099 Systemic representatives. Interfaces. Like dealing with a corporate entity. Customer service is trained to sound personal, but they are a cog in the corporate system. Organized mockery and isolation as a mechanism of control. https://youtu.be/8h46Ywf0VOA?t=1172 seductive via social desires (very applicable to my Islamic nation travels and women, Malala's call-outs) relational warmth. https://youtu.be/8h46Ywf0VOA?t=1205 Radio shack loner man, fantasy of libertarian. Rent-seeking symbolism. 
+
+https://youtu.be/8h46Ywf0VOA?t=1307 Exactly what the show is interrogating. He has NOW woken up to the James Joyce level of consciousness, history is a nightmare. You don't just stand free of the history of languages and meaning given to you. https://youtu.be/8h46Ywf0VOA?t=1380 Think of the show's hive mind as a system. https://youtu.be/8h46Ywf0VOA?t=1473 Carol's first rule / law is about deception and lie. https://youtu.be/8h46Ywf0VOA?t=1512 Neoliberal governance. Experts offering plausible deniability. https://youtu.be/8h46Ywf0VOA?t=1615 what thing binds society together? Endless growth.
 
 &nbsp;
 
