@@ -11,7 +11,7 @@ Y2K / 1999.
 
 Reformation suppressed. 1987 "Disqualified from the future" Skywalker Ranch statement# suppressed.
 
-* "The profundity and **sublime majesty of the suppressed mythology** can be appreciated best by way of two apparently unrelated clocks, one, the ultimate clock of outer space, and the other of inner space-respectively, the astronomical precession of the equinoxes and the physiological beat of the human heart." -- The Inner Reaches of Outer Space, 1986, page 12
+* "The profundity and **sublime majesty of the suppressed mythology** can be appreciated best by way of two apparently unrelated clocks, one, the ultimate clock of outer space, and the other of inner space - respectively, the astronomical precession of the equinoxes and the physiological beat of the human heart." -- The Inner Reaches of Outer Space, 1986, page 12
 
 * A Film from 1999 about a countdown to a Church event, a road race to a church entrance.
 
