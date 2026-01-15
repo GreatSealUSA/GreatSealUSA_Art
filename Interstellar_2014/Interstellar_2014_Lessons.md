@@ -41,6 +41,18 @@ https://youtu.be/8lDyKf8sKAM?t=610
 * "Now, where do these aspirations come from? They come from a very wonderful, **childlike thing**: fascination. You know, if you wanted to make money today… I think I know economists, but I'll bet the thing to do would be to invest your money in something like cameras — things that people play with, things that they are fascinated by. These fascinations are the creations of new activities. And when we look at the old cultures we can see — and some of it is very strange to see indeed…" - Lecture I.1.1 - The Celebration of Life. Joseph Campbell. March 1, 1967
 
 
+&nbps;
+
+# January 2026
+
+https://www.youtube.com/watch?v=D09sle7hgWw    
+12 Years Later, I Finally Understand Interstellar    
+3,095 views January 11, 2026    
+
+Matthew McConaughey saying inward...
+
+* "For example, Jesus ascended to heaven. The denotation would seem to be that somebody ascended to the sky. That’s literally what is being said. But if that were really the meaning of the message, then we have to throw it away, because there would have been no such place for Jesus literally to go. We know that Jesus could not have ascended to heaven because there is no physical heaven anywhere in the universe. Even ascending at the speed of light, Jesus would still be in the galaxy. Astronomy and physics have simply eliminated that as a literal, physical possibility. But if you read “Jesus ascended to heaven” in terms of its metaphoric connotation, you see that he has gone inward — **not into outer space but into inward space**, to the place from which all being comes, into the consciousness that is the source of all things, the kingdom of heaven within. The images are outward, but **their reflection is inward**. The point is that we should ascend with him by going inward. It is a metaphor of returning to the source, alpha and omega, of leaving the fixation on the body behind and going to the body’s dynamic source." 
+
 &nbsp;
 
 &nbsp;
