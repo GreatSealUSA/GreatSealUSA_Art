@@ -9,7 +9,7 @@ Two Clocks
 
 &nbsp;
 
-"The profundity and sublime majesty of the suppressed mythology can be appreciated best by way of two apparently unrelated clocks, one, the ultimate clock of outer space, and the other of inner space-respectively, the astronomical precession of the equinoxes and the physiological beat of the human heart." -- The Inner Reaches of Outer Space, [Joseph Campbell, year 1986, page 12](https://books.google.com/books?id=5VOGAAAAQBAJ&pg=PA12&dq=%22The+profundity+and+sublime+majesty+of+the+suppressed+mythology+can+be+appreciated+best+by+way+of+two+apparently+unrelated+clocks%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+"The profundity and sublime majesty of the suppressed mythology can be appreciated best by way of two apparently unrelated clocks, one, the ultimate clock of outer space, and the other of inner space - respectively, the astronomical precession of the equinoxes and the physiological beat of the human heart." -- The Inner Reaches of Outer Space, [Joseph Campbell, year 1986, page 12](https://books.google.com/books?id=5VOGAAAAQBAJ&pg=PA12&dq=%22The+profundity+and+sublime+majesty+of+the+suppressed+mythology+can+be+appreciated+best+by+way+of+two+apparently+unrelated+clocks%22&hl=en&newbks=1&newbks_redir=1&sa=X)
 
 &nbsp;
 
