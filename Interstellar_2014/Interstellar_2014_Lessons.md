@@ -43,11 +43,12 @@ https://youtu.be/8lDyKf8sKAM?t=610
 
 &nbps;
 
-# January 2026
+# January 2026 inward
 
 https://www.youtube.com/watch?v=D09sle7hgWw    
 12 Years Later, I Finally Understand Interstellar    
 3,095 views January 11, 2026    
+Epic Sell    
 
 Matthew McConaughey saying inward...
 
