@@ -259,6 +259,8 @@ Carol says "I can feel all of the good chemicals in my body"
 
 DOUBLE high metaphors. Famous song of Carol's home country, USA: https://www.youtube.com/watch?v=cOS5-n7dyj4 (lyrics: "Lost a friend, but kept friend memories") which fits Helen and Pluribus story. Lost Helen but kept Helen's memory on mountain with Pirate Lady.
 
+The white snow of the Ski Lodge and scene... invokes the common metaphor of white Heaven, Light, Afterlife.
+
 &nbsp;
 
 # TRACK: All the way from Asunción, Paraguay
