@@ -258,3 +258,12 @@ that **electric information systems are live environments in the full organic se
 Carol says "I can feel all of the good chemicals in my body"
 
 DOUBLE high metaphors. Famous song of Carol's home country, USA: https://www.youtube.com/watch?v=cOS5-n7dyj4 (lyrics: "Lost a friend, but kept friend memories") which fits Helen and Pluribus story. Lost Helen but kept Helen's memory on mountain with Pirate Lady.
+
+&nbsp;
+
+# TRACK: All the way from Asunción, Paraguay
+
+37,056 views December 4, 2018      
+I just come all the way! https://youtu.be/VxO0yuKWIF4?t=94    
+
+Love them and torture them until *they* run for cover, and exit ABQ!    
