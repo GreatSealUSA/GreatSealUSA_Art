@@ -5,8 +5,8 @@
 **Have Some Sense**   
 **Chain of Hate***   
 
-Howard University School of Religion
-Andrew Rankin Memorial Chapel
-Washington, D. C.
-United States of America
-Sunday, November 10, 1957
+Howard University School of Religion   
+Andrew Rankin Memorial Chapel   
+Washington, D. C.   
+United States of America   
+Sunday, November 10, 1957   
