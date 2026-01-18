@@ -17,3 +17,19 @@ Finnegans Wake Earwicker Public House (HCE house, Everybody Comes) drinking game
 ASSERT: Minute 22 of Episode One, **graduate school** of Helen about James Joyce. Minute 22 / Kepler 22 "00:00:00:00" countdown hour. All the counting on-screen timers pointing to James Joyce.
 
 Happy New Year, January 1, 2026 creation of this GitHub markdown page. Be well!
+
+&nbsp;
+
+&nbsp;
+
+# Real-world doctored POTUS Seal
+
+https://abcnews.go.com/Politics/doctored-presidential-seal-projected-president-trump/story?id=64573040    
+
+"Doctored presidential seal projected behind President Trump"    
+"The White House said it had no knowledge of the doctored seal beforehand."   
+
+ByJordyn Phelps   
+July 25, 2019, 8:10 PM    
+
+"The doctored seal was edited in a way that resembled the state seal of Russia with added golf clubs, a poke at President Trump's relationship with Russia and his well-known affinity for golf."    
