@@ -54,7 +54,7 @@ I think Alfred Nobel would know what I mean when I say that I accept this award 
 Dear USA:    
 Prayer To All:     
 
-"all those to whom beauty is truth and truth beauty - and in whose eyes the beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold." - **MLK Jr**
+"all those to whom beauty is truth and truth beauty - and in whose eyes the beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold." - **MLK Junior**
 
 My Civic Ditty   
 Citizen Steely Dan   
