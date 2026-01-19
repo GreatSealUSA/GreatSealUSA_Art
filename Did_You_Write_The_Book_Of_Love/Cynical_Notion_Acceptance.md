@@ -40,3 +40,24 @@ Every time I take a flight, I am always mindful of the many people who make a su
 So you honor the dedicated pilots of our struggle who have sat at the controls as the freedom movement soared into orbit. You honor, once again, Chief Lutuli of South Africa, whose struggles with and for his people, are still met with the most brutal expression of man's inhumanity to man. You honor the ground crew without whose labor and sacrifices the jet flights to freedom could never have left the earth. Most of these people will never make the headline and their names will not appear in Who's Who. Yet when years have rolled past and when the blazing light of truth is focused on this marvelous age in which we live - men and women will know and children will be taught that we have a finer land, a better people, a more noble civilization - because these humble children of God were willing to suffer for righteousness sake.
 
 I think Alfred Nobel would know what I mean when I say that I accept this award in the spirit of a curator of some precious heirloom which he holds in trust for its true owners - all those to whom beauty is truth and truth beauty - and in whose eyes the beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## Had enough of mine?
+
+Dear USA:    
+Prayer To All:     
+
+"all those to whom beauty is truth and truth beauty - and in whose eyes the beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold." - **MLK Jr**
+
+My Civic Ditty   
+Citizen Steely Dan   
+Diamond Hands    
+
+OPERA_A *are you gathering up the tears?* https://www.youtube.com/watch?v=91XTZ92zs2w 3,375,360 views December 4, 2018
