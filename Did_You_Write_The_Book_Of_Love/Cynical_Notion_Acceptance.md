@@ -52,7 +52,9 @@ I think Alfred Nobel would know what I mean when I say that I accept this award 
 ## Had enough of mine?
 
 Dear USA:    
-Prayer To All:     
+Prayer To All:    
+
+Did *you* write the book of love?    
 
 "all those to whom beauty is truth and truth beauty - and in whose eyes the beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold." - **MLK Junior**
 
