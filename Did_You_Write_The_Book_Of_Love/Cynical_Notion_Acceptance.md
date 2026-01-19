@@ -62,3 +62,7 @@ Citizen Steely Dan
 Diamond Hands    
 
 OPERA_A *are you gathering up the tears?* https://www.youtube.com/watch?v=91XTZ92zs2w 3,375,360 views December 4, 2018
+
+&nbsp;
+
+Social post { https://MidWest.Social/post/42082922/22259238 }
