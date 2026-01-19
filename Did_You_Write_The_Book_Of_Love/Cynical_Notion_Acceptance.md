@@ -13,7 +13,6 @@ Accepting Cynical Notions
 
 &nbsp;
 
-	
 Martin Luther King – Acceptance Speech     
 Martin Luther King's Acceptance Speech, on the occasion of the award of the Nobel Peace Peace Prize in Oslo, December 10, 1964     
 
