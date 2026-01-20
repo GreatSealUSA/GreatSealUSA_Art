@@ -204,6 +204,14 @@ Episode 3 titled "Grenade," aired on Apple TV on Friday, November 14, 2025 she i
 
 &nbsp;
 
+# YouTube assortment 
+
+https://youtu.be/AVOJfO_DLH0?t=37 "Deliberate choice" to be slower.
+
+&nbsp;
+
+&nbsp;
+
 # Half In the Bag 
 
 Red Letter Media      
