@@ -1,6 +1,7 @@
 -- Ada code
 --   https://EN.Wikipedia.org/wiki/Ada_(programming_language)
 -- License: Public Domain, no rights reserved.
+-- Application version 0.0.13
 
 with Ada.Text_IO; use Ada.Text_IO;
 
