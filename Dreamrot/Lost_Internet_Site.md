@@ -13,7 +13,7 @@ https://Old.Reddit.com/r/GreatSealUSA/comments/orehb7/interlaced_tetractyses_and
 
 http://Unurthed.com/2007/06/03/interlaced-tetractyses-and-the-great-seal-of-the-united-states/
 
-It was online since year 2007. 2006-06-03 - and there were other pages too, not sure on dates or links at the moment.
+It was online since year 2007. 2007-06-03 - and there were other pages too, not sure on dates or links at the moment.
 
 ## was online in year 2023
 
