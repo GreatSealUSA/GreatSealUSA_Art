@@ -22,5 +22,5 @@ The aeroplane and the radio have brought us closer together. The very nature of 
 
 ## See Also
 
-"Cynical Nation Acceptance"    
+"Cynical Notion Acceptance"    
 https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Did_You_Write_The_Book_Of_Love/Cynical_Notion_Acceptance.md
