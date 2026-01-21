@@ -24,7 +24,9 @@ https://web.archive.org/web/20230126013744/http://unurthed.com/2007/05/24/the-na
 https://web.archive.org/web/20230629004106/http://unurthed.com/2007/06/03/interlaced-tetractyses-and-the-great-seal-of-the-united-states/
 
 "12 Sep 2007 - 29 Jun 2023"         
-Two god-damned decades of standing tall for Free Masons educating / understanding!     
+15 years of standing tall for Free Masons educating / understanding!     
+
+I know I linked it, such as this comment of mine about Interstellar 2014 film https://Old.Reddit.com/r/interstellar/comments/vaxj2q/comment/ic56tu2/
 
 &nbsp;
 
