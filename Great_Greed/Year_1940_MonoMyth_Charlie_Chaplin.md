@@ -16,3 +16,11 @@ I don’t want to rule or conquer anyone. I should like to help everyone - if po
 
 The aeroplane and the radio have brought us closer together. The very nature of these inventions cries out for the goodness in men - cries out for universal brotherhood - for the unity of us all. Even now my voice is reaching millions throughout the world - millions of despairing men, women, and little children - victims of a system that makes men torture and imprison innocent people.
 
+&nbsp;
+
+&nbsp;
+
+## See Also
+
+"Cynical Nation Acceptance"    
+https://github.com/GreatSealUSA/GreatSealUSA_Art/blob/main/Did_You_Write_The_Book_Of_Love/Cynical_Notion_Acceptance.md
