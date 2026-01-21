@@ -14,7 +14,7 @@ begin
    -- Please inform the system operator: Load reams of paper!
    loop
       -- HELLO WORLD!, HELLO MONOMYTH!; I SAW! I AM SORRY TO SAY I SAW!!!
-      --   https://www.finnegansweb.com/wiki/index.php/Page_581
+      --   https://www.FinnegansWeb.com/wiki/index.php/Page_581
       Put_Line ("Finnegans Wake From Page 628 jump to Page 3");
    end loop;
 end Wake_Loop;
