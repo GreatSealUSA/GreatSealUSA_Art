@@ -26,7 +26,7 @@ https://web.archive.org/web/20230629004106/http://unurthed.com/2007/06/03/interl
 "12 Sep 2007 - 29 Jun 2023"         
 15 years of standing tall for Free Masons educating / understanding!     
 
-I know I linked it, such as this comment of mine about Interstellar 2014 film https://Old.Reddit.com/r/interstellar/comments/vaxj2q/comment/ic56tu2/
+I know I linked it, such as this comment of mine about Interstellar 2014 film https://Old.Reddit.com/r/interstellar/comments/vaxj2q/comment/ic56tu2/ June 12, 2022    
 
 &nbsp;
 
