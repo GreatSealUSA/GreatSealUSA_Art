@@ -23,6 +23,7 @@ https://web.archive.org/web/20230126013744/http://unurthed.com/2007/05/24/the-na
 
 https://web.archive.org/web/20230629004106/http://unurthed.com/2007/06/03/interlaced-tetractyses-and-the-great-seal-of-the-united-states/
 
+2007-06-03 was posted archive didn't grab it until 3 months later in 2007.    
 "12 Sep 2007 - 29 Jun 2023"         
 15 years of standing tall for Free Masons educating / understanding!     
 
