@@ -23,7 +23,8 @@ https://web.archive.org/web/20230126013744/http://unurthed.com/2007/05/24/the-na
 
 https://web.archive.org/web/20230629004106/http://unurthed.com/2007/06/03/interlaced-tetractyses-and-the-great-seal-of-the-united-states/
 
-"12 Sep 2007 - 29 Jun 2023"    
+"12 Sep 2007 - 29 Jun 2023"         
+Two god-damned decades of standing tall for Free Masons educating / understanding!     
 
 &nbsp;
 
@@ -45,3 +46,14 @@ Great Seal of the United States, Obverse
 
 “Connotations of the same order pertain, of course, to the downward turned tetraktys, with its single point at the apex opening also from and to Eternity; so that, ‘What is above is below,’ and the energy of the Spirit (however named), whether from without (as from the Eye, the apex above) or from within the world (the apex below) is one” (p128).
 
+&nbsp;
+
+# Misc
+
+Misc observations
+
+Some eyes see: 
+
+<img width="2359" height="492" alt="image" src="https://github.com/user-attachments/assets/fabf253e-52bf-49bb-ad4b-618ba06cea8a" />
+
+http://alchemy.ucoz.ru/forum/24-47-11728-16-1524631693
