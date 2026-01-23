@@ -31,3 +31,8 @@ First was growth, next was maturity and fulfillment of your role, and now it's t
 
 And then from seventy onwards, this is the period that he calls The Period of Departure. And it is typified as follows: looking backward over the span of your life with gratitude, and looking forward to death as a return home. There is that sense of appreciation of the void and the abyss, and yet of appreciation for life. You leave life in a nice balance, not resenting your departure, nor resenting what life did to you.
 
+&nbsp;
+
+&nbsp;
+
+ToDo: https://old.reddit.com/r/lotrmemes/comments/1qkqb8q/can_relate/
