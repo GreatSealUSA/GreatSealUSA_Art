@@ -620,3 +620,17 @@ You'll never
 Ever walk alone    
 
 * "::: Once, as we were discussing the subject of suffering, he mentioned **in tandem Joyce** and Igjugarjuk. “Who is Igjugarjuk?” I said, barely able to imitate the pronunciation. “Oh,” replied Campbell, “he was the shaman of a Caribou Eskimo tribe in northern Canada, the one who told European visitors that the only true wisdom lives far from mankind, out **in the great loneliness, and can be reached only through suffering. Privation and suffering alone** open the mind to all that is hidden to others.’ :::” - Bill Moyers, 1988, Power of Myth opening page
+
+&nbsp;
+
+# Track: Read my Hive Mindedness 
+
+https://www.youtube.com/watch?v=jiU2lrGnT7U   
+"If You Could Read My Mind"   
+17,585,663 views January 25, 2017   
+
+Reading end of book... re-reading pain.   
+"If you read between the lines", "trying to understand"  
+"Feeling's gone and I just can't get it back"    
+
+But still trying with this message, this song, this expression.  
