@@ -10,3 +10,14 @@ BILL MOYERS: But that’s not the Christian idea of creation and the Fall.
 
 JOSEPH CAMPBELL: I once heard a lecture by a wonderful old Zen philosopher, Dr. D. T. Suzuki. He stood up with his hands slowly rubbing his sides and said, “God against man. Man against God. Man against nature. Nature against man. Nature against God. God against nature—very funny religion!”
 
+&nbsp;
+
+&nbsp;
+
+# Carol: "Pluck an Apple"
+
+Season One Carol: "Puck and Apple"
+
+The Fall of Mankind, Original Sin, Adam and Eve - Finnegans Wake Page 3.
+
+https://old.reddit.com/r/lostgeneration/comments/1qlkn8l/it_shouldnt_be/
