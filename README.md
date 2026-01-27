@@ -4,8 +4,7 @@ Year 1776 mythos of the American Dream
 Metaphors of Pale Blue Dot     
 /!\ https://www.GreatSealUSA.com /!\
 
->[!NOTE]
->NABVIGATE: [PLURI1BUS Television Series 2025](/PLUR1BUS)
+> NAVIGATE: [PLURI1BUS Television Series 2025](/PLUR1BUS/README.md)
 
 &nbsp;
 
