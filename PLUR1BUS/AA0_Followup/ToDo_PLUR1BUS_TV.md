@@ -9,3 +9,5 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1q0k0nz/the_only_two_genu
 https://old.reddit.com/r/CuratedTumblr/comments/1q4sqou/this_is_what_it_feels_like_when_people_talk_about/   
 ToDo: mine for quotes and experiences of fandoms.  
 
+Steely Dan's King of the world is in this tracklist somewhere  
+S02E04 of Breaking Bad, 6 minutes, Steely Dan is Walter's best band   
