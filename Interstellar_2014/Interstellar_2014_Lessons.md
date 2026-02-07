@@ -58,6 +58,17 @@ Matthew McConaughey saying inward...
 
 &nbsp;
 
+# February 2026 - To Be or Not To Be
+
+To Be Understood as Metaphors or Not to Be. Inner Reaches of Outer Space nonfiction book, year 1996.   
+
+https://www.youtube.com/watch?v=9YBpOBIsZoc   
+"Why Interstellar Took a Decade to Understand"   
+713 views Saturday February 7, 2026   
+
+
+&nbsp;
+
 &nbsp;
 
 # Junk media
