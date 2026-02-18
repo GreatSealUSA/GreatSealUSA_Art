@@ -14,9 +14,9 @@ The Loaded Question from the man in the comic to the women in the comic:
 
 2. Immigrants did it.
 
-3. There is no third option, as bi-polar us vs. them mindset is thought-termining at two sides, both sides, "the other side" (of two sides). "Two sides to every story".
+3. There is no third option, as bi-polar us vs. them mindset is thought-terminating at two sides, both sides, "the other side" (of two sides). "Two sides to every story".
 
-In this case, both choices are wrong. Side one is wrong, side two is wrong. The correct answer lies beyond the numbers one and two, beyond "both" sides of "an argument".
+In this case, both choices are wrong. Side one is wrong, side two is wrong. The correct answer lies beyond the numbers one and two, beyond "both" sides of "an argument". 
 
 &nbsp;
 
@@ -39,7 +39,7 @@ February 28, 1954: "Most people can't stand up for their convictions, because th
 
 Non-instrumental reason thinking system.
 
-George Lucas filmed lessons at Skywalker Ranch for the Star Wars audiences / Hollywood film fans in summer of 1986 and summer of 1987. This was the peak of George Lucas' society media influence, popularituy, and he used his media platform to teach. Lucas wanted audiences to understand how the monomyth sausages are made. So he filmed and hosted nonfiction educational series for science fiction audiences.
+George Lucas filmed lessons at Skywalker Ranch for the Star Wars audiences / Hollywood film fans in summer of 1986 and summer of 1987. This was the peak of George Lucas' society media influence, popularity, and he used his media platform to teach. Lucas wanted audiences to understand how the monomyth sausages are made. So he filmed and hosted nonfiction educational series for science fiction audiences.
 
 Published in 1988 book "Power of Myth", page 37
 
