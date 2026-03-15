@@ -16,3 +16,10 @@ The Olive Branch was turned into paper and posted in public as a letter, a messa
 
 "Vice Admiral Howe forwarded a copy of the Declaration to London on July 28, 1776, and another on August 11, 1776, which are now held in the UK National Archives." - Google Search Summary, 2026-03-12 
 
+&nbsp;
+
+# People.com
+
+https://old.reddit.com/r/politics/comments/1rtqjg9/trump_admin_drops_the_olive_branch_from_us_seal/
+
+https://People.com/new-dime-coin-design-missing-olive-branch-11925790
