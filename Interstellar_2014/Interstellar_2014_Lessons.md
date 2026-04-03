@@ -71,6 +71,19 @@ https://www.youtube.com/watch?v=9YBpOBIsZoc
 
 &nbsp;
 
+# April 2026 - Inward God
+
+https://www.youtube.com/watch?v=43ALm9idZQU     
+Gnosis    
+Interstellar Is Not About Space — It's About God    
+
+Inner Reaches of Outer Space, 1986 book by Joseph Campbell     
+
+
+&nbsp;
+
+&nbsp;
+
 # Junk media
 
 https://www.youtube.com/watch?v=O494CypwKX0     
