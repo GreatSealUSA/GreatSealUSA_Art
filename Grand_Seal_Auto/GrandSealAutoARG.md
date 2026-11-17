@@ -22,3 +22,10 @@ GrandSealAutoARG_2026-11-17_Hint0.png
 
 ![Grand Seal Auto ARG 2026-11-17 Hint 0](GrandSealAutoARG_2026-11-17_Hint0.png)
 
+&nbsp;
+
+# Scavenger Hunt Demo     
+
+2026-11-17 Google Chatbot research playing     
+https://share.google/aimode/RwwrQa1rHChfR84IL     
+
