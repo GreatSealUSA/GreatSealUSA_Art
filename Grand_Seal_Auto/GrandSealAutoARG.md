@@ -14,3 +14,11 @@ GrandSealAuto_Opening_2026-11-17.png
 
 ![Grand Seal Auto Opening 2026-11-17](GrandSealAuto_Opening_2026-11-17.png)
 
+&nbsp;
+
+# Hint 0
+
+GrandSealAutoARG_2026-11-17_Hint0.png
+
+![Grand Seal Auto ARG 2026-11-17 Hint 0](GrandSealAutoARG_2026-11-17_Hint0.png)
+
